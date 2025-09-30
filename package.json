@@ -5,7 +5,7 @@
   "scripts": {
     "dev": "astro dev",
     "start": "astro dev",
-    "build": "astro build",
+    "build": "astro build && npx pagefind --site dist",
     "preview": "astro preview",
     "astro": "astro"
   },
@@ -18,5 +18,8 @@
     "marked": "^16.3.0",
     "sharp": "^0.34.3",
     "tailwindcss": "^4.1.13"
+  },
+  "devDependencies": {
+    "pagefind": "^1.4.0"
   }
 }

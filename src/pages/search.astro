@@ -1,0 +1,29 @@
+---
+import Layout from '../layouts/BlogPost.astro';
+---
+
+<Layout
+	title="Search Soul Travelers 3"
+	description="Search our travel blog"
+	pubDate={new Date('2024-01-01')}
+>
+	<div id="search"></div>
+
+	<link href="/pagefind/pagefind-ui.css" rel="stylesheet">
+	<script is:inline src="/pagefind/pagefind-ui.js"></script>
+	<script is:inline>
+		window.addEventListener('DOMContentLoaded', () => {
+			new PagefindUI({
+				element: '#search',
+				showSubResults: true,
+				showImages: false,
+			});
+		});
+	</script>
+</Layout>
+
+<style is:global>
+	#search {
+		margin: 2rem 0;
+	}
+</style>
