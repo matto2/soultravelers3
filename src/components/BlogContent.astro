@@ -1,0 +1,33 @@
+---
+import { marked } from 'marked';
+
+// Component to process blog content and hide teaser content from full posts
+export interface Props {
+  content: string;
+  showTeaser?: boolean;
+}
+
+const { content, showTeaser = false } = Astro.props;
+
+function processContent(content: string, showTeaser: boolean): string {
+  const moreIndex = content.indexOf('<!--more-->');
+
+  if (moreIndex === -1) {
+    // No <!--more--> tag found, return full content
+    return content;
+  }
+
+  if (showTeaser) {
+    // Return only content before <!--more--> for teasers
+    return content.substring(0, moreIndex);
+  } else {
+    // Return only content after <!--more--> for full posts
+    return content.substring(moreIndex + 11); // 11 is length of '<!--more-->'
+  }
+}
+
+const processedContent = processContent(content, showTeaser);
+const htmlContent = marked(processedContent);
+---
+
+<div set:html={htmlContent} />

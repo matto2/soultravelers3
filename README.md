@@ -1,19 +1,17 @@
-# Astro Starter Kit: Blog
+# Soul Travelers 3
 
-```sh
-npm create astro@latest -- --template blog
-```
+A family travel blog built with Astro, documenting our open-ended world journey.
 
-> 🧑‍🚀 **Seasoned astronaut?** Delete this file. Have fun!
+## Features
 
-Features:
-
-- ✅ Minimal styling (make it your own!)
-- ✅ 100/100 Lighthouse performance
+- ✅ Astro static site generation
+- ✅ Content collections for blog posts
 - ✅ SEO-friendly with canonical URLs and OpenGraph data
 - ✅ Sitemap support
 - ✅ RSS Feed support
 - ✅ Markdown & MDX support
+- ✅ Tailwind CSS for styling
+- ✅ Advanced taxonomy system for travel content
 
 ## 🚀 Project Structure
 
@@ -57,6 +55,6 @@ All commands are run from the root of the project, from a terminal:
 
 Check out [our documentation](https://docs.astro.build) or jump into our [Discord server](https://astro.build/chat).
 
-## Credit
+## About
 
-This theme is based off of the lovely [Bear Blog](https://github.com/HermanMartinus/bearblog/).
+Soul Travelers 3 documents a California family's around-the-world journey, sharing insights on slow travel, homeschooling on the road, budget living, and practical nomadic lifestyle tips.
