@@ -1,26 +1,36 @@
 ---
-import Layout from '../layouts/BlogPost.astro';
+import BaseHead from '../components/BaseHead.astro';
+import Header from '../components/Header.astro';
+import Footer from '../components/Footer.astro';
 ---
 
-<Layout
-	title="Search Soul Travelers 3"
-	description="Search our travel blog"
-	pubDate={new Date('2024-01-01')}
->
-	<div id="search"></div>
+<html lang="en">
+	<head>
+		<BaseHead title="Search" description="Search our travel blog" />
+		<link href="/pagefind/pagefind-ui.css" rel="stylesheet">
+	</head>
+	<body>
+		<Header />
+		<main>
+			<article>
+				<h1>Search</h1>
+				<div id="search"></div>
+			</article>
+		</main>
+		<Footer />
 
-	<link href="/pagefind/pagefind-ui.css" rel="stylesheet">
-	<script is:inline src="/pagefind/pagefind-ui.js"></script>
-	<script is:inline>
-		window.addEventListener('DOMContentLoaded', () => {
-			new PagefindUI({
-				element: '#search',
-				showSubResults: true,
-				showImages: false,
+		<script is:inline src="/pagefind/pagefind-ui.js"></script>
+		<script is:inline>
+			window.addEventListener('DOMContentLoaded', () => {
+				new PagefindUI({
+					element: '#search',
+					showSubResults: true,
+					showImages: false,
+				});
 			});
-		});
-	</script>
-</Layout>
+		</script>
+	</body>
+</html>
 
 <style is:global>
 	#search {
