@@ -18,13 +18,13 @@ tags:
 ---
 
   
-[![IMG_5558](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743108392970d.jpg "IMG_5558")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743108392970d.jpg)Travel To Andorra  
+![IMG_5558](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743108392970d.jpg)Travel To Andorra  
   
 Andorra is a tiny country  
 wedged between France  
 and Spain in the Pyrenees
 
-<!--more--> [![Visiting Andorra - beautiful views and stone houses](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176162a983c970c.jpg "Visiting Andorra - beautiful views and stone houses")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176162a983c970c.jpg)  
+<!--more--> ![Visiting Andorra - beautiful views and stone houses](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176162a983c970c.jpg)  
   
 Andorra is a tiny country wedged between France and Spain in the Pyrenees known in Europe primarily for it's skiing, shopping and off-shore  banking. Few Americans visit Andorra, unfortunately, since it has some of the most dramatic scenery and best skiing and hiking in the Pyrenees.  
   

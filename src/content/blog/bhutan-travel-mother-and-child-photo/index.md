@@ -12,7 +12,7 @@ tags:
   - "vacation-in-bhutan"
 ---
 
-Bhutan Mother And Child Photo[![IMG_7628](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e5bb6fa970b.jpg "IMG_7628")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e5bb6fa970b.jpg)
+Bhutan Mother And Child Photo![IMG_7628](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e5bb6fa970b.jpg)
 
 Bhutan, the Dragon Kingdom,  
 sits high on the Eastern Himalayas,  
@@ -20,7 +20,7 @@ and is a place filled with prayer,
 
 <!--more-->
 
-[![Bhutan Travel - mother and child photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e884f0bcb970d.jpg "Bhutan Travel - mother and child photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e884f0bcb970d.jpg)
+![Bhutan Travel - mother and child photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e884f0bcb970d.jpg)
 
 [Bhutan, the Dragon Kingdom](http://soultravelers3new.local/2011/05/travel-to-bhutan-.html "Bhutan, the dragon kingdom"), sits high on the Eastern Himalayas, and is a place filled with prayer, dream- like outstanding beauty and with incredible, open hearted, compassionate people. The mothers and children especially touched our hearts, so it is wonderful that I am blessed to be celebrating Mother's Day in this enchanting place where family, love and protecting nature and tradition is so important. We met this woman and baby crossing a bridge and she graciously allowed us to take her photo.  
   

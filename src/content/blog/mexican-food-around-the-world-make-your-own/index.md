@@ -17,14 +17,14 @@ tags:
   - "tex-mex-food"
 ---
 
-[![IMG_4041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176163d765e970c.jpg "IMG_4041")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176163d765e970c.jpg)Mexican Food Around the  
+![IMG_4041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176163d765e970c.jpg)Mexican Food Around the  
 World? Make Your Own!  
   
 As Californians, we all love  
 delicious, healhty Mexican  
 food and it is one of our
 
-<!--more--> [![Yum! Delicious, healthy, cheap Mexican food around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177432393f1970d.jpg "Yum! Delicious, healthy, cheap Mexican food around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177432393f1970d.jpg)
+<!--more--> ![Yum! Delicious, healthy, cheap Mexican food around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177432393f1970d.jpg)
 
 As [Californians](http://soultravelers3new.local/2006/08/home-and-hous-1.html "Californians"), we all love delicious, healhty Mexican food and it is one of our favorite comfort foods. When you live a [world traveling lifestyle,](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "world traveling lifestyle ") you soon find out that it is very difficult to find good Mexican food in most places. We did once find an amazing ( but expensive) [Mexican restaurant in Santorini](http://soultravelers3new.local/2007/08/hello-goodbye-s.html "mexican restaurant in Santorini"), but usually, even if you can find one, they are horrible.  
   

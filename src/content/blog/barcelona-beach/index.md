@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Img_4611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4611.png "Img_4611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4611.png)Barcelona Beach Resort  
+![Img_4611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4611.png)Barcelona Beach Resort  
 May 1, 2007
 
 Ahhh, it is good to have time to rest and  
@@ -15,7 +15,7 @@ place to recover from our fast travel
 
 <!--more-->
 
-[![Img_4611_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4611_2.png "Img_4611_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4611_2.png)
+![Img_4611_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4611_2.png)
 
   
 Ahhh, it is good to have time to rest and relax and this seems to be the perfect place to recover from our fast travel and catch our breath a little. I thought we would need any where from three days to ten days, but it seems we might need more. We have a few things to take care of like the blog and the satellite, but mostly we just need time to be. This haven will be a hard place to leave.
@@ -42,26 +42,26 @@ I also adore the waterfall in the jacuzzi. It is from way up high and falls all 
 
 Mozart and DaVinci love the bakery here and the desserts (they are really much too good and tempting). Mozart likes to get the hot chocolate when ever she goes with one of us to the reception. We all love the whole roasted chicken which is at least a healthy choice and that and a salad has got us spoiled by even skipping some cooking duties. Mozart loves all the bells and whistles, but she also just enjoys riding her bike and playing in dirt. We are glad to have the time to home school again and catch up on piano practice. We could not have asked for a better resting place!
 
-[![Img_4597](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4597.png "Img_4597")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4597.png)
+![Img_4597](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4597.png)
 
-[![Img_4601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4601.png "Img_4601")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4601.png)
+![Img_4601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4601.png)
 
-[![Img_4596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4596.png "Img_4596")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4596.png)
+![Img_4596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4596.png)
 
-[![Img_4683](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4683.png "Img_4683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4683.png)
+![Img_4683](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4683.png)
 
-[![Img_4630](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4630.png "Img_4630")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4630.png)
+![Img_4630](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4630.png)
 
-[![Img_5120](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_5120.png "Img_5120")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_5120.png)
+![Img_5120](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_5120.png)
 
-[![Img_4728](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4728.png "Img_4728")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4728.png)
+![Img_4728](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4728.png)
 
-[![Img_4689](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4689.png "Img_4689")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4689.png)
+![Img_4689](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4689.png)
 
-[![Img_5130](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_5130.png "Img_5130")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_5130.png)
+![Img_5130](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_5130.png)
 
-[![Img_4626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4626.png "Img_4626")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4626.png)
+![Img_4626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4626.png)
 
-[![Img_4708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4708.png "Img_4708")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4708.png)
+![Img_4708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4708.png)
 
-[![Img_4605](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4605.png "Img_4605")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4605.png)
+![Img_4605](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4605.png)

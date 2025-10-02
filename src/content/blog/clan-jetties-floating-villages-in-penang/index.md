@@ -21,14 +21,14 @@ tags:
   - "weld-quay"
 ---
 
-[![IMG_5250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b2aa7970d.jpg "IMG_5250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b2aa7970d.jpg)Clan Jetties Floating  
+![IMG_5250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b2aa7970d.jpg)Clan Jetties Floating  
 Villages in Penang  
   
 Have you seen the  
 floating village of ancient  
 homes on stilts in the UNESCO
 
-<!--more--> [![Picturesque fishing boats at the Clan Jetties in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176175498bb970c.jpg "Picturesque fishing boats at the Clan Jetties in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176175498bb970c.jpg)
+<!--more--> ![Picturesque fishing boats at the Clan Jetties in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176175498bb970c.jpg)
 
 Have you seen the floating village of ancient homes on stilts in the [UNESCO Heritage Site city of Georgetown](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Georgetown, Penang UNESCO"), Penang?  
   

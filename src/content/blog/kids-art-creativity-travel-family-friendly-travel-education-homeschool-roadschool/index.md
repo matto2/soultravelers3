@@ -13,7 +13,7 @@ tags:
   - "roadschool-play"
 ---
 
-[![IMG_1647](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87aaa45970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87aaa45970b.jpg) Kid's Art, Creativity & Travel!  
+![IMG_1647](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87aaa45970b.jpg) Kid's Art, Creativity & Travel!  
 February 9, 2009
 
 Family travel should always  
@@ -22,7 +22,7 @@ because that is how kids learn and
 
 <!--more-->
 
-[![kids art mom on mac](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87aaa9e970b.jpg "kids art mom on mac")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87aaa9e970b.jpg) 
+![kids art mom on mac](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87aaa9e970b.jpg) 
 
   
 Family travel should always include art, creativity and fun because that is how kids learn and express easily, plus it's effortless to add and makes great travel mementos! We always have a drawing pad & colored pencils in our daypack when we travel, as well as  a note pad and cameras.
@@ -41,7 +41,7 @@ Recently, on both [Soultravelers3](http://soultravelers3new.local/2010/01/seth-g
 
 Just like the art exercise in that video, but strictly spontaneously, Mozart decided to do a quick study of her mom and dad the other day. I particularly enjoy the details she puts in like her dad's slippers and glasses or my Berkies under the table or my messy work table and Mac. I  thought they would make wonderful mementos for remembering our last winter in Spain. I can imagined them framed some day and giving us a chuckle about these sweet memories.  
 
-[![kids drawing of dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87c6568970b.jpg "kids drawing of dad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87c6568970b.jpg)  
+![kids drawing of dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a87c6568970b.jpg)  
   
 
 What are your thoughts about travel, creativity and kids art? Do you find yourself feeling more free to be creative when you travel?  

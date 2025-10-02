@@ -19,13 +19,13 @@ tags:
   - "we-are-the-world"
 ---
 
-[![IMG_4795](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8afd7d81970d.jpg "IMG_4795")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8afd7d81970d.jpg) We Are The World  
+![IMG_4795](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8afd7d81970d.jpg) We Are The World  
   
 Michael Jackson is alive  
 and well in Barcelona  
 and our 10 year old  Mozart
 
-<!--more--> [![Michael Jackson concert in Barcelona with children around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8afd80cd970d.jpg "Michael Jackson concert in Barcelona with children around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8afd80cd970d.jpg)  
+<!--more--> ![Michael Jackson concert in Barcelona with children around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8afd80cd970d.jpg)  
   
   
 [Michael Jackson](http://en.wikipedia.org/wiki/Michael_Jackson "Michael Jackson") is alive and well in [Barcelona](http://soultravelers3new.local/2011/06/barcelona-arrival-police-omg.html "Barcelona") and our 10 year old [Mozart](http://www.youtube.com/watch?v=wn9rDTZj-m4 "Mozart") was thrilled that he gave her a kiss on the cheek when they invited all the kids on stage from many countries as they sang ["We are the World"](http://www.youtube.com/watch?v=ne7fPpxAnuM "we are the world"). If you look hard you can see her next to him in black, waving her arms and he is looking down at her..silver gloved hand and all, as he sang this beautiful song.  

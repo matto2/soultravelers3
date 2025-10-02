@@ -31,7 +31,7 @@ tags:
 ---
 
   
-[![MOZARTDEE_PHOTOBY_JEANNEDEE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3bd34b1200b.jpg "MOZARTDEE_PHOTOBY_JEANNEDEE")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3bd34b1200b.jpg)Mozart's Female Empowerment Song "Push You  
+![MOZARTDEE_PHOTOBY_JEANNEDEE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3bd34b1200b.jpg)Mozart's Female Empowerment Song "Push You  
 Harder" Acoustic Video with Stunning Vocals!  
   
 Teen recording artist Mozart is using her  
@@ -43,7 +43,7 @@ single "Push You Harder" to stand up
   
 
 <!--more-->[  
-](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad399237a200d-300x300-1.png)[![Mozart's Female Empowerment Song "Push You  Harder" Acoustic Video with Stunning Vocals! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad37775a9200c.png "Mozart's Female Empowerment Song "Push You  Harder" Acoustic Video with Stunning Vocals! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad37775a9200c.png)  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad399237a200d-300x300-1.png)![Mozart's Female Empowerment Song "Push You  Harder" Acoustic Video with Stunning Vocals! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad37775a9200c.png)  
 [Trilingual Teen](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Mozart Dee Trilingual Teen singer/songwriter") [recording artist Mozart](http://soultravelers3new.local/2017/05/16-year-old-mozart-dees-ted-talk-keynote-speech-in-ukteen-actress-songwriter-singer-mozart-dee-was-asked-to-do-a-ted-talk.html "mozart recording artist singer songwriter") is using her powerful voice and lyrics in her [new single "Push You Harder"](https://ventsmagazine.com/2018/10/12/mozart-smashes-the-patriarchy-in-female-empowerment-anthem-push-you-harder/ "Mozart song \"Push You Harder\"") to stand up to the patriarchy in a mesmerizing [ode to female empowerment](https://www.musicalheartbeat.com/blog/mozart "Mozart's \"Push You Harder\"") and the various waves of feminism and it couldn't come at a more culturally relevant time.  
   
 
@@ -63,10 +63,10 @@ Mozart premiered the pared down acoustic version of ["Push You Harder"](http://s
 
 “I wrote ‘Push You Harder’ a few days after I turned 17 last fall when there was a lot going on with the beginning of the #MeToo and #TimesUp movements,” Mozart tells _Celeb Secrets_. “I care a lot about these issues and want to do my part to make our world a better place for everyone, so I wanted to write a girl power anthem that had an important message but was also fun, edgy and uplifting.”   
 [  
-](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad373088e200c.png)[![Heavenly Reyna's Female Empowerment Song "Push You Harder" Acoustic Video with Stunning Vocals! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad39d9c33200d.png "Heavenly Reyna's Female Empowerment Song "Push You Harder" Acoustic Video with Stunning Vocals! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad39d9c33200d.png)  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad373088e200c.png)![Heavenly Reyna's Female Empowerment Song "Push You Harder" Acoustic Video with Stunning Vocals! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad39d9c33200d.png)  
 In the "Push You Harder" Official music video above you can see Mozart paying homage to Lady Justice, the Suffragettes, Amelia Earhart, Rosie the Riveter, Rosa Parks, Wonder Woman, Maya Angelou, Frida Kahlo, Ruth Bader Ginsburg, the Women’s March and even Mother earth.  She wrote/directed/edited/produced the video as well as writing and singing the song. She wanted to include some shocking images to match the lyrics like "Don't shoot me in my chest, and tell me to stop bleeding" but she also wanted it to be about transforming the pain into something positive.   
   
-[![Heavenly's Female Empowerment Song "Push You Harder" Acoustic Video with Stunning Vocals! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3777b6a200c.png "Heavenly's Female Empowerment Song "Push You Harder" Acoustic Video with Stunning Vocals! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3777b6a200c.png)  
+![Heavenly's Female Empowerment Song "Push You Harder" Acoustic Video with Stunning Vocals! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3777b6a200c.png)  
 **PERFORMANCES COMING SOON**  
   
 Mozart will be performing in Los Angeles at [Molly Malones](https://www.mollymalonesla.com "Mozart performing at Molly Malones in LA") this Friday on Nov 9th at 8:30 pm and December 22nd at the legendary [Coffee Gallery Backstage.  

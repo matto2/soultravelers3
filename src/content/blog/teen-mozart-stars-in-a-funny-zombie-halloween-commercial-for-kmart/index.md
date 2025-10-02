@@ -34,14 +34,14 @@ tags:
   - "zombie"
 ---
 
-[![IMG_9360](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8aa59bb970b.jpg "IMG_9360")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8aa59bb970b.jpg)Teen Mozart Stars in a Funny Zombie  
+![IMG_9360](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8aa59bb970b.jpg)Teen Mozart Stars in a Funny Zombie  
 Halloween Commercial for Kmart!   
   
 Triple threat talented teen actress  
 Mozart Dee has quickly become  
 "one to watch" in the entertainment 
 
-<!--more--> [![Triple threat teen Mozart Dee stars in Kmart Halloween commercial ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d23428bc970c.png "Triple threat teen Mozart Dee stars in Kmart Halloween commercial ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d23428bc970c.png)  
+<!--more--> ![Triple threat teen Mozart Dee stars in Kmart Halloween commercial ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d23428bc970c.png)  
   
   
 [Triple-threat](http://soultravelers3new.local/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html "Triple-threat talented teen Mozart Dee ") talented [teen actress Mozart Dee](http://soultravelers3new.local/2016/04/mozart-wins-best-actress-award-.html "triple threat teen actress Mozart Dee") has quickly become "one to watch" in the entertainment industry since moving to Los Angeles last fall and joining top talent agency CESD. She just got a leading role in a TV series, is [filming her latest music video](http://soultravelers3new.local/2016/06/mozart-dees-music-video-ignite-premieres-at-chinese-theatre-in-dances-with-films-festival-.html "Mozart Dee wins award for music video") for her original song "Fade Away", filming a documentary short about her unique [round-the-world  travel life](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "Mozart Dee most traveled child in the world ") and how that has affected her creativity, languages and education, asked to speak at a TedX UK on these topics in December, singing live gigs in Los Angeles, dancing in a flash mob and just did a lead in a funny [Halloween commercial for Kmart](https://www.youtube.com/watch?v=uoKDTKmMKNg "Mozart dee in funny halloween commercial for kmart")! If you can't see it after Halloween, you should be able to see [this commercial here](https://www.ispot.tv/ad/AWHn/kmart-stampede "kmart commercial ") or [here](https://www.instagram.com/p/BMKO1GVhQY1/?taken-by=muzicbymozart "Mozart Dee instagram muzicbyMozart").   
@@ -62,7 +62,7 @@ All of this activity and much more, (while maintaining a 4.0 in college which sh
   
 Our travel has slowed down some as we do all of this supporting her passions and explore North America as we can, in bits and pieces,  but Mozart's world schooling remains as strong as ever as we follow her lead and passions through the teen years.  The launch choices  are unlimited as she can explore career opportunities, college classes on her schedule, high school extra curriculum activities like [WriteGirlLA](http://www.writegirl.org "write girl LA"), [NCC](http://nationalchildrenschorus.com "national children's chorus") and [Groundlings](http://www.groundlings.com "the groundlings"), and volunteer without being bogged down by hours of homework like her peers. She mostly learns by doing. It is a journey in itself and we are all learning a lot, so I am happy she can share a bit of the behind-the-scenes with you all!  
   
-[![Teen Mozart Stars in a Funny Zombie Halloween Commercial for Kmart! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8aa8dc7970b.png "Teen Mozart Stars in a Funny Zombie Halloween Commercial for Kmart! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8aa8dc7970b.png)  
+![Teen Mozart Stars in a Funny Zombie Halloween Commercial for Kmart! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8aa8dc7970b.png)  
   
   
 Wishing everyone a fun Halloween and here are some more posts on this topic:  

@@ -16,7 +16,7 @@ tags:
   - "worlds-most-beautiful-churches"
 ---
 
- [![Most beautiful church in the world, Europe & Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a41ae970c.jpg "Most beautiful church in the world, Europe & Austria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a41ae970c.jpg) Most Beautiful Church in the World!  
+ ![Most beautiful church in the world, Europe & Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a41ae970c.jpg) Most Beautiful Church in the World!  
 September 21, 2010
 
 Wow! Talk about bling, I've never  
@@ -25,15 +25,15 @@ In the last four years of our family
 
 <!--more-->
 
-[![family travel prettiest chuch in Europe, Melk Abbey in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2347efe970b.jpg "family travel prettiest chuch in Europe, Melk Abbey in Austria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2347efe970b.jpg)
+![family travel prettiest chuch in Europe, Melk Abbey in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2347efe970b.jpg)
 
 Wow! Talk about bling, I've never seen so much gold leaf in one place. In the last five years of our [family world tour](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) and [location independent living](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html), we have seen tons of beautiful churches, but this one really stood out. No wonder it is a [UNESCO World Heritage Site.](http://whc.unesco.org/)
 
-[![family travel tips austria Melk abbey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f23480bd970b.jpg "family travel tips austria Melk abbey")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f23480bd970b.jpg) 
+![family travel tips austria Melk abbey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f23480bd970b.jpg) 
 
-[![Austria's Melk Abbey ceiling fresco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f23482ba970b.jpg "Austria's Melk Abbey ceiling fresco")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f23482ba970b.jpg) 
+![Austria's Melk Abbey ceiling fresco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f23482ba970b.jpg) 
 
-[![world's most beautiful church in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f234833b970b.jpg "world's most beautiful church in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f234833b970b.jpg)
+![world's most beautiful church in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f234833b970b.jpg)
 
 [![Stift Melk ( Melk Abbey) in Austria beautiful church inside ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348452970b.jpg "Stift Melk ( Melk Abbey) in Austria beautiful church inside ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348452970b-150x150-1.jpg)  
   
@@ -45,7 +45,7 @@ We pick the ornate  church at the [Stift Melk](http://soultravelers3new.local/2
 
 [![Stift Melk ( Melk Abbey) in Austria ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a45f0970c.jpg "Stift Melk ( Melk Abbey) in Austria ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a45f0970c-150x150-1.jpg)
 
-[![Baroque architecture Melk Abbey beautiful details and frescos](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a4657970c.jpg "Baroque architecture Melk Abbey beautiful details and frescos")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a4657970c.jpg)
+![Baroque architecture Melk Abbey beautiful details and frescos](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134855a4657970c.jpg)
 
 [![Stift Melk ( Melk Abbey) in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348706970b.jpg "Stift Melk ( Melk Abbey) in Austria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348706970b.jpg)  
   
@@ -55,7 +55,7 @@ Some call this abbey the world's finest example of Baroque architecture and it i
 
 [![Stift Melk ( Melk Abbey) in Austria fresco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348839970b.jpg "Stift Melk ( Melk Abbey) in Austria fresco")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348839970b-300x225.jpg) 
 
-[![Baroque architecture detail](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348987970b.jpg "Baroque architecture detail")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348987970b.jpg)
+![Baroque architecture detail](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348987970b.jpg)
 
 [![Beautiful Stair details Stift Melk ( Melk Abbey) in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348880970b.jpg "Beautiful Stair details Stift Melk ( Melk Abbey) in Austria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2348880970b-150x150.jpg)
 

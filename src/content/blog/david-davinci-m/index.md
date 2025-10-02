@@ -6,7 +6,7 @@ categories:
   - "italy"
 ---
 
-[![Img_5430](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5430.png "Img_5430")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.shared/image.html?/photos/uncategorized/2008/02/22/img_5430.png)
+![Img_5430](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.shared/image.html?/photos/uncategorized/2008/02/22/img_5430.png)
 
 David, DaVinci, Music & More  
 February 17, 2008
@@ -17,7 +17,7 @@ art-history’s greatest
 
 <!--more-->
 
-[![Img_5430_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5430_2.png "Img_5430_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5430_2.png)
+![Img_5430_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5430_2.png)
 
 For over 500 years people have been admiring Michelangelo’s magnificent David, one of art-history’s greatest masterpieces. The sheer size of it (5 meters plus or over 16 feet tall) overwhelms as well as its beauty. It is hard to believe that he did this at just 25 years old and out of one piece of marble. It takes your breath away and is humbling.
 
@@ -43,26 +43,26 @@ Here are free e-books if you would like to know more about Michelangelo & DaVinc
 This is a great site if you would like to learn more about Leonardo Da Vinci:  
 [http://www.mos.org/sln/Leonardo/](http://www.mos.org/sln/Leonardo/)
 
-[![Img_5428_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5428_2.png "Img_5428_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5428_2.png)
+![Img_5428_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5428_2.png)
 
-[![Img_5445](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5445.png "Img_5445")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5445.png)
+![Img_5445](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5445.png)
 
-[![Img_5437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5437.png "Img_5437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5437.png)
+![Img_5437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5437.png)
 
-[![Img_5443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5443.png "Img_5443")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5443.png)
+![Img_5443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5443.png)
 
-[![Img_5450](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5450.png "Img_5450")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5450.png)
+![Img_5450](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5450.png)
 
-[![Img_5451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5451.png "Img_5451")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5451.png)
+![Img_5451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5451.png)
 
-[![Img_5453](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5453.png "Img_5453")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5453.png)
+![Img_5453](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5453.png)
 
-[![Img_5459](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5459.png "Img_5459")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5459.png)
+![Img_5459](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5459.png)
 
-[![Img_5463](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5463.png "Img_5463")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5463.png)
+![Img_5463](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5463.png)
 
-[![Img_5470](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5470.png "Img_5470")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5470.png)
+![Img_5470](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5470.png)
 
-[![Img_5476](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5476.png "Img_5476")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5476.png)
+![Img_5476](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5476.png)
 
-[![Img_5485](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5485.png "Img_5485")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5485.png)
+![Img_5485](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5485.png)

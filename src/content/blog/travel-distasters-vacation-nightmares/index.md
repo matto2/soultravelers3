@@ -19,13 +19,13 @@ tags:
   - "worlds-worst-travel-disasters"
 ---
 
-[![IMG_5239](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153916c1303970b.jpg "IMG_5239")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153916c1303970b.jpg) Travel Distasters, Vacation Nightmares  
+![IMG_5239](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153916c1303970b.jpg) Travel Distasters, Vacation Nightmares  
   
 Oh my God! Can you  
 protect yourself from  
 every possible travel disaster?  
 
-<!--more--> [![travel disasters abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154353f63e7970c.jpg "travel disasters abroad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154353f63e7970c.jpg)  
+<!--more--> ![travel disasters abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154353f63e7970c.jpg)  
   
   
 Oh my God! Can you protect yourself from every possible travel disaster? Will these rare but catastrophic scenarios that most travelers so fear and worry about ruin [your holiday](http://soultravelers3new.local/2010/05/rock-of-gibraltar-family-holiday-trip-guide-family-trave-tips-information-from-costa-del-sol-spain.html "your holiday"), [vacation](http://soultravelers3new.local/2010/07/darling-dordogne-vacation-holiday-for-families-in-france.html "vacation dordogne") or [around the world trip](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "around the world trip")? More than 67 million Americans spent $1.3 billion on travel insurance in 2006 according to [Travel and Leisure's](http://www.travelandleisure.com/ "travel and leisure") post [World's Worst Travel Disasters](http://www.travelandleisure.com/articles/the-worlds-worst-travel-disasters "world's worst travel disasters").  
@@ -34,7 +34,7 @@ Police and fire truck sirens and helicopter tumultuous sounds ( just feet above 
   
 Yes, it was very frightening and high drama for a few hours, BUT as a [world traveling family](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "world family traveling ") (non-stop for 6 years to 42 countries on 5 continents on $23/day), I can tell you that most travel fears are false as 99.99999% of our travels are free of disasters. We quickly packed up to leave, but did not end up even evacuating and now like most disasters, it makes a great travel story that we will not forget.  
   
-[![helicopter travel disaster fire](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b5fd778970d.jpg "helicopter travel disaster fire")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b5fd778970d.jpg)  
+![helicopter travel disaster fire](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b5fd778970d.jpg)  
   
   
   

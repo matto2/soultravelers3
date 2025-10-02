@@ -21,13 +21,13 @@ tags:
   - "where-to-camp-in-graz"
 ---
 
-[![21437401](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c33ef4e970c.jpg "21437401")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c33ef4e970c.jpg)Austria Hidden Travel Gem
+![21437401](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c33ef4e970c.jpg)Austria Hidden Travel Gem
 
 When you go to Europe,  
 don't you want to discover  
 the hidden gems, that most miss?
 
-<!--more--> [![Hidden travel gem in Austria - history and one of Europe's largest pools](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3a9a2c5970d.jpg "Hidden travel gem in Austria - history and one of Europe's largest pools")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3a9a2c5970d.jpg)  
+<!--more--> ![Hidden travel gem in Austria - history and one of Europe's largest pools](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3a9a2c5970d.jpg)  
   
 When you go to Europe, don't you want to discover the hidden gems, that most people miss?  On our extended [road trips around Europe in our RV](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "road trips around Europe in  motorhome RV"), we've been all around Austria many times and love [Hallstatt](http://soultravelers3new.local/2007/10/heavenly-hallst.html "hallstatt travel"), [Vienna](http://soultravelers3new.local/2008/02/vienna-a-little.html "Vienna music"), [Salzburg](http://soultravelers3new.local/2007/10/sassy-salzburg.html "Salzburg travel") ( where we [celebrated Mozart's 7th birthday](http://soultravelers3new.local/2007/10/super-7-salzbur.html "birthday celebration Europe")), [Melk](http://soultravelers3new.local/2010/09/prettiest-church-in-the-world-melk-abbey-austria-european-golden-beauty-on-danube-in-wine-country-.html "Melk Abbey") and more.  
   

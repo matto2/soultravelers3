@@ -17,7 +17,7 @@ tags:
   - "perpetual-traveler"
 ---
 
-[![IMG_5118](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0e7d600970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0e7d600970b.jpg) Early Retirement & Perpetual Travel  
+![IMG_5118](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0e7d600970b.jpg) Early Retirement & Perpetual Travel  
 June 22,  2010
 
 Who doesn't dream about early  
@@ -26,7 +26,7 @@ and living luxuriously on little as you
 
 <!--more-->
 
-[![Early retirement and perpetual travel in Bordeaux, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484122d78970c.jpg "Early retirement and perpetual travel in Bordeaux, France")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484122d78970c.jpg)
+![Early retirement and perpetual travel in Bordeaux, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484122d78970c.jpg)
 
 Who doesn't dream about [retiring early](http://soultravelers3new.local/2008/06/how-to-do-exten.html) or radical early retirement and living luxuriously on little as you [travel the world slowly](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)? You can love your job and still want more freedom in your life or more time with loved ones [exploring the world.](http://soultravelers3new.local/2008/06/how-to-do-exten.html) Today it is easier than ever to retire early and be a [perpetual traveler.](http://en.wikipedia.org/wiki/Perpetual_traveler) It is also cheaper than living at home and we do it on just 23 dollars a day and have been to mostly expensive countries. That's DaVinci above,  doing a little work on our investments  online as we hang out at the pool amongst the world class vineyards in [Bordeaux, France near St. Emilion!](WanderingEds%20%20%20%20#traveltuesday%20-%20travel%20writers%20share%20top%20tips%20for%20#airlines%21%20thx,%20@irishfireside%20@soultravelers3%20@jcreaturetravel%20http://fb.me/AIm4sQ5T)
 

@@ -15,7 +15,7 @@ different than the Turkish word “gulet”.
 
 <!--more-->
 
-[![Img_0110](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0110.png "Img_0110")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0110.png)
+![Img_0110](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0110.png)
 
   
 
@@ -37,26 +37,26 @@ There was an inside table where I did a little writing for the blog and two larg
 
 Backgammon, which I haven’t seen since the seventies, seems to be very big in Turkey, so there was an on going “tournament” going on and we played a little scrabble. Snorkeling gear, fishing gear, inner tubes and the ever popular floating “noodles” were available and used frequently. Mozart loved hanging out with Natalie and Duane who were kind and interesting adult ship mates. The gulet and Blue Voyage is a perfect way to explore this vibrant coast!
 
-[![Img_0228](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0228.png "Img_0228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0228.png)
+![Img_0228](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0228.png)
 
-[![Img_0219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0219.png "Img_0219")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0219.png)
+![Img_0219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0219.png)
 
-[![Img_0480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0480.png "Img_0480")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0480.png)
+![Img_0480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0480.png)
 
-[![Img_0008](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0008.png "Img_0008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0008.png)
+![Img_0008](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0008.png)
 
-[![Img_0316](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0316.png "Img_0316")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0316.png)
+![Img_0316](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0316.png)
 
-[![Img_0258](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0258.png "Img_0258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0258.png)
+![Img_0258](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0258.png)
 
-[![Img_0020](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0020.png "Img_0020")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0020.png)
+![Img_0020](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0020.png)
 
-[![Img_0642](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0642.png "Img_0642")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0642.png)
+![Img_0642](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0642.png)
 
-[![Img_0400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0400.png "Img_0400")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0400.png)
+![Img_0400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0400.png)
 
-[![Img_0390](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0390.png "Img_0390")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0390.png)
+![Img_0390](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0390.png)
 
-[![Img_0812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0812.png "Img_0812")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0812.png)
+![Img_0812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0812.png)
 
-[![Img_0842](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0842.png "Img_0842")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0842.png)
+![Img_0842](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0842.png)

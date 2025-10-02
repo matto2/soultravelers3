@@ -17,13 +17,13 @@ tags:
   - "visiting-germany"
 ---
 
-[![IMG_2796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f65c85970b.jpg "IMG_2796")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f65c85970b.jpg)Travel with Kids - Germany  
+![IMG_2796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f65c85970b.jpg)Travel with Kids - Germany  
   
 Are you planning a family  
 trip to Germany with kids?  
 Most children will love
 
-<!--more--> [![IMG_2796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163050314e3970d.jpg "IMG_2796")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163050314e3970d.jpg)
+<!--more--> ![IMG_2796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163050314e3970d.jpg)
 
 Are you planning a family trip to Germany with kids? Most children will love the fairy tale atmosphere, beautiful countryside, lots of castles and palaces, medieval towns, fun museums, bike trails and more. The roads are great if you like to drive and the trains are said to be the most efficient in Euorpe, so getting around is easy.  
   

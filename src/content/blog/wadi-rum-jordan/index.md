@@ -17,13 +17,13 @@ tags:
   - "wadi-run-bedouins"
 ---
 
-[![IMG_2617](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743bcb1f8970d.jpg "IMG_2617")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743bcb1f8970d.jpg)Wadi Rum, Jordan
+![IMG_2617](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743bcb1f8970d.jpg)Wadi Rum, Jordan
 
 Of all the magnificent sights  
 that we saw on our journey to  
 Jordan, Wadi Rum was my
 
-<!--more--> [![Wadi Rum Bedouin family travel  fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e18878970b.jpg "Wadi Rum Bedouin family travel  fun!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e18878970b.jpg)  
+<!--more--> ![Wadi Rum Bedouin family travel  fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e18878970b.jpg)  
   
 Of all the [magnificent sights](http://soultravelers3new.local/2011/06/family-vacation-petra-wow-.html "magnificent Petra ") that we saw on our [journey to Jordan](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "trip to jordan tips"), Wadi Rum was my husband's favorite. Here you can get a sense of our joy as we took a tea break in the middle of no where, at a small Bedouin camp during our tour by jeep over desert sands.   
   

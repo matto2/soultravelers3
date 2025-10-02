@@ -14,7 +14,7 @@ tags:
   - "melk-vacation"
 ---
 
-[![IMG_9345](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344c9243970c.jpg "IMG_9345")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344c9243970c.jpg) Family Travel Austria: Castle Photo
+![IMG_9345](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344c9243970c.jpg) Family Travel Austria: Castle Photo
 
 The castle and wine area route on  
 the Danube between Melk and Krems  
@@ -22,7 +22,7 @@ is a wonderful family friendly
 
 <!--more-->
 
-[![Austria wine country castle in Melk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344c92de970c.jpg "Austria wine country castle in Melk")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344c92de970c.jpg)  
+![Austria wine country castle in Melk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344c92de970c.jpg)  
   
   
 

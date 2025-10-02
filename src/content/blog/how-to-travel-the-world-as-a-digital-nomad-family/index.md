@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fb43f1a970b-150x150-1.jpg)[![IMG_1583](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ebaf006970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ebaf006970c.jpg)
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fb43f1a970b-150x150-1.jpg)![IMG_1583](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ebaf006970c.jpg)
 
 How To Travel The World as a   
 Digital Nomad Family  
@@ -18,7 +18,7 @@ do our extended international travel as
 
 <!--more-->
 
-[![digital nomad world traveling family soultravelers3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fb43f1a970b.jpg "digital nomad world traveling family soultravelers3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fb43f1a970b.jpg)
+![digital nomad world traveling family soultravelers3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fb43f1a970b.jpg)
 
 Recently we were featured on  Dell's Digital Nomad site discussing how we do our extended international travel as a family, with a focus on meeting educational  and social needs. I am going to re-post it here for our readers who did not get to see it.
 

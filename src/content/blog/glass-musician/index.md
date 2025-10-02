@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Img_3865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/06/img_3865.png "Img_3865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_3865.png) Glass Musician  
+ ![Img_3865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_3865.png) Glass Musician  
 November 7, 2007
 
 A magical moment that we stumbled  

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1428](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1428.png "Img_1428")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1428.png) Adios Sweet Village!  
+ ![Img_1428](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1428.png) Adios Sweet Village!  
 March 24, 2007
 
 We have grown so fond of our little village  
@@ -15,7 +15,7 @@ good bye, but we know we will be back
 
 <!--more-->
 
-[![Img_1428_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1428_2.png "Img_1428_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1428_2.png)
+![Img_1428_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1428_2.png)
 
 We have grown so fond of our little village and all our friends here that is sad to say good bye, but we know we will be back in the fall and we are excited about our upcoming travels too.
 
@@ -47,18 +47,18 @@ We thought it was cute for a six year old, so DaVinci bought the rights to it be
 
 We think our little village is like a beautiful flower in Andalusia and we are glad that no bad guy has “picked it” or ruined it yet. It was the perfect home away from home and we will be glad to return to it in the fall. Transitioning and moving is tedious, hard work so we have our eyes on the future now and the thrill that comes with life on the road and we look forward to some rest and relaxation.
 
-[![Img_1444](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1444.png "Img_1444")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1444.png)
+![Img_1444](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1444.png)
 
-[![Img_1624](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1624.png "Img_1624")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1624.png)
+![Img_1624](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1624.png)
 
-[![Img_1451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1451.png "Img_1451")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1451.png)
+![Img_1451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1451.png)
 
-[![Img_1616](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1616.png "Img_1616")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1616.png)
+![Img_1616](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1616.png)
 
-[![Img_1626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1626.png "Img_1626")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1626.png)
+![Img_1626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1626.png)
 
-[![Img_1645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1645.png "Img_1645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1645.png)
+![Img_1645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1645.png)
 
-[![Img_1425](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1425.png "Img_1425")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1425.png)
+![Img_1425](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1425.png)
 
-[![Img_1653](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1653.png "Img_1653")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1653.png)
+![Img_1653](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1653.png)

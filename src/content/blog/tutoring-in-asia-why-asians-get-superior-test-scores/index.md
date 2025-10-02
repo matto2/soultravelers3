@@ -18,14 +18,14 @@ tags:
   - "why-asians-get-top-test-scores"
 ---
 
-[![IMG_6137_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6eb0b970c.jpg "IMG_6137_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6eb0b970c.jpg)Tutoring in Asia - Why  
+![IMG_6137_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6eb0b970c.jpg)Tutoring in Asia - Why  
 Asians get Superior Test Scores?  
   
 Asian parents spend billions  
 of dollars on private tutors  
 for their children according to
 
-<!--more--> [![private tutoring in Asia - key for top test scores or is it culture valuing education or language?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee46c3128970d.jpg "private tutoring in Asia - key for top test scores or is it culture valuing education or language?")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee46c3128970d.jpg)  
+<!--more--> ![private tutoring in Asia - key for top test scores or is it culture valuing education or language?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee46c3128970d.jpg)  
   
 [Asian parents spend billions of dollars on private tutors](http://www.nytimes.com/2012/08/06/world/asia/06iht-educlede06.html?pagewanted=all&_r=0 "Asian parents spend billions on private tutors to get better scores") for their children according to the New York Times and recent study. This pan-Asian phenomenon is called shadow education or "tuition" and popular with  both the poorer countries  as well as the wealthy.  
   
@@ -41,7 +41,7 @@ According to [TIMSS report](http://en.wikipedia.org/wiki/Trends_in_International
   
   
   
-[![Mandarin school in Asia - this is the lunch area where my daughter does her tutoring after school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ec42970c.jpg "Mandarin school in Asia - this is the lunch area where my daughter does her tutoring after school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ec42970c.jpg)  
+![Mandarin school in Asia - this is the lunch area where my daughter does her tutoring after school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ec42970c.jpg)  
 
    
 As we [travel the world as a family](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "travel the world as a family") these last 7 years while  using [travel to educate](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "using travel to educate") ( [homeschoolin](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "homeschooling and travel")g/[unschooling](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "unschooling")/[worldschooling](http://soultravelers3new.local/2012/10/curriculum-vitae-for-a-gifted-child-world-schooling.html "world schooling and travel")) as well as [dipping  into schools in Spain](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "dipping into local schools in Spain for language learning") and [Asia](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "american in mandarin school in Asia") for language immersion, we ponder these things and the pros and cons of an [Asian education](http://soultravelers3new.local/2012/10/american-student-chinese-view.html "Asian education").  
@@ -54,7 +54,7 @@ We've always done private tuturing to some extent with her for things like [muli
   
 Last semester we gave her extra tutoring in all subjects lke physics, biology, Algebra etc, just to keep up with the advanced Mandarin, but we soon found that just too much for our family. This semester we went back to just Mandarin tutoring 2 times a week after school and Saturday music classes in piano, violin, voice and digital composing ( subjects she enjoys).
 
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ec42970c.jpg)[![Doing after school tutoring with her Chinese teacher at her Mandarin shool in Asia - an American doing the Asian tuition route to raise scores and help learning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ed4c970c.jpg "Doing after school tutoring with her Chinese teacher at her Mandarin shool in Asia - an American doing the Asian tuition route to raise scores and help learning")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ed4c970c.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ec42970c.jpg)![Doing after school tutoring with her Chinese teacher at her Mandarin shool in Asia - an American doing the Asian tuition route to raise scores and help learning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf6ed4c970c.jpg)  
   
 I don't always agree with the ways the Chinese educate, but I do like the Asian focus about valuing education so much. I am glad Mozart has been able to experience the pros and cons of this system as that alone, teaches one much about the culture. It reminds me of the sign at her [Mandarin school](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "Mandarin school in Asia") that she sees every day " Be the best, beat the rest". We often have great discussions about the cultural differences and comparing the pros and cons of different ways of thinking and educating.  
   

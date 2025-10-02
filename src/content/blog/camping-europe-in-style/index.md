@@ -23,20 +23,20 @@ tags:
   - "rv-in-europe"
 ---
 
-[![IMG_9978](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0933ff5970c.jpg "IMG_9978")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0933ff5970c.jpg)Camping Europe in Style  
+![IMG_9978](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0933ff5970c.jpg)Camping Europe in Style  
   
 Ready to plan a camping trip  
 European style? Camping is the  
 cheapest way to visit Europe
 
 <!--more-->  
-[![Camping Europe in Style](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c709380c970b.png "Camping Europe in Style")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c709380c970b.png)  
+![Camping Europe in Style](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c709380c970b.png)  
   
 Ready to plan a [camping](http://soultravelers3new.local/2012/10/camping-europe-with-kids.html "Camping Europe with Kids") trip [European style](http://soultravelers3new.local/2011/09/international-kids-water-fun-european-style.html "European style")? Camping is the [cheapest way](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "How To Eat Healthy & Cheap Traveling Europe!") to [visit Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "5 Best European Family Vacations") and the most popular way for middle-class European families and r[etirees to travel](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "retire and travel the world"), but sadly, most [Americans](http://soultravelers3new.local/america/ "USA travel tips") miss this opportunity.  
   
 A motorhome is a especially useful and ideal for families, couples or small group of friends, as they are both transportation and accommodation and one of the best ways to meet other Europeans like the creative folks in the photo above that made us smile when we met them.  
   
-[![Ah, the joys of a European Road Trip!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d09342bd970c.png "Ah, the joys of a European Road Trip!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d09342bd970c.png)  
+![Ah, the joys of a European Road Trip!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d09342bd970c.png)  
   
   
 We've spent 6 years of [our world trip](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "RTW family world trip"), camping [all over Europe](http://soultravelers3new.local/2013/09/best-places-to-visit-in-europe.html "Best Places to Visit in Europe") with a small campervan RV and easily stayed on our $23/day per person budget even when the euro was high and dollar low.  We love it so much that we will definitely be back for more as soon as we can. ( We store it cheaply when not there).I hope these posts can inspire you to do the same some day!  

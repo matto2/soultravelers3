@@ -15,7 +15,7 @@ tags:
   - "travel-to-budapest"
 ---
 
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900983ea970b-300x267-1.jpg)[![IMG_0503](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a17fb2f970d.jpg "IMG_0503")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a17fb2f970d-150x150-1.jpg) Budapest Travel 
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900983ea970b-300x267-1.jpg)![IMG_0503](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a17fb2f970d-150x150-1.jpg) Budapest Travel 
 
 Budapest, the "city of baths"  
 is one of the prettiest cities  
@@ -23,7 +23,7 @@ in Europe. We were charmed
 
 <!--more-->[](http://soultravelers3new.local/2010/07/family-travel-budapest-hungary-family-friendly-fun-and-educational.html "Budapest travel")
 
-[![IMG_0503](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900983ea970b.jpg "IMG_0503")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900983ea970b.jpg)  
+![IMG_0503](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900983ea970b.jpg)  
   
 
 [Budapest](http://soultravelers3new.local/2010/07/family-travel-budapest-hungary-family-friendly-fun-and-educational.html "Budapest travel"), the "city of baths", is one of the most beautiful cities in Europe. We were charmed by this world class city at first glance, but knew we had to return to [Budapest](http://en.wikipedia.org/wiki/Budapest "budapest") when the weather was good to really take in it's full beauty.  

@@ -21,7 +21,7 @@ tags:
   - "travel-on-valentines-day"
 ---
 
-[![IMG_3893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116b5611970c.jpg "IMG_3893")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116b5611970c.jpg)Love and Romance  
+![IMG_3893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116b5611970c.jpg)Love and Romance  
 on the Road  
   
 Can you find love and romance  
@@ -29,7 +29,7 @@ on the road while traveling the
 world? Absolutely, if you happen
 
 <!--more-->  
-[![Love and Romance on the Road - adorable just married sign ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d76baaf970d.png "Love and Romance on the Road - adorable just married sign ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d76baaf970d.png)  
+![Love and Romance on the Road - adorable just married sign ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d76baaf970d.png)  
   
 Can you find [love and romance on the road](http://soultravelers3new.local/2011/08/happy-20th-wedding-anniversary.html "love and romance on the road") while [traveling the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family traveling the world")? Absolutely, if you happen to [travel the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "amazing family world tour") with your Beloveds. We sold our [dream home](http://soultravelers3new.local/2006/08/home-and-hous-1.html "dream home") in 2005 and have been traveling the world ever since and seem to find [love and romance](http://soultravelers3new.local/2007/09/romantic-night.html "love and romance and travel") where ever we go.  
   
@@ -41,7 +41,7 @@ We find [travel adventures](http://soultravelers3new.local/2009/09/-a-travelers-
   
 As we have many times on our [world trip](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "8 reasons for a family world trip"), we witnessed a beautiful wedding that day. and this cart was waiting to zp them off on the road of life. It reminded me again how brave we all are who commit to another person and how grateful I am for my marriage, life partner and the child we were blessed with.  
   
-[![Love and romance on the road of life - celebrating anniversaries and Valentine's Day with travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbbae15970b.png "Love and romance on the road of life - celebrating anniversaries and Valentine's Day with travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbbae15970b.png)  
+![Love and romance on the road of life - celebrating anniversaries and Valentine's Day with travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbbae15970b.png)  
   
   
 "Life's greatest happiness is to be convinced we are loved." -Victor Hugo  

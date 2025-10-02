@@ -15,7 +15,7 @@ have believed we would have such good luck
 
 <!--more-->
 
-[![Img_2988](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_2988.png "Img_2988")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2988.png)
+![Img_2988](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2988.png)
 
 We timed it so we were the first in the gate and had it all to ourselves for a little while on a cool brilliant morning in late July. I would never have believed we would have such good luck in high season as I have heard so much about the crowds. This highlight of any trip to Turkey, was truly awe inspiring and beyond what any camera or video can catch, although we did our best at trying!
 
@@ -33,26 +33,26 @@ The Library of Celsus is one of the best known and best preserved structures at 
 
 The Great Theater is also a dramatic extravaganza to behold. It took sixty years to dig out enough space from Mt. Pion to hold 25,000 spectators and the views are priceless. It was begun in Hellenistic times and was enlarged by emperors Claudius, Nero and Trajan. St Paul gave one of his famous sermons against pagan worship here. It still provides entertainment today and my only regret with Ephesus is that we missed a performance by a day.
 
-[![Img_2967](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_2967.png "Img_2967")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2967.png)
+![Img_2967](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2967.png)
 
-[![Img_2966](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_2966.png "Img_2966")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2966.png)
+![Img_2966](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2966.png)
 
-[![Img_2974](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_2974.png "Img_2974")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2974.png)
+![Img_2974](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2974.png)
 
-[![Img_2984](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_2984.png "Img_2984")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2984.png)
+![Img_2984](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2984.png)
 
-[![Img_3004](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3004.png "Img_3004")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3004.png)
+![Img_3004](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3004.png)
 
-[![Img_3050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3050.png "Img_3050")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3050.png)
+![Img_3050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3050.png)
 
-[![Img_3052](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3052.png "Img_3052")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3052.png)
+![Img_3052](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3052.png)
 
-[![Img_3056](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3056.png "Img_3056")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3056.png)
+![Img_3056](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3056.png)
 
-[![Img_3069](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3069.png "Img_3069")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3069.png)
+![Img_3069](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3069.png)
 
-[![Img_3034](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3034.png "Img_3034")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3034.png)
+![Img_3034](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3034.png)
 
-[![Img_3035](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3035.png "Img_3035")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3035.png)
+![Img_3035](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3035.png)
 
-[![Img_2975](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_2975.png "Img_2975")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2975.png)
+![Img_2975](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_2975.png)

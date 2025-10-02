@@ -15,14 +15,14 @@ tags:
   - "wrestling-with-alligators"
 ---
 
-[![IMG_6724](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763bd34d3970b.jpg "IMG_6724")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763bd34d3970b.jpg)OMG! Wrestling Alligators  
+![IMG_6724](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763bd34d3970b.jpg)OMG! Wrestling Alligators  
 in the Everglades!
 
 Alligator wrestling is  
 an extreme sport, to  
 say the least. I must
 
-<!--more--> [![wrestling alligators in the Everglades](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8bddcfa970c.jpg "wrestling alligators in the Everglades")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8bddcfa970c.jpg)  
+<!--more--> ![wrestling alligators in the Everglades](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8bddcfa970c.jpg)  
   
 [Alligator wrestling is an extreme sport](http://www.telegraph.co.uk/news/worldnews/northamerica/usa/7445009/Alligator-wrestling-puts-new-bite-into-extreme-sports.html "alligator wrestling") to say the least. I must admit this was scary to watch but also fascinating. For native American tribes like the Seminole, learning how to  capture and handle alligators was just part of normal life in the Everglades.  
   

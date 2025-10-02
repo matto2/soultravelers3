@@ -17,7 +17,7 @@ tags:
   - "road-trip"
 ---
 
-[![IMG_3939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8924910970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8924910970b.jpg) 10 Best Tips For Family Friendly Travel!  
+![IMG_3939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8924910970b.jpg) 10 Best Tips For Family Friendly Travel!  
 February 12, 2010
 
 Can international family travel or  
@@ -26,7 +26,7 @@ friendly travel and even easy or cheap? 
 
 <!--more-->
 
-[![airport travel young girl child with roll bag & violin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8924a06970b.jpg "airport travel young girl child with roll bag & violin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8924a06970b.jpg)  
+![airport travel young girl child with roll bag & violin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8924a06970b.jpg)  
 
 Can [international family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) or [long term travel](http://soultravelers3new.local/2008/06/how-to-do-exten.html) really be [family friendly travel](http://soultravelers3new.local/2008/05/top-10-family-t.html) and even easy or [cheap](http://soultravelers3new.local/2008/09/how-to-eat-heal.html)? We [say yes](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html) of course, because we have been [traveling the world as a family](http://soultravelers3new.local/2008/12/where-in-heaven.html#more) since 2006 and [quite luxuriously](http://soultravelers3new.local/2009/03/heavenly-month-in-santorini-greece.html#more) on just 23 dollars a day per person!
 
@@ -59,7 +59,7 @@ It's easy to hand wash with your feet when you take a shower, using the shampoo.
 
 We’ve gotten TONS of use out of a French black sweater & back vest and almost all my daughter’s clothes are in pink &/or black. Teach them the tie the sweater around your waste trick early as a great way to get through hot airports with it handy if one gets chilly while waiting. Note DaVinci modeling that with his jacket in the photo below.
 
-[![IMG_3953](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8933962970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8933962970b.jpg)  
+![IMG_3953](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8933962970b.jpg)  
 
 **5) Educate them and talk to them about the trip, rules, boundaries LOTS, BEFORE going, so they know what to expect.**
 
@@ -83,7 +83,7 @@ Do sleep routines as usual ..modified as needed. Changing into pajamas signals t
 
 That's what we are doing in the pictures above when we left hot Spain to go to cold New York and Denver/Utah with a stop in warm California, then back to cold NYC before heading back to Paris and Spain on our two month trip to see family at home.
 
-[![Baby standing at 5 months old, clapping in Musictogether class](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287795d903970c.jpg "Baby standing at 5 months old, clapping in Musictogether class")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287795d903970c.jpg)  
+![Baby standing at 5 months old, clapping in Musictogether class](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287795d903970c.jpg)  
 _Mozart standing up totally on her own initiation at 5 months old_, _clapping to the music_
 
 **9) As soon as they can walk, let your kids walk as much as possible.  

@@ -19,13 +19,13 @@ tags:
   - "what-to-juice"
 ---
 
-[![IMG_3949](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761635bfae970c.jpg "IMG_3949")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761635bfae970c.jpg)Juicing and Health
+![IMG_3949](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761635bfae970c.jpg)Juicing and Health
 
 Do you use juicing as one  
 of your organic healthy ways  
 to improve your well being?
 
-<!--more--> [![healthy juice from greens, beets and carrots etc](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bc4d1970d.jpg "healthy juice from greens, beets and carrots etc")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bc4d1970d.jpg)  
+<!--more--> ![healthy juice from greens, beets and carrots etc](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bc4d1970d.jpg)  
   
 Do you use juicing as one of your [organic healthy ways](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic healthy ways") to improve your well being? As I have been exploring [heatlh and travel](http://soultravelers3new.local/health-and-travel/ "health and travel") to find the best way to [keep my family healthy](http://soultravelers3new.local/2012/10/traditional-chinese-medicine-in-asia.html "keep my family healthy"), I've been trying out juicing and it's many benefits.  
   
@@ -33,7 +33,7 @@ I never thought making fresh green juices daily would be part of my [travel heal
   
 Sometimes where life leads is suprising and due to my [health journey](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "health journey") I have discovered many new things to add since I wrote [How to Eat Healthy and Cheap Traveling Europe](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "how to eat healthy and cheap traveling Europe"). I've had friends who have long been huge proponents of juicing, but it always seemed way too much trouble to me. Some of the health professionals I most liked in my reading ( Dr. Brasco M.D. , Dr. Campbell-Mcbride M.D. MMedSci, Rubin, Vonderplantz etc.) all suggested juicing for health building.  
   
-[![beautiful chopped vegetables ready to juice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4349162970d.jpg "beautiful chopped vegetables ready to juice")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4349162970d.jpg)  
+![beautiful chopped vegetables ready to juice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4349162970d.jpg)  
   
   
 It was easy to buy fresh green organic juices when we were in [California](http://soultravelers3new.local/2012/01/california-beach-new-years-day.html "California"), but we decided to buy a juicer [here in Asia](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "our apartment in Penang") to explore this option more deeply and I may get a stick blender for smoothies and juices when we are more on the move.  

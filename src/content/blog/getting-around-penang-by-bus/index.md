@@ -17,13 +17,13 @@ tags:
   - "transportation-penang"
 ---
 
-[![IMG_5819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c73b409970c.jpg "IMG_5819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c73b409970c.jpg)Getting Around Penang by Bus
+![IMG_5819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c73b409970c.jpg)Getting Around Penang by Bus
 
 What is the easiest way to  
 get around Penang, Malaysia?  
 The cheap, clean, new air conditioned
 
-<!--more--> [![pros, cons and tips for taking the bus in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c328dfb60970b.jpg "pros, cons and tips for taking the bus in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c328dfb60970b.jpg)  
+<!--more--> ![pros, cons and tips for taking the bus in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c328dfb60970b.jpg)  
   
 What is the easiest way to get around [Penang](http://soultravelers3new.local/2012/04/penang-apartment-or-condo-rental-plenty-of-choices.html "Penang apartment rental"), [Malaysia](http://soultravelers3new.local/2012/07/typical-malaysia-local-style.html "Malaysia travel")? The cheap, clean, new air conditioned buses ( many with free wifi) is the most affordable way to navigate [Penang](http://soultravelers3new.local/2012/05/penang-at-night.html "Penang travel"), which is quite a spread out area between [Georgetow](http://soultravelers3new.local/2012/08/little-india-in-georgetown-penang.html "Georgetown penang travel")n and [Batu Ferringhi](http://soultravelers3new.local/2012/03/how-to-find-a-rental-apartment-in-penang-part-1.html "Batu Ferringhi travel") ( most popular areas with tourists and locals ) and all around the island.  
   
@@ -31,16 +31,16 @@ We tend to like to do [slow travel](http://soultravelers3new.local/2011/11/slow-
   
 Some motorbike drivers are particularly unaware of pedestrians and cars, often choosing to do [crazy things](http://www.nst.com.my/streets/northern/adapting-to-the-island-s-quirky-ways-1.42494 "crazy driving penang") like going the wrong way on a street or carrying whole families sans helmets  or piled high with stuff, thus very serious injuries are common to see. A [car running over a foot](http://soultravelers3new.local/2011/04/india-tourist-visa-nightmare-problems-from-se-asia/comments/page/2/ "car run over food visa India story") or a neighbor with her teeth knocked out by a moto accident is every day life here.  
   
-[![view from bus window in rainy downpour in Penang /no side walks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4540849970d.jpg "view from bus window in rainy downpour in Penang /no side walks")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4540849970d.jpg)  
+![view from bus window in rainy downpour in Penang /no side walks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4540849970d.jpg)  
   
 [Penang](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "Penang travel tips") is a former British Colony, so driving is on the "wrong" side of the road, thus more challenging for the American or European visitor not use to that, plus added risk to the perpetually [crazy traffic](http://aliran.com/archives/monthly/2001/10g.html "crazy traffic penang, malaysia"). Almost every time on the road, we witness accidents or near accidents.  
   
-[![endless congestion in Penang- accidents are 4x the national average](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b03e4e970b.jpg "endless congestion in Penang- accidents are 4x the national average")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b03e4e970b.jpg)  
+![endless congestion in Penang- accidents are 4x the national average](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b03e4e970b.jpg)  
   
   
 A bus ride in [Penang](http://soultravelers3new.local/2012/09/clan-jetties-floating-villages-in-penang.html "Penang tourism") is ALWAYS an adventure. This is our second stay here,( 7 months last year, 9 months this year) so we've gained lots of experience using the buses. We're usually the only Caucasians on the bus, but not always, sometimes we run into a few others ( usually Australian or Russian who like to vacation here). Since we live in a building and area with almost all locals and our daughter goes to a [local Chinese school](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "local chinese school"), we use the buses much more than [typical tourists](http://www.lonelyplanet.com/thorntree/thread.jspa?threadID=2209972 "typical tourist Penang").  
   
-[![Penang traffic- "Penang had 321 cars per 1000 persons compared to 96 for Singapore and 49 for Hong Kong. "](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b02dc5970b.jpg "Penang traffic- "Penang had 321 cars per 1000 persons compared to 96 for Singapore and 49 for Hong Kong. "")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b02dc5970b.jpg)  
+![Penang traffic- "Penang had 321 cars per 1000 persons compared to 96 for Singapore and 49 for Hong Kong. "](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b02dc5970b.jpg)  
   
   
 **GOOD NEWS WITH BUSES**  
@@ -53,7 +53,7 @@ A bus ride in [Penang](http://soultravelers3new.local/2012/09/clan-jetties-float
   
 \* There is a FREE shuttle bus ( Central Area Transit CAT loop) every twenty minutes for the [UNESCO](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "UNESCO Georgetown Penang photos") central area. Handy for tourists, although we usually like to walk in this unique, historical area.  
   
-[![Bad traffic in Penang- I've seen 3 bad motor cycle accidents just from my terrace ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b034ce970b.jpg "Bad traffic in Penang- I've seen 3 bad motor cycle accidents just from my terrace ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b034ce970b.jpg)  
+![Bad traffic in Penang- I've seen 3 bad motor cycle accidents just from my terrace ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b034ce970b.jpg)  
   
   
 **BAD NEWS WITH BUSES**  
@@ -78,7 +78,7 @@ A bus ride in [Penang](http://soultravelers3new.local/2012/09/clan-jetties-float
   
 \* One often has to take more than one bus and the large central KOMTAR bus terminal is usually involved..not the prettiest or cleanest place in Penang, but typical dreary bus depot in Asia.  
   
-[![Hard on school kids to stand on crowded, lurching buses, but very hard on elderly who have to stand ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b03b3f970b.jpg "Hard on school kids to stand on crowded, lurching buses, but very hard on elderly who have to stand ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b03b3f970b.jpg)  
+![Hard on school kids to stand on crowded, lurching buses, but very hard on elderly who have to stand ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32b03b3f970b.jpg)  
   
   
 **WORST PARTS OF BUSES IN PENANG**  
@@ -89,9 +89,9 @@ A bus ride in [Penang](http://soultravelers3new.local/2012/09/clan-jetties-float
   
 \* The very **WORST** part of the buses is getting to them. There are no real side walks or cross walks  in most of Gerogetown and Penang, so getting to a bus stop is usually quite the challenging guantlet that can involve dodging  [large rats](http://soultravelers3new.local/2012/07/big-rats-in-asia.html "large rats Asia"), crossing very busy 4 or 6 lane roads on your own hoping the wild traffic will not run you over, crossing very polluted,smelly streams, evading mud puddles, low hanging tree branches, bugs and wobbly cement and getting much closer to the very loud, sensory overloading traffic than one wants to. Maybe doable for a young backpacker on a " visa run" or tourist holiday short visit, but much harder on seniors and elderly and dangerous for the school kids.  
   
-[![urban glut Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdedbdf970c.jpg "urban glut Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdedbdf970c.jpg)  
+![urban glut Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdedbdf970c.jpg)  
   
-[![dead rat taken on one of the rare sidewalks in Penang by my 11 year old daughter on way to bus](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ce0312c970c.jpg "dead rat taken on one of the rare sidewalks in Penang by my 11 year old daughter on way to bus")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ce0312c970c.jpg)  
+![dead rat taken on one of the rare sidewalks in Penang by my 11 year old daughter on way to bus](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ce0312c970c.jpg)  
   
   
   
@@ -104,4 +104,4 @@ But for long term, the traffic, urban glut and outlandishly bad pedestrian optio
   
   
   
-[![food stands every where in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4540b3a970d.jpg "food stands every where in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4540b3a970d.jpg)
+![food stands every where in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4540b3a970d.jpg)

@@ -15,7 +15,7 @@ Aphrodite is the beautiful Goddess of love in the Greek myths
 
 <!--more-->
 
-[![Img_3303](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3303.png "Img_3303")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3303.png)
+![Img_3303](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3303.png)
 
   
 
@@ -45,26 +45,26 @@ There was no one in the museum when we were there, so we felt a lot of freedom t
 
 The grounds were filled with interesting sarcophaguses as one entered and exited and it was hard to leave this captivating site. It is too bad they did not have a place to eat lunch there as that was the only weak point. We stayed longer than we meant to but I felt it was okay as we did not want to get to Pammukale before the tour busses left for the day. It is just an hour and a half away.
 
-[![Img_3272](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3272.png "Img_3272")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3272.png)
+![Img_3272](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3272.png)
 
-[![Img_3273](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3273.png "Img_3273")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3273.png)
+![Img_3273](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3273.png)
 
-[![Img_3288](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3288.png "Img_3288")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3288.png)
+![Img_3288](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3288.png)
 
-[![Img_3289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3289.png "Img_3289")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3289.png)
+![Img_3289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3289.png)
 
-[![Img_3291](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3291.png "Img_3291")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3291.png)
+![Img_3291](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3291.png)
 
-[![Img_3296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3296.png "Img_3296")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3296.png)
+![Img_3296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3296.png)
 
-[![Img_3311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3311.png "Img_3311")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3311.png)
+![Img_3311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3311.png)
 
-[![Img_3369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3369.png "Img_3369")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3369.png)
+![Img_3369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3369.png)
 
-[![Img_3347](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3347.png "Img_3347")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3347.png)
+![Img_3347](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3347.png)
 
-[![Img_3432](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3432.png "Img_3432")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3432.png)
+![Img_3432](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3432.png)
 
-[![Img_3403](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3403.png "Img_3403")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3403.png)
+![Img_3403](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3403.png)
 
-[![Img_3409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/29/img_3409.png "Img_3409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3409.png)
+![Img_3409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/29/img_3409.png)

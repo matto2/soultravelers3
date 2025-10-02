@@ -15,7 +15,7 @@ tags:
   - "rothernberg-ob-der-taube"
 ---
 
- [![IMG_1436](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f180272f970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f180272f970b.jpg) Family Travel Germany  
+ ![IMG_1436](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f180272f970b.jpg) Family Travel Germany  
 July 13,  2010
 
 Sometimes family travel is just  
@@ -24,7 +24,7 @@ details as one wanders around a new
 
 <!--more-->
 
-[![family travel Germany on Romantic road in Rothernberg ob der Tauber by Christmas markets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f1802883970b.jpg "family travel Germany on Romantic road in Rothernberg ob der Tauber by Christmas markets")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f1802883970b.jpg)
+![family travel Germany on Romantic road in Rothernberg ob der Tauber by Christmas markets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f1802883970b.jpg)
 
 Sometimes [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) is just enjoying the little unique architectural details as one wanders around a new town. Europe has many darling, picturesque small towns and [Rothernberg ob der Tauber](http://soultravelers3new.local/2009/01/family-travel-photorothenberg-germany.html) on the [Romantic Road](http://soultravelers3new.local/2009/05/family-travel-photo-germany-romantic-road.html) in [Germany](http://en.wikipedia.org/wiki/Romantic_Road) is definitely one of them. Everywhere you look, there is an enchanted picture to take. A photography delight for every photo bug!
 

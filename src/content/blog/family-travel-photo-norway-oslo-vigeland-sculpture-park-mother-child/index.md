@@ -7,7 +7,7 @@ categories:
   - "norway"
 ---
 
-[![IMG_8339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5250446970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5250446970c.jpg) Family Travel Photo - Norway  
+![IMG_8339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5250446970c.jpg) Family Travel Photo - Norway  
 September 15,  2009
 
 Nothing beats parks filled with great  
@@ -16,7 +16,7 @@ travel! Our eight year old, loved
 
 <!--more-->
 
-[![IMG_8339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5250476970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5250476970c.jpg)
+![IMG_8339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5250476970c.jpg)
 
 Nothing beats parks filled with great art for easy education during family travel! Our eight year old, loved this statue and park. It is hard not to be moved by this joyful sculpture of mother and child in [Oslo's](http://www.visitoslo.com/) famous [Vigeland Park](http://en.wikipedia.org/wiki/Vigeland_Sculpture_Park) which is filled with over 200 statues by one artist with beautiful flowers, greenery and fountains all around. [Gustave Vigeland](http://en.wikipedia.org/wiki/Gustav_Vigeland) is the creator and the best known sculptor in Norway.
 

@@ -17,7 +17,7 @@ tags:
   - "traditional-white-village"
 ---
 
- [![GetAttachment-4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347fd433a0970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347fd433a0970c.jpg) Family Travel Photo - Spain  
+ ![GetAttachment-4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347fd433a0970c.jpg) Family Travel Photo - Spain  
 April 12, 2010
 
 Doing around the world family travel,  
@@ -26,7 +26,7 @@ see or experience next. Today in
 
 <!--more-->
 
-[![GetAttachment-4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133eca444c0970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133eca444c0970b.jpg)
+![GetAttachment-4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133eca444c0970b.jpg)
 
 Doing [around the world family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html), you just never know what you will see or experience next. Today [in Spain,](http://soultravelers3new.local/spain/) I was working on [my book about our travel story](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html), typing away on my macbook,  when I looked up and saw this scene. [Oxe](http://en.wikipedia.org/wiki/Ox)n pulling a car is just not your every day scene in America, but very much part of our [exotic lifestyle today.](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html)
 

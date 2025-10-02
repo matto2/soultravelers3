@@ -13,7 +13,7 @@ February 7, 2008
 
 <!--more-->
 
-[![Img_4596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4596.png "Img_4596")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4596.png)
+![Img_4596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4596.png)
 
 “O Romeo, Romeo, wherefore art thou Romeo?” Mozart read Shakespeare’s Romeo and Juliet as we drove from Graz, Austria, through Slovenia once again, towards Verona, Italy. We had watched Zeffirelli’s beautiful film version the night before. Yes, Verona is the city of the most famous lovers in history, but is also a UNESCO World heritage site and  some say, one of the prettiest towns in Italy. We had not necessarily planned to go there, but it looked like a good choice when we had to abruptly change our plans due to my hospital visit and recovery.
 
@@ -32,26 +32,26 @@ as we roamed, but could never find them anywhere. When the great outdoors is you
 
   
 
-[![Img_4590](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4590.png "Img_4590")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4590.png)
+![Img_4590](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4590.png)
 
-[![Img_4607_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4607_2.png "Img_4607_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4607_2.png)
+![Img_4607_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4607_2.png)
 
-[![Img_4626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4626.png "Img_4626")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4626.png)
+![Img_4626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4626.png)
 
-[![Img_4620](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4620.png "Img_4620")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4620.png)
+![Img_4620](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4620.png)
 
-[![Img_4638](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4638.png "Img_4638")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4638.png)
+![Img_4638](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4638.png)
 
-[![Img_4651](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4651.png "Img_4651")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4651.png)
+![Img_4651](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4651.png)
 
-[![Img_4661](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4661.png "Img_4661")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4661.png)
+![Img_4661](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4661.png)
 
-[![Img_4698](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4698.png "Img_4698")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4698.png)
+![Img_4698](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4698.png)
 
-[![Img_4705](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4705.png "Img_4705")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4705.png)
+![Img_4705](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4705.png)
 
-[![Img_4721](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4721.png "Img_4721")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4721.png)
+![Img_4721](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4721.png)
 
-[![Img_4753](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4753.png "Img_4753")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4753.png)
+![Img_4753](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4753.png)
 
-[![Img_4823](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4823.png "Img_4823")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4823.png)
+![Img_4823](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4823.png)

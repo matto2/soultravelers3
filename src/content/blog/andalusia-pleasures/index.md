@@ -16,13 +16,13 @@ tags:
   - "why-go-to-andalusia"
 ---
 
-[![IMG_4053](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539051ba20970b.jpg "IMG_4053")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539051ba20970b.jpg) Andalucia Pleasures
+![IMG_4053](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539051ba20970b.jpg) Andalucia Pleasures
 
 You might have guessed by  
 now that we have fallen  
 madly in love with Andalusia's
 
-<!--more--> [![Andalusia white house, green hills, blue sky memories](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539051bbb0970b.jpg "Andalusia white house, green hills, blue sky memories")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539051bbb0970b.jpg)  
+<!--more--> ![Andalusia white house, green hills, blue sky memories](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539051bbb0970b.jpg)  
   
   
 You might have guessed by now that we have fallen madly in love with [Andalusia's many charms](http://soultravelers3new.local/2007/03/andalusian-hors.html "Andalusia horses"). It's been wonderful to spend time here over 5 years. When we returned to Spain this May we realized how much we missed it. This photo was taken at our campsite near [our favorite white village](http://soultravelers3new.local/2006/11/our-village.html "Our favorite white village in Spain") and I like it for the memories in stirs in me despite the pretty blue flowers being out of focus.  

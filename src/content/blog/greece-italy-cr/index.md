@@ -17,7 +17,7 @@ twelve hours. There is no easy way to get from Greece to Croatia
 
 <!--more-->
 
-[![Img_5898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5898.png "Img_5898")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5898.png)
+![Img_5898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5898.png)
 
 We took back to back ferries from Patras, Greece to Bari, Italy, then onto Dubrovnic, Croatia from Bari, after waiting there almost twelve hours. There is no easy way to get from Greece to Croatia with a vehicle and we thought this was the best bet for us. To add to our challenge this was high season when everyone in  Europe takes their vacation, so the ferries, especially to Dubrovnic from Italy,  book up quickly. There are no direct ferries from Greece to Croatia, but do not ask me why, as it would seem a good idea for summer travelers.
 
@@ -41,26 +41,26 @@ Since we arrived so early, we lucked out with a good spot right next to the wate
 
 I was looking forward to checking out our next ferry which was the Croatian line Jadrolinija, which I had heard good things about. Well, the Marco Polo ferry that we took (Marco Polo was born in Croatia) was almost as old and as bad as the Greek G.A. ferries, so that was a disappointment. Our cabin was the smallest one we have had so far. This ferry was only a ten hour one where we mostly would just sleep and the only game in town, so we made the most of it. Our first look at Dubrovnic, Croatia the next morning was out our little ferry window, but it looked promising, so went outside to see more!
 
-[![Img_5846](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5846.png "Img_5846")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5846.png)
+![Img_5846](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5846.png)
 
-[![Img_5849](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5849.png "Img_5849")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5849.png)
+![Img_5849](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5849.png)
 
-[![Img_5851](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5851.png "Img_5851")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5851.png)
+![Img_5851](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5851.png)
 
-[![Img_5870](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5870.png "Img_5870")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5870.png)
+![Img_5870](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5870.png)
 
-[![Img_5865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5865.png "Img_5865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5865.png)
+![Img_5865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5865.png)
 
-[![Img_5867](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5867.png "Img_5867")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5867.png)
+![Img_5867](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5867.png)
 
-[![Img_5879](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5879.png "Img_5879")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5879.png)
+![Img_5879](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5879.png)
 
-[![Img_5863](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5863.png "Img_5863")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5863.png)
+![Img_5863](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5863.png)
 
-[![Img_5873](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5873.png "Img_5873")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5873.png)
+![Img_5873](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5873.png)
 
-[![Img_5933](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5933.png "Img_5933")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5933.png)
+![Img_5933](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5933.png)
 
-[![Img_5932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5932.png "Img_5932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5932.png)
+![Img_5932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5932.png)
 
-[![Img_5924](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5924.png "Img_5924")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5924.png)
+![Img_5924](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5924.png)

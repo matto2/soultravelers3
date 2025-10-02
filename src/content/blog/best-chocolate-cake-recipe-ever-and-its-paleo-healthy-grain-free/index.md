@@ -23,19 +23,19 @@ tags:
   - "paleo-chocolate-frosting-recipe"
 ---
 
-[![IMG_8814](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003caaee970c.jpg "IMG_8814")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003caaee970c.jpg)Best Chocolate Cake Recipe EVER  
+![IMG_8814](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003caaee970c.jpg)Best Chocolate Cake Recipe EVER  
 and it's Paleo Healthy Grain and Gluten Free  
   
 This is truly the best chocolate  
 cake in the world, plus it is healthy  
 gluten-free, grain-free and easy!
 
-<!--more--> [![YUM! Mouth-watering delicious healthy chocolate cake - grain-free, gluten-free, paleo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cabbb970c.jpg "YUM! Mouth-watering delicious healthy chocolate cake - grain-free, gluten-free, paleo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cabbb970c.jpg)  
+<!--more--> ![YUM! Mouth-watering delicious healthy chocolate cake - grain-free, gluten-free, paleo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cabbb970c.jpg)  
   
   
 This is truly the best chocolate cake in the world, plus it is healthy, gluten-free, grain-free and easy! Who could ask for anything more? Maybe a little bit of homemade [healthy chocolate ice cream](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html "healthy chocolate ice cream recipe") to go with it and some banana? Yum! It is so moist and rich it is a delight to luxuriously devour totally on it's own too.  
   
-[![delicious, easy  Chocolate cake -Paleo Healthy Grain and Gluten Free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cb37e970c.jpg "delicious, easy  Chocolate cake -Paleo Healthy Grain and Gluten Free")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cb37e970c.jpg)  
+![delicious, easy  Chocolate cake -Paleo Healthy Grain and Gluten Free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cb37e970c.jpg)  
   
 **CAN IT BE HEALTHY AND DELICIOUS?**  
   
@@ -47,20 +47,20 @@ Out of all the delicious healthy recipes we have discovered, like [fermented sal
   
 The only downside is the to-die-for frosting melts quite easily in [tropical](http://soultravelers3new.local/2012/12/tropical-winter-vacation-from-freezing-to-flipflops.html "tropical vacation") heat, but is fine as long as you keep it refrigerated and the cake is rich so lasts a long time refridgerated and stays delectable.  
   
-[![raw cacao for chocolate cake recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003d2f4d970d.jpg "raw cacao for chocolate cake recipe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003d2f4d970d.jpg)  
+![raw cacao for chocolate cake recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003d2f4d970d.jpg)  
   
 **WHAT ABOUT FRUCTOSE AND PHYTIC ACID?**  
   
 This is too sweet and indulgent for every day, as it has more fructose than we normally eat and cacao or chocolate is higher in phytic acid than we usually eat on our [curing gum disease and cavities naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "curing cavities and gum disease naturally diet") diet.  Cacao (or chocolate) are one of those controversial ingredients  that some say are super healthy and others say not, but for a special occasion, this is the perfect, decadent splurge. It is even tame enough for my super sensitive tummy in small portions.  
   
-[![best, easy, healthy chocolate frosting recipe - Paleo, Grain-free and Gluten Free ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b004b0fcd970b.jpg "best, easy, healthy chocolate frosting recipe - Paleo, Grain-free and Gluten Free ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b004b0fcd970b.jpg)  
+![best, easy, healthy chocolate frosting recipe - Paleo, Grain-free and Gluten Free ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b004b0fcd970b.jpg)  
   
   
 **FAST CHOCOLATE FROSTING CAN BE USED AS A SEPARATE TREAT TOO**  
   
 We sometimes use just the frosting for a little treat for Mozart, like we will on [Halloween](http://soultravelers3new.local/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "best halloween europe or USA") or any time she needs an extra special treat around friends splurging on junk food temptations. It can be made in minutes and popped into a little jar with a spoon to savor. Nice topping with frozen banana too and because it is uncooked,  it is even healthier than the cake.  
   
-[![gathering ingredients for healthy, easy, delish chocolate cake](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cc0f7970c.jpg "gathering ingredients for healthy, easy, delish chocolate cake")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cc0f7970c.jpg)  
+![gathering ingredients for healthy, easy, delish chocolate cake](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cc0f7970c.jpg)  
   
   
 **PALEO CHOCOLATE CAKE ( GRAIN FREE, GLUTEN FREE) RECIPE**  
@@ -85,7 +85,7 @@ We sometimes use just the frosting for a little treat for Mozart, like we will o
   
 Parchment Paper to line pans  
   
-[![IMG_8690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b00644c50970b.jpg "IMG_8690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b00644c50970b.jpg)  
+![IMG_8690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b00644c50970b.jpg)  
   
 **BAKING INSTRUCTIONS**  
   
@@ -107,7 +107,7 @@ Parchment Paper to line pans
   
 9) Let pans cool slightly, then remove and cool on a wire rack.  
   
-[![chocolate layer cake baking in the oven](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b006296f6970c.jpg "chocolate layer cake baking in the oven")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b006296f6970c.jpg)  
+![chocolate layer cake baking in the oven](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b006296f6970c.jpg)  
   
 **AMAZING AND FAST HEALTHY CHOCOLATE FROSTING RECIPE**  
   
@@ -132,7 +132,7 @@ Parchment Paper to line pans
 
 4) Keep refrigerated  
   
-[![world's best chocolate cake and it's gluten free!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b006309be970b.jpg "world's best chocolate cake and it's gluten free!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b006309be970b.jpg)  
+![world's best chocolate cake and it's gluten free!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b006309be970b.jpg)  
   
   
 Voila! The world's best chocolate cake that will make even a non-cook like me look like a genius! This was my very first layer cake ever and my family is still raving about it and looking forward to the next one.  

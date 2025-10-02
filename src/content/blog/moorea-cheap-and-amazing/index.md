@@ -14,7 +14,7 @@ tags:
   - "travel-to-french-polynesia-on-a-budget"
 ---
 
-[![IMG_0026](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a6c4d5f970d.jpg "IMG_0026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a6c4d5f970d.jpg) Moorea Cheap And Amazing!
+![IMG_0026](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a6c4d5f970d.jpg) Moorea Cheap And Amazing!
 
 We loved our time in French  
 Polynesia and easily stayed  
@@ -22,7 +22,7 @@ on our $23/day per person budget
 
 <!--more-->
 
-[![Moorea travel bliss](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a6c4dd6970d.jpg "Moorea travel bliss")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a6c4dd6970d.jpg)  
+![Moorea travel bliss](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a6c4dd6970d.jpg)  
   
   
 

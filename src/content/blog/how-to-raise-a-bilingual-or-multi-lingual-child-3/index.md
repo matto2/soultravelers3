@@ -13,7 +13,7 @@ tags:
   - "teaching-your-child-languages"
 ---
 
-[![Margarita ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89589979970d.jpg "Margarita ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89589979970d.jpg) How to Raise a Bilingual  
+![Margarita ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89589979970d.jpg) How to Raise a Bilingual  
 or Multi-lingual Child 3  
   
 This is a the third post  
@@ -22,7 +22,7 @@ learning for kids, starting
 
 <!--more-->
 
-[![language learning toddler with native Spanish speaking babysitter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89589626970d.jpg "language learning toddler with native Spanish speaking babysitter")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89589626970d.jpg)  
+![language learning toddler with native Spanish speaking babysitter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89589626970d.jpg)  
   
   
 
@@ -30,7 +30,7 @@ learning for kids, starting
 
 This is a the third post in my series on [language learning for kids](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "language learning for kids"), starting from the womb, that is focused on raising [bilingual](http://en.wikipedia.org/wiki/Bilingual_education "bilingual education for kids"), [polyglot](http://en.wikipedia.org/wiki/Polyglot_%28person%29 "polyglot") and [multi-lingual children](http://en.wikipedia.org/wiki/Multilingualism "multi-lingual children"). Catch the first of this three part post, [How to Raise a Bilingual or Multi-lingual Child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html#more "how to raise a bilingual or multi-lingual child") where I talk about why to learn languages, can a monolingual raise a multi-lingual child, beginning in the womb, [the one parent, one language method](http://www.bilingualbaby.eu/methods/opol "one parent one language method") and much more.
 
-[![Already a trilingual at birth, Mozart as newborn baby at home santa cruz, ca](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f665eb0970b.jpg "Already a trilingual at birth, Mozart as newborn baby at home santa cruz, ca")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f665eb0970b.jpg)  
+![Already a trilingual at birth, Mozart as newborn baby at home santa cruz, ca](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f665eb0970b.jpg)  
   
 
 [Part Two of How to Raise a Bingual and Multi-lingual  Child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "how to raise a bilingual or multi-lingual chidl part 2") includes what are the challenges, how to support your child's language acquistion, the key advantages, how to create an immersion environment inside and outside the home and more.  
@@ -55,7 +55,7 @@ Mozart spoke her first words at 6 months including a 5 sylable word in each lang
   
 She did speak quite a bit of Mandarin as a baby, toddler and preschooler and was exposed to many other languages. As is typical for young polyglots, she would sometimes mix languages when very young, but soon that phase passes and it's normal. It was clear even inutero that she already understood some of the languages by hearing them daily.  
   
-[![our American girl working with her Dean of Studies from Mandarin Asia school while in Barcelona via webcam 3x week](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543339be94970c.jpg "our American girl working with her Dean of Studies from Mandarin Asia school while in Barcelona via webcam 3x week")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543339be94970c.jpg)  
+![our American girl working with her Dean of Studies from Mandarin Asia school while in Barcelona via webcam 3x week](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543339be94970c.jpg)  
   
   
 **WHAT IF YOU DO NOT SPEAK A WORD OF THE 2ND LANGUAGE?**  
@@ -94,7 +94,7 @@ Our goal has always been to have her as proficient and as close to a native spea
 
   
   
-[![Working on written Mandarin while at Madrid airport waiting for a flight](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f66c20d970b.jpg "Working on written Mandarin while at Madrid airport waiting for a flight")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f66c20d970b.jpg)  
+![Working on written Mandarin while at Madrid airport waiting for a flight](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f66c20d970b.jpg)  
   
   
 **ENCOURAGING MULTI- CULTURALISM EARLY**  

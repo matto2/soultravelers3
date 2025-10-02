@@ -19,13 +19,13 @@ tags:
   - "take-your-kids-skiing"
 ---
 
-[![3632587](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f31994e970c.jpg "3632587")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f31994e970c.jpg)Skiing in Southern Spain  
+![3632587](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f31994e970c.jpg)Skiing in Southern Spain  
   
 Where can you ski in  
 the morning, swim in the sea  
 that very afternoon and
 
-<!--more--> [![skiing the Sierra Nevada in Spain ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a64438970d.jpg "skiing the Sierra Nevada in Spain ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a64438970d.jpg)  
+<!--more--> ![skiing the Sierra Nevada in Spain ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a64438970d.jpg)  
   
 Where can you ski in the morning, [swim in the sea](http://soultravelers3new.local/2008/04/post-1.html "southern spain") that very afternoon and maybe visit a gorgeous [UNESCO World Heritage](http://whc.unesco.org/en/list/314 "Unesco ") Site in between? There is only one place in the world and it is the [Sierra Nevada Ski Resort](http://en.wikipedia.org/wiki/Sierra_Nevada_%28Spain%29 "sierra Nevada ski resort") in [Granada](http://soultravelers3new.local/2008/12/grace-gratitude.html "granada spain") Province in [Andalusia, Spain](http://soultravelers3new.local/2008/04/post-1.html "andalusia spain").  
   

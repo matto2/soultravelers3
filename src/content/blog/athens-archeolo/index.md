@@ -15,7 +15,7 @@ in Athens never or rarely see these great sites.
 
 <!--more-->
 
-[![Img_8027](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_8027.png "Img_8027")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8027.png)
+![Img_8027](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8027.png)
 
 A long haired, lively taxi driver gabbed away as he drove us to Athens’ renown Archeology Museum and laughed about how people who live in Athens never or rarely see these great sites. He said he was only there once about sixteen years ago, as he dropped us off at the back of the building, even though he keeps meaning to return.
 
@@ -36,26 +36,26 @@ Seeing a museum with a young child is just different than with adults and I thin
 
 She is a catalyst for all of us to learn more, so we find museums and traveling more enhanced when we do it as a family. I am so glad that my father instilled the museum bug into us as kids and I hope this pattern continues for generations, long after I am gone. We are certainly glad that we did this rewarding one together as a good time was had by all!
 
-[![Img_7961](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7961.png "Img_7961")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7961.png)
+![Img_7961](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7961.png)
 
-[![Img_7971](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7971.png "Img_7971")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7971.png)
+![Img_7971](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7971.png)
 
-[![Img_7978](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7978.png "Img_7978")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7978.png)
+![Img_7978](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7978.png)
 
-[![Img_7982](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7982.png "Img_7982")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7982.png)
+![Img_7982](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7982.png)
 
-[![Img_8004](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_8004.png "Img_8004")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8004.png)
+![Img_8004](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8004.png)
 
-[![Img_7973](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7973.png "Img_7973")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7973.png)
+![Img_7973](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7973.png)
 
-[![Img_8021](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_8021.png "Img_8021")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8021.png)
+![Img_8021](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8021.png)
 
-[![Img_7994](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7994.png "Img_7994")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7994.png)
+![Img_7994](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7994.png)
 
-[![Img_8050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_8050.png "Img_8050")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8050.png)
+![Img_8050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8050.png)
 
-[![Img_8015](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_8015.png "Img_8015")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8015.png)
+![Img_8015](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8015.png)
 
-[![Img_8040](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_8040.png "Img_8040")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8040.png)
+![Img_8040](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8040.png)
 
-[![Img_8058](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_8058.png "Img_8058")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8058.png)
+![Img_8058](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_8058.png)

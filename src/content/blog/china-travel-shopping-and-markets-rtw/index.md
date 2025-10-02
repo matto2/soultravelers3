@@ -21,13 +21,13 @@ tags:
   - "xian"
 ---
 
-[![IMG_3635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a38f3f970d.jpg "IMG_3635")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a38f3f970d.jpg)Shopping in China  
+![IMG_3635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a38f3f970d.jpg)Shopping in China  
   
 One of the great pleasures  
 in China are the markets  
 and on this big shopping day
 
-<!--more--> [![Mom and daughter shopping in China trip at Xian Muslim Quarter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c350006df970b.jpg "Mom and daughter shopping in China trip at Xian Muslim Quarter")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c350006df970b.jpg)  
+<!--more--> ![Mom and daughter shopping in China trip at Xian Muslim Quarter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c350006df970b.jpg)  
   
 One of the [great pleasures](http://soultravelers3new.local/2012/05/lifes-simple-pleasures.html "simple pleasures") in [China](http://soultravelers3new.local/2012/12/big-sister-in-china.html "china") are the markets and on this big [shopping day in America](http://soultravelers3new.local/2011/08/reverse-culture-shock-usa-over-consumerism.html "shopping USA over consumerism"), I am remembering the fun of recently  [bargaining in China](http://soultravelers3new.local/2012/11/panjiayuan-antique-market-beijing-best-gifts.html "bargaining in China") outdoor markets.  
   

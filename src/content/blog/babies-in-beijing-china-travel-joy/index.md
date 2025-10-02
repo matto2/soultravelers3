@@ -20,14 +20,14 @@ tags:
   - "visiting-china"
 ---
 
-[![IMG_7211](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33563768970b.jpg "IMG_7211")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33563768970b.jpg)Babies in Beijing - 
+![IMG_7211](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33563768970b.jpg)Babies in Beijing - 
 China Travel Joy  
   
 Being a foreign blond girl  
 in China can sometimes feel  
 like a celebrity and meeting babies
 
-<!--more--> [![American blond child and Chinese baby make smile ambassadors](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c335637fd970b.jpg "American blond child and Chinese baby make smile ambassadors")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c335637fd970b.jpg)  
+<!--more--> ![American blond child and Chinese baby make smile ambassadors](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c335637fd970b.jpg)  
   
 Being a foreign blond [girl in China](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "blond girl visiting China") can sometimes feel like a celebrity and meeting babies is all part of the fun, even if one is not a politician. Mozart absolutely adores babies and they seem to [enjoy her Mandarin](http://soultravelers3new.local/2012/02/mandarin-chinese-learning-at-home-and-abroad.html "learning mandarin ") too and just look how it lights up everybody around them.  
   

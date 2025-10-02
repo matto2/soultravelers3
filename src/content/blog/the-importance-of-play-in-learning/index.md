@@ -19,7 +19,7 @@ tags:
   - "the-importance-of-play-in-learning"
 ---
 
-[![IMG_6525](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9d671970d.jpg "IMG_6525")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9d671970d.jpg)The Importance of Play in Learning
+![IMG_6525](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9d671970d.jpg)The Importance of Play in Learning
 
 “It is paradoxical that many  
 educators and parents still differentiate  
@@ -27,7 +27,7 @@ between a time for learning and
 
 <!--more-->  
   
-[![Adorable rag doll made by a child spontaneously= play at it's best](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9d742970d.jpg "Adorable rag doll made by a child spontaneously= play at it's best")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9d742970d.jpg)  
+![Adorable rag doll made by a child spontaneously= play at it's best](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9d742970d.jpg)  
   
 “It is paradoxical that many educators and parents still differentiate between a time for learning and a time for play without seeing the vital connection between them.” -Leo F. Buscaglia  
   
@@ -53,7 +53,7 @@ Yes, she is learning chemistry, [Mandarin](http://soultravelers3new.local/2013/0
   
 “We are never more fully alive, more completely ourselves, or more deeply engrossed in anything than when we are playing.” -Charles Schaefer  
   
-[![the joy of creation and making things](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101f26297970c.jpg "the joy of creation and making things")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101f26297970c.jpg)  
+![the joy of creation and making things](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101f26297970c.jpg)  
   
 “Almost all creativity involves purposeful play.” –  Abraham Maslow  
   
@@ -61,19 +61,19 @@ Yes, she is learning chemistry, [Mandarin](http://soultravelers3new.local/2013/0
   
 I love it that she keeps expanding on her worlds no matter where we are. I see her growing skills that will help her in her writing, creativity, problem solving etc. and I sometimes wonder if she will be an architect, civil engineer or urban planner. Her cities are detailed, creative and awesome....it keeps exploding around her room as she is great at [making something out of nothing](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html "making something out of nothing").  
   
-[![never too old to play and create](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9e8e4970d.jpg "never too old to play and create")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9e8e4970d.jpg)  
+![never too old to play and create](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeaf9e8e4970d.jpg)  
   
 “The true object of all human life is play.” -G. K. Chesterton  
   
 My sister gave her some knitting needles before we left [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "california best destinations") and now she is a bit obsessed with knitting. She made herself some wrist bands for her volley ball class and all kinds of [fashion outfits](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html "how to be a world traveling fashionista"). Sewing clothes, knitting, making belts and accessories and making all kinds of  things in this way is a passion at the moment. I don't know how to knit, so this is all self taught.  
   
-[![knitting box filled with newly made creations= homeschool fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101f277bc970c.jpg "knitting box filled with newly made creations= homeschool fun")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101f277bc970c.jpg)  
+![knitting box filled with newly made creations= homeschool fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101f277bc970c.jpg)  
   
 She has always known how to entertain herself, but we are a playful family, so do things together as well. She loves going down to the pool together as the whole family.  
   
 Last Sunday we were in the pool for almost 3 hours and the last one was just the two of us. I love it that  she is still a child, but blossoming into a women now at 12, so I am cherishing every moment of these sweet pleasures. The pattern in [Malaysia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "how to find a winter rental apartment in Penang, Malaysia") is if you go at dinner time, you will see lots of kids to play with, but if we go earlier, we have the whole pool to ourselves.  
   
-[![6a00e5502a95078833016303e11f67970d-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bfd43a0970b.jpg "6a00e5502a95078833016303e11f67970d-500wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bfd43a0970b.jpg)  
+![6a00e5502a95078833016303e11f67970d-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bfd43a0970b.jpg)  
   
   
 As we hugged and waltzed [around the pool](http://soultravelers3new.local/2009/08/cinque-terra-gem-best-budget-lodging-italy-for-family-vacation.html "cinque terra lodging with family") surrounded by palm trees and [tropical flowers](http://soultravelers3new.local/2013/04/spring-fever-tropical-flowers-in-asia.html "tropical flowers"), she told me the detailed plots of her current [favorite book](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist family and books")s and why she loved them. Then she shared a magical, private,  made-up game with me that involved a blue tile she had found in the pool. After she skips it across the pool, one puts their head under the water and listens for an enchanting tingle as it gracefully hits the bottom of the pool.  

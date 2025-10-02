@@ -19,14 +19,14 @@ tags:
   - "worlds-best-shanghai-skyline"
 ---
 
-[![IMG_9894](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341d9db7970b.jpg "IMG_9894")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341d9db7970b.jpg)Shanghai Skyline - 
+![IMG_9894](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341d9db7970b.jpg)Shanghai Skyline - 
 World's Best?  
   
 While  heading to Shanghai  
 via the world's fastest train  
 from Beijing, I read a few
 
-<!--more--> [![dazzling Shanghai skyline from Bund, futuristic architecture, boats and lights](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c145ef970d.jpg "dazzling Shanghai skyline from Bund, futuristic architecture, boats and lights")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c145ef970d.jpg)  
+<!--more--> ![dazzling Shanghai skyline from Bund, futuristic architecture, boats and lights](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c145ef970d.jpg)  
   
 While  heading to Shanghai via the world's fastest train from [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "travel to Beijing best to see"), I read a few quotes about it being the world's most futuristic city to DaVinci, who laughed and said it sounded like hyperbole from a copywriter.  
   

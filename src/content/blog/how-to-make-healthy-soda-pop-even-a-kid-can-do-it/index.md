@@ -17,14 +17,14 @@ tags:
   - "making-natural-soda-pop"
 ---
 
-[![IMG_5380](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31dacf65970b.jpg "IMG_5380")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31dacf65970b.jpg)How to Make Healthy Soda Pop - 
+![IMG_5380](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31dacf65970b.jpg)How to Make Healthy Soda Pop - 
 Even a Kid Can Do it!  
   
 Looking for a healthy soda  
 pop alternative for your  
 kid, teen or tween? Do you
 
-<!--more--> [![Ingredients for a yummy, natural soda pop a kid can make](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c0921b8970c.jpg "Ingredients for a yummy, natural soda pop a kid can make")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c0921b8970c.jpg)  
+<!--more--> ![Ingredients for a yummy, natural soda pop a kid can make](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c0921b8970c.jpg)  
   
   
 Looking for a healthy soda pop alternative for your kid, teen or tween? Do you hate those unhealthy Cokes, Sprites and other yucky carbonated, sugary beverages that tempt them left and right and are some of the most popular junk food drinks [harming our kids today](http://www.youtube.com/watch?v=dBnniua6-oM "sugar harms kids and adults")?  

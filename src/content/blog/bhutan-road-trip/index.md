@@ -24,14 +24,14 @@ tags:
   - "driving-bhutan"
 ---
 
-[![IMG_8078](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07a8b128970d.jpg "IMG_8078")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07a8b128970d.jpg)Bhutan Road Trip
+![IMG_8078](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07a8b128970d.jpg)Bhutan Road Trip
 
  You will never forget a road  
 trip around Bhutan, that  
 picturesque Himalayan last 
 
 <!--more-->  
-[![Bhutan - road trip ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d08d7318970c.png "Bhutan - road trip ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d08d7318970c.png)  
+![Bhutan - road trip ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d08d7318970c.png)  
   
 You will never forget a road trip around Bhutan, that picturesque Himalayan last Shangri La.  [Bhutan trave](http://soultravelers3new.local/2011/05/travel-to-bhutan-.html "Bhutan travel")l is like no where else in the world so driving there you will see yaks, [nomads](http://soultravelers3new.local/2011/06/family-travel-bhutan-nomads.html "bhutan nomads"), pristine nature, school children walking long distances and colorful trucks.  
   

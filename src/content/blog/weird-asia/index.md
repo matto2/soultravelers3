@@ -14,13 +14,13 @@ tags:
   - "why-is-asia-weird"
 ---
 
-[![IMG_3969](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616f97c47970c.jpg "IMG_3969")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616f97c47970c.jpg)Weird Asia  
+![IMG_3969](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616f97c47970c.jpg)Weird Asia  
   
 Is Asia a little weird?  
 Sometimes it does feel  
 like it's on another planet
 
-<!--more--> [![weird Asia - masses of kids dancing at the mall](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431c6a50970d.jpg "weird Asia - masses of kids dancing at the mall")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431c6a50970d.jpg)  
+<!--more--> ![weird Asia - masses of kids dancing at the mall](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431c6a50970d.jpg)  
   
 Is [Asia a little weird](http://soultravelers3new.local/2012/07/big-rats-in-asia.html "Asia weird big rats")? Sometimes it does feel like it's on another planet to those of us who are American or European. That's part of the enjoyment though of [life in Asia](http://soultravelers3new.local/2012/05/living-in-asia.html "life in Asia"). It's not all [typical Malaysian](http://soultravelers3new.local/2012/07/typical-malaysia-local-style.html "typical Malaysia style") scenes though, or [Penang night markets](http://soultravelers3new.local/2012/05/penang-at-night.html "Penang night markets , hawker stands"), or [Karaoke singing](http://soultravelers3new.local/2012/07/singing-karaoke-in-asia.html "karaoke singing in Asia"), even modern shopping is different.  
   

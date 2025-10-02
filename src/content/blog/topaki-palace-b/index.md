@@ -15,7 +15,7 @@ struggling to get the Turkey trip up as well as the rest of Greece.
 
 <!--more-->
 
-[![Img_2145](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2145.png "Img_2145")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2145.png)
+![Img_2145](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2145.png)
 
 We did not see these on the same day, but I am trying to consolidate a little more for the blog as we are already in Croatia and I am still struggling to get the Turkey trip up as well as the rest of Greece.
 
@@ -50,26 +50,26 @@ The Blue Mosque was built between 1609 and 1617 and is also known for its unusua
 
 I am glad we saw the Blue Mosque, but the spectacular mosque in Cordoba, Spain remains our favorite of all the mosque that we have seen. We really enjoyed the park like walk between the Blue Mosque and the Ayasofya with the many flowered gardens, trees and fountains. We found ourselves there many times and even did a video with Mozart playing her violin there with the Blue Mosque in the background as it was so pretty from this position. As usual, a small crowd of tourists gathered and some wanted to take their own pics or video of her playing.
 
-[![Img_1857](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_1857.png "Img_1857")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1857.png)
+![Img_1857](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1857.png)
 
-[![Img_1861](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_1861.png "Img_1861")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1861.png)
+![Img_1861](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1861.png)
 
-[![Img_1925](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_1925.png "Img_1925")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1925.png)
+![Img_1925](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1925.png)
 
-[![Img_2007](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2007.png "Img_2007")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2007.png)
+![Img_2007](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2007.png)
 
-[![Img_2045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2045.png "Img_2045")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2045.png)
+![Img_2045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2045.png)
 
-[![Img_2062](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2062.png "Img_2062")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2062.png)
+![Img_2062](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2062.png)
 
-[![Img_1954](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_1954.png "Img_1954")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1954.png)
+![Img_1954](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1954.png)
 
-[![Img_2070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2070.png "Img_2070")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2070.png)
+![Img_2070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2070.png)
 
-[![Img_2146](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2146.png "Img_2146")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2146.png)
+![Img_2146](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2146.png)
 
-[![Img_2104](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2104.png "Img_2104")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2104.png)
+![Img_2104](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2104.png)
 
-[![Img_2099](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2099.png "Img_2099")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2099.png)
+![Img_2099](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2099.png)
 
-[![Img_2106](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2106.png "Img_2106")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2106.png)
+![Img_2106](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2106.png)

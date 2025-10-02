@@ -22,3 +22,6 @@ pnpm-debug.log*
 
 # jetbrains setting folder
 .idea/
+
+# WordPress uploads - stored in R2, not in git
+uploads/

@@ -26,18 +26,18 @@ tags:
   - "worlds-best-ruins"
 ---
 
-[![IMG_0049](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee93706f3970d.jpg "IMG_0049")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee93706f3970d.jpg)Top 15 Ancient  
+![IMG_0049](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee93706f3970d.jpg)Top 15 Ancient  
 Roman and Greek Ruins  
   
 Where are the best places  
 to visit ancient Roman and  
 Greek ruins?
 
-<!--more--> [![Best places to visit Roman and Greek ruins, like this in Jerash!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9370861970d.jpg "Best places to visit Roman and Greek ruins, like this in Jerash!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9370861970d.jpg)  
+<!--more--> ![Best places to visit Roman and Greek ruins, like this in Jerash!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9370861970d.jpg)  
   
 Where are the best places to visit [ancient Roman](http://soultravelers3new.local/2007/05/colosseum-forum.html "ancient roman ruins - travel colosseum and forum") and [Greek ruins](http://soultravelers3new.local/2007/07/rhode-city-old.html#more "Greek ruins travel")? Much to our surprise on our [family world trip](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family world trip"), we found out that there are more Greek and [Roman ruins](http://soultravelers3new.local/2006/10/roman-holiday-i.html "roman ruins kid travel") in [Turkey](http://soultravelers3new.local/turkey/ "travel to Turkey") than in either [Greece](http://soultravelers3new.local/greece/ "Greece travel ") or [Italy.](http://soultravelers3new.local/italy/ "travel to Italy information")  
   
-[![favorite ancient ruins for families like Pont du Gard in Provence](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee937b341970d.jpg "favorite ancient ruins for families like Pont du Gard in Provence")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee937b341970d.jpg)  
+![favorite ancient ruins for families like Pont du Gard in Provence](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee937b341970d.jpg)  
   
   
 That said, we've found amazing ruins [all around Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best European vacations") as well as in [Jordan](http://soultravelers3new.local/2011/06/family-vacation-petra-wow-.html "visiting Petra") and [Turkey](http://soultravelers3new.local/2007/07/frescoes-underg.html#more "visiting Turkey"). The [Greek Islands for kids](%20http://soultravelers3new.local/2012/04/greek-islands-with-kids-santorini-first.html "Greek islands for kids") are perfect! Visiting all of these places has been an important part of our [world schooling](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school - best education unschool") and one of the [best educational benefits](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html "best educational benefits of travel ") of being a [digital nomad family.](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "digital nomad family")  
@@ -52,7 +52,7 @@ Mozart had a passion for archaeology as well as Greek and Roman mythology at a v
   
 We met a teacher on our [gulet boat trip in Turkey](http://soultravelers3new.local/2007/07/sailing-away.html "gulet boat trip Turkey") who said Mozart knew more about Greek myths than he did and she had learned it all on her own through travel and books.  
   
-[![Top ancient Roman and Greek sites sometimes have Roman army shows - fab for family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee93979f7970d.jpg "Top ancient Roman and Greek sites sometimes have Roman army shows - fab for family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee93979f7970d.jpg)  
+![Top ancient Roman and Greek sites sometimes have Roman army shows - fab for family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee93979f7970d.jpg)  
   
   
 **BEST ROMAN AND GREEK RUINS**  
@@ -89,7 +89,7 @@ Palace of Knossos](%20 http://soultravelers3new.local/2007/07/the-palace-of-k.ht
   
 [Split, Croatia and Diocletian's Palace](http://soultravelers3new.local/2007/09/split-diocletia.html "croatia travel split and diocletian's palace")  
   
-[![Best Roman and Greek ruins in the world like this ancient arena in Arles, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9392eab970d.jpg "Best Roman and Greek ruins in the world like this ancient arena in Arles, France")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9392eab970d.jpg)  
+![Best Roman and Greek ruins in the world like this ancient arena in Arles, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9392eab970d.jpg)  
   
 So many more on our blog, like this photo of [Arles, France](http://soultravelers3new.local/2012/04/arles-france-vacation.html "Arles, France travel") and its UNESCO World Heritage Roman arena,but this is a good start for those interested in ruins and historical sites,  especially if you are interested in doing it as a family!  
   

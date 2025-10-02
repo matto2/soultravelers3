@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Img_0821](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_0821.png "Img_0821")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_0821.png) Michelangelo's Madonna  
+ ![Img_0821](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_0821.png) Michelangelo's Madonna  
 April 4, 2008
 
 We were awed by the beauty of this  

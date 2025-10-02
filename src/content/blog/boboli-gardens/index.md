@@ -6,7 +6,7 @@ categories:
   - "italy"
 ---
 
-[![Img_5951](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5951.png "Img_5951")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.shared/image.html?/photos/uncategorized/2008/02/22/img_5951.png)
+![Img_5951](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.shared/image.html?/photos/uncategorized/2008/02/22/img_5951.png)
 
 Boboli Gardens  
 February 19, 2008
@@ -17,7 +17,7 @@ famous Ponte Vecchio 
 
 <!--more-->
 
-[![Img_5951_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5951_2.png "Img_5951_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5951_2.png)
+![Img_5951_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5951_2.png)
 
 On a beautiful sunny day, we took in more of Florence as we leisurely crossed the famous Ponte Vecchio on our way to the Pallazzo Pitti (Pitti Palace) and the Boboli Gardens. The Ponte Vecchio (Old Bridge) is a medieval bridge filled with jewelry shops, art and souvenirs. Mozart enjoyed watching the artists work as she would love to be sitting there selling her art!
 
@@ -28,26 +28,26 @@ There are many museums within the Pitti Palace, but one can only see so many mus
 There are also some nice views of Florence from this viewing point on a hill.  
 We enjoy formal gardens and all the work that has gone into them, so it was a good day.
 
-[![Img_5910](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5910.png "Img_5910")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5910.png)
+![Img_5910](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5910.png)
 
-[![Img_5929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5929.png "Img_5929")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5929.png)
+![Img_5929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5929.png)
 
-[![Img_5934](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5934.png "Img_5934")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5934.png)
+![Img_5934](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5934.png)
 
-[![Img_5936](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5936.png "Img_5936")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5936.png)
+![Img_5936](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5936.png)
 
-[![Img_5947](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5947.png "Img_5947")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5947.png)
+![Img_5947](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5947.png)
 
-[![Img_5953](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5953.png "Img_5953")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5953.png)
+![Img_5953](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5953.png)
 
-[![Img_5960](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5960.png "Img_5960")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5960.png)
+![Img_5960](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5960.png)
 
-[![Img_5986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5986.png "Img_5986")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5986.png)
+![Img_5986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5986.png)
 
-[![Img_5993](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_5993.png "Img_5993")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5993.png)
+![Img_5993](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_5993.png)
 
-[![Img_6000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_6000.png "Img_6000")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_6000.png)
+![Img_6000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_6000.png)
 
-[![Img_6006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_6006.png "Img_6006")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_6006.png)
+![Img_6006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_6006.png)
 
-[![Img_6028](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/22/img_6028.png "Img_6028")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_6028.png)
+![Img_6028](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/22/img_6028.png)

@@ -6,7 +6,7 @@ categories:
   - "morocco"
 ---
 
- [![Img_2255](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2255.png "Img_2255")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2255.png) Fez  
+ ![Img_2255](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2255.png) Fez  
 March 29, 2007
 
 Fez, Morocco in the medina gives one the  
@@ -15,7 +15,7 @@ the middle ages or even biblical times.
 
 <!--more-->
 
-[![Img_2255_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2255_2.png "Img_2255_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2255_2.png)
+![Img_2255_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2255_2.png)
 
   
 Fez, Morocco in the medina gives one the feeling of taking a time capsule back to the middle ages or even biblical times. It is an extraordinary experience for an American to enter the medina which is an amazing maze of 9,000 narrow streets filled with shops, people in traditional dress (djellabahs) and donkeys passing through loaded with supplies. Ones senses are assaulted from every direction with smells, sights, sounds that are utterly foreign.
@@ -49,24 +49,24 @@ What a huge relief when finally a pleasant young man answered the door and we we
 
 The riad experience is unique to Morocco and we were glad we picked a good one for this first night on our exotic journey. It is usually a discreet entrance to a hollow square with few or no windows to the street and an inner courtyard surrounded by rooms. There was no doubt that we had entered a very different world both in the ancient medina and in this renovated riad from the fourteenth century.
 
-[![Img_2066](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2066.png "Img_2066")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2066.png)
+![Img_2066](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2066.png)
 
-[![Img_2200](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2200.png "Img_2200")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2200.png)
+![Img_2200](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2200.png)
 
-[![Img_2060](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2060.png "Img_2060")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2060.png)
+![Img_2060](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2060.png)
 
-[![Img_2212](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2212.png "Img_2212")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2212.png)
+![Img_2212](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2212.png)
 
-[![Img_2382](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2382.png "Img_2382")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2382.png)
+![Img_2382](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2382.png)
 
-[![Img_2161](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2161.png "Img_2161")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2161.png)
+![Img_2161](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2161.png)
 
-[![Img_2192](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2192.png "Img_2192")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2192.png)
+![Img_2192](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2192.png)
 
-[![Img_2249](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2249.png "Img_2249")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2249.png)
+![Img_2249](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2249.png)
 
-[![Img_2185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2185.png "Img_2185")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2185.png)
+![Img_2185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2185.png)
 
-[![Img_2262](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2262.png "Img_2262")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2262.png)
+![Img_2262](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2262.png)
 
-[![Img_2026](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2026.png "Img_2026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2026.png)
+![Img_2026](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2026.png)

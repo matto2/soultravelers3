@@ -14,7 +14,7 @@ tags:
   - "foodie-photo"
 ---
 
-[![IMG_5100](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153915c8c19970b.jpg "IMG_5100")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153915c8c19970b.jpg) Eat Like a Local  
+![IMG_5100](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153915c8c19970b.jpg) Eat Like a Local  
 in Barcelona -Snails!  
   
 One of the great  
@@ -23,7 +23,7 @@ local friends in Barcelona
 
 <!--more-->
 
-[![snails in Barcelona Catalan restaurant. Foodie fun photo!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435301584970c.jpg "snails in Barcelona Catalan restaurant. Foodie fun photo!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435301584970c.jpg)  
+![snails in Barcelona Catalan restaurant. Foodie fun photo!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435301584970c.jpg)  
   
   
 One of the great advantages of having [local friends in Barcelona who are "foodies"](http://www.youtube.com/watch?feature=player_embedded&v=99t-NPNCipE "Barcelona local friends foodies") is we get to eat fabulous food  at great prices and learn more about the food and culture of Spain and [Catalan cuisine](http://en.wikipedia.org/wiki/Catalan_cuisine "Catalan cuisine"). They speak both Spanish and Catalan which helps immensely in Barcelona.  

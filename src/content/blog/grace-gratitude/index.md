@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Img_4001](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_4001.jpg "Img_4001")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/15/img_4001.jpg) Grace & Gratitude Near Granada  
+![Img_4001](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/15/img_4001.jpg) Grace & Gratitude Near Granada  
 December 16, 2008
 
 Blue sparkling sea, rolling green hills  
@@ -47,4 +47,4 @@ As we put up our little living tree ( that is how it is done here, you buy them,
 
 How do you take time out to focus on gratitude and the Grace in your lives? Does it give you strength?
 
-[![Img_3985](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3985.jpg "Img_3985")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_3985.jpg)
+![Img_3985](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_3985.jpg)

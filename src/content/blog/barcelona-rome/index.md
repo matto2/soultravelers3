@@ -7,7 +7,7 @@ categories:
   - "spain"
 ---
 
- [![Img_5516](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5516.png "Img_5516")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5516.png) Barcelona-Rome Cruise Ferry  
+ ![Img_5516](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5516.png) Barcelona-Rome Cruise Ferry  
 May 7, 2007
 
 Cling, clang, vrooom, chug-chug-chug-chug  
@@ -16,7 +16,7 @@ hold, as we entered the gargantuan Grimaldi
 
 <!--more-->
 
-[![Img_5516](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5516.png "Img_5516")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5516.png)
+![Img_5516](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5516.png)
 
 Cling, clang, vrooom, chug-chug-chug-chug blasted the echoing sounds in the cavernous hold, as we entered the gargantuan Grimaldi Eurostar ferry in our motor home, along with endless humongous semi trucks, motorbikes and cars. Wafts of salty sea smells combined with diesel fumes engulfed our senses in the dark as we tried to get our bearings and staggered on, doing our best to follow the instructions of the Italian-shouting workers, clad in their uniforms directing traffic and chaining up trucks.
 
@@ -53,26 +53,26 @@ They are the first Americans that we have run into while traveling other than th
 
 She has been on cruise ships before and lots of ferries and their conclusion was that this Grimaldi ferry must have been a cruise ship that they turned into a ferry as she had never seen one like it. We thought the Tarifa ferry was pretty cool, but this one really was a great find. They slept in an area comparable to business class in a plane and it only cost them forty dollars. We really enjoyed our time on board (Mozart was ready to move in!) and look forward to our return trip in the fall.
 
-[![Img_5660](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5660.png "Img_5660")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5660.png)
+![Img_5660](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5660.png)
 
-[![Img_5521](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5521.png "Img_5521")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5521.png)
+![Img_5521](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5521.png)
 
-[![Img_5507](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5507.png "Img_5507")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5507.png)
+![Img_5507](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5507.png)
 
-[![Img_5508](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5508.png "Img_5508")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5508.png)
+![Img_5508](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5508.png)
 
-[![Img_5505](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5505.png "Img_5505")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5505.png)
+![Img_5505](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5505.png)
 
-[![Img_5511](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5511.png "Img_5511")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5511.png)
+![Img_5511](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5511.png)
 
-[![Img_5562](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5562.png "Img_5562")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5562.png)
+![Img_5562](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5562.png)
 
-[![Img_5552](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5552.png "Img_5552")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5552.png)
+![Img_5552](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5552.png)
 
-[![Img_5566](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5566.png "Img_5566")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5566.png)
+![Img_5566](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5566.png)
 
-[![Img_5573](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5573.png "Img_5573")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5573.png)
+![Img_5573](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5573.png)
 
-[![Img_5589](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5589.png "Img_5589")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5589.png)
+![Img_5589](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5589.png)
 
-[![Img_5615](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5615.png "Img_5615")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5615.png)
+![Img_5615](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5615.png)

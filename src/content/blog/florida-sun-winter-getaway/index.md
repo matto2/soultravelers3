@@ -17,13 +17,13 @@ tags:
   - "winter-escapes"
 ---
 
-[![IMG_6949](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b9277970c.jpg "IMG_6949")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b9277970c.jpg)Florida Sun Winter Getaway
+![IMG_6949](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b9277970c.jpg)Florida Sun Winter Getaway
 
 Is it cold and dreary in  
 your neck of the woods?  
 In my way of thinking, that means
 
-<!--more--> [![sun and surf Florida winter getaway](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b92d1970c.jpg "sun and surf Florida winter getaway")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b92d1970c.jpg)  
+<!--more--> ![sun and surf Florida winter getaway](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b92d1970c.jpg)  
   
   
 Is it cold and dreary in your neck of the woods? In my way of thinking, that means it's time for a trip to somewhere warm, sunny and tropical! Here you see our daughter playing princess, lazing in the sun and getting some good Vitamin D at the gorgeous [Westin Diplomat Resort and Spa](http://www.diplomatresort.com/ "westin diplomat resort and spa") a spectacular beachfront surf and sand location.  

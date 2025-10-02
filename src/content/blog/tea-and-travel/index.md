@@ -22,13 +22,13 @@ tags:
   - "traveling-for-the-tea"
 ---
 
-[![IMG_9657](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c381bcb5b970b.jpg "IMG_9657")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c381bcb5b970b.jpg)Tea and Travel  
+![IMG_9657](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c381bcb5b970b.jpg)Tea and Travel  
   
 I never knew that tea and  
 travel was such a perfect mix:  
 from High Tea in London with kids
 
-<!--more--> [![tea and travel, culture, health and friendships](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9beef9f970d.jpg "tea and travel, culture, health and friendships")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9beef9f970d.jpg)  
+<!--more--> ![tea and travel, culture, health and friendships](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9beef9f970d.jpg)  
   
 I never knew that tea and travel was such a perfect mix: from [High Tea in London with kids;](http://soultravelers3new.local/2012/07/high-tea-in-london-with-kids.html "high tea in london with kids") to the [Chinese Tea Ceremony](http://soultravelers3new.local/2012/06/chines.html "Chinese tea ceremony") at my child's [Mandarin school in Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Mandarin school in Penang") ; to a [tea break in Wadi Rum](http://soultravelers3new.local/2012/07/wadi-rum-jordan.html "tea break in wadi Rum, jordan"), Jordan; to sharing a "cuppa" at the [oldest tea house in Shanghai](http://soultravelers3new.local/2012/11/shanghai-with-kids.html "shanghai with kids - tea house") surrounded by water and on a [gulet sailboat in Turkey.,](http://soultravelers3new.local/2007/07/sailing-away.html "sailboat gulet in turkey travel") plus much, much more of course.  
   

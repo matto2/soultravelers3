@@ -14,7 +14,7 @@ tags:
   - "writing-for-travel"
 ---
 
-[![IMG_9563](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348528c691970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348528c691970c.jpg) 5 Favorite Travel Writers  
+![IMG_9563](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348528c691970c.jpg) 5 Favorite Travel Writers  
 July 2, 2010
 
 Happy 4th of July weekend and  
@@ -25,7 +25,7 @@ American readers! We are having
 
 <!--more-->
 
-[![5 favorite travel writers like our 8 year old in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348528c70e970c.jpg "5 favorite travel writers like our 8 year old in London")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348528c70e970c.jpg)  
+![5 favorite travel writers like our 8 year old in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348528c70e970c.jpg)  
 
 Happy 4th of July weekend and Independence Day to all my American readers! We are having such a wonderful time in [Barcelona at the beach](http://soultravelers3new.local/2007/05/barcelona-beach.html), that we are having a hard time leaving, but we will soon head into [France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/france/index.html), starting with some explorations in our beloved [Provence](http://soultravelers3new.local/2006/10/good-morning-pr.html).
 

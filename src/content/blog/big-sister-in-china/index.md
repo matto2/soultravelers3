@@ -17,7 +17,7 @@ tags:
   - "traditional-chinese-school"
 ---
 
-[![IMG_8951](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c1d932970d.jpg "IMG_8951")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c1d932970d.jpg)Big Sister in China  
+![IMG_8951](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c1d932970d.jpg)Big Sister in China  
   
 At her Traditional Chinese  
 school in China, they call her  

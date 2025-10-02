@@ -15,7 +15,7 @@ tags:
   - "travelers"
 ---
 
-[![Heavenly_xmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876394cc3970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876394cc3970c.jpg)Christmas Gifts for Travelers with Soul  
+![Heavenly_xmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876394cc3970c.jpg)Christmas Gifts for Travelers with Soul  
 December 14, 2009
 
 Have you finished your holiday  
@@ -24,7 +24,7 @@ we have a few ideas that might please
 
 <!--more-->
 
-[![Heavenly_xmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876527730970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876527730970c.jpg)  
+![Heavenly_xmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876527730970c.jpg)  
 
 Have you finished your holiday shopping? If you find yourself stuck,  we have a few ideas that might please you!  
 
@@ -34,13 +34,13 @@ That way, we get a percentage of the sale as commission, while the price of what
 
 All the photos in this post were taken in Europe in Germany, UK, Scandinavia, Spain etc, except the lead photo which is Mozart during our last Christmas at [our home in California](http://soultravelers3new.local/2006/08/timing-is-eve-1.html) before we sold it for our open ended world tour.
 
-[![IMG_1650](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287639500b970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287639500b970c.jpg)  
+![IMG_1650](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287639500b970c.jpg)  
 
 If you have not looked at our shops, please do click on [our shop link](http://soultravelers3new.local/shop.html) and you will see we have lots of great choices right here of  Soultravelers3 items from  T-shirts to photos from [Cafe Press](http://www.cafepress.com/soultravelers3) and [Imagekind.](http://www.imagekind.com/MemberProfile.aspx?MID=066bd5b5-b070-4fb3-b417-c3039b5801f7) If you ever see a specific photo that we have done on the blog, Flickr or any where, that you want, let us know, as we can make it available.
 
 We also have most  fabulous national brands in almost every category through the online  [National Geographic Store](http://shop.nationalgeographic.com/ngs/browse/category_new.jsp?categoryId=A211&addFacet=9004:A211&code=AF10062) ( we'll be reviewing their fabulous "Complete National Geographic" soon) and [REI store.](http://www.rei.com/cj/category/1/q/REI+ecoSensitive?cm_mmc=CJ-_-Aff-_-2925430-_-10543607&PID=2925430&AID=10543607) We have done [lots of reviews](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/book_reviews/index.html) of books & [products that we have used](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/travel_gear_reviews/index.html) that might help with selections.
 
-[![IMG_1626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a73694ff970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a73694ff970b.jpg)
+![IMG_1626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a73694ff970b.jpg)
 
 From very low priced stocking stuffers to high-end items, from educational items for kids to essentials for family travel or solo travelers, our list has something for everyone whether you travel or do it vicariously via arm chair travel. These are things we have loved!
 
@@ -84,7 +84,7 @@ Exotic Travel Destinations For Families
 
   
 
-[![IMG_0632](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a74f0efe970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a74f0efe970b.jpg)
+![IMG_0632](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a74f0efe970b.jpg)
 
 **CHARITABLE ORGANIZATIONS**
 
@@ -98,7 +98,7 @@ This is a fantastic organization that we have worked with and [seen first hand](
 
 This is the 2nd year for this travel bloggers charity that allows you to possibly win great prizes for just a 10 dollar donation! This year they are building a school in Cambodia for needy kids.  Between my very slow recovering  [paralyzed arm](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html) and our late arrival in Spain, the timing just wasn't good for our full participation, so we had to pass. Unlike most travel bloggers we have been constantly traveling and homeshooling on the road since 2006 and there is only so much time in a day... but we can pass the word around!
 
-[![IMG_1681](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128765243b6970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128765243b6970c.jpg)
+![IMG_1681](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128765243b6970c.jpg)
 
 " Happiness cannot be traveled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude." - Denis Waitley  
 

@@ -19,14 +19,14 @@ tags:
   - "winter-in-spain"
 ---
 
-[![46822872](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32dd7d7b970b.jpg "46822872")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32dd7d7b970b.jpg)Winter Beach Beauty  
+![46822872](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32dd7d7b970b.jpg)Winter Beach Beauty  
 of Southern Spain  
   
 Walking a beautiful, deserted  
 beach on a gorgeous sunny,  
 winter's day on the Costa del
 
-<!--more--> [![boats, beach and bliss on the Costa del Sol in winter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4816010970d.jpg "boats, beach and bliss on the Costa del Sol in winter")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4816010970d.jpg)  
+<!--more--> ![boats, beach and bliss on the Costa del Sol in winter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4816010970d.jpg)  
   
 Walking barefoot on a beautiful, deserted beach on a gorgeous sunny, winter's day on the [Costa del Sol](http://soultravelers3new.local/2010/06/family-travel-tips-in-spains-costa-del-sol-countryside-adventures-mediterranean-beaches-photography-.html "costa del sol tips"), is one of the many pleasures of [wintering in Spain](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "wintering in spain"). With over 300 days of sun a year, [southern Spain](http://soultravelers3new.local/2011/05/best-southern-spain-holiday.html "southern spain holiday") is a popular escape for [European holiday makers](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best european vacations"), since it is one of the few warm spots in Europe. It's off season though, so easy to [avoid any crowd](http://soultravelers3new.local/2010/07/how-to-travel-without-crowds-in-high-season-finding-bargains-peace-value-away-from-tourist-areas-tip.html "avoid crowds when traveling")s.  
   

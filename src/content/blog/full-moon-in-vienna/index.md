@@ -12,13 +12,13 @@ tags:
   - "vienna-moon"
 ---
 
-[![22747865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3feafa27970c.jpg "22747865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3feafa27970c.jpg)Full Moon in Vienna  
+![22747865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3feafa27970c.jpg)Full Moon in Vienna  
   
 Walking along on a magical  
 night in Vienna after a little  
 night music, we spotted a
 
-<!--more--> [![vienna travel moon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35bc04ff970b.jpg "vienna travel moon")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35bc04ff970b.jpg)  
+<!--more--> ![vienna travel moon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35bc04ff970b.jpg)  
   
 Walking along on a magical night in Vienna after [a little night music](http://soultravelers3new.local/2008/02/vienna-a-little.html "vienna - a little night music"), we spotted a glorious full moon nestled in some clouds. After a [serious health challenge while traveling](http://soultravelers3new.local/2007/11/bloody-monday-i.html "serious health challenge while traveling"), it was a relief to be out [exploring Vienna](http://soultravelers3new.local/2007/12/finally-vienna.html "exploring Vienna").  
   

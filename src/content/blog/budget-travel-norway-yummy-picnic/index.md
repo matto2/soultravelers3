@@ -19,14 +19,14 @@ tags:
   - "travel-to-norway"
 ---
 
-[![IMG_7608](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf7869f970c.jpg "IMG_7608")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf7869f970c.jpg)Budget Travel Norway= Yummy Picnic
+![IMG_7608](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf7869f970c.jpg)Budget Travel Norway= Yummy Picnic
 
    
 Want to know how  
 to eat cheaply and  
 healthy when traveling Europe?
 
-<!--more--> [![happy cheap travel in Europe - Norway picnic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f54b70970b.jpg "happy cheap travel in Europe - Norway picnic")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f54b70970b.jpg)  
+<!--more--> ![happy cheap travel in Europe - Norway picnic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f54b70970b.jpg)  
   
  Want to know [how to eat cheaply and healthy when traveling Europe](how%20to eat cheaply and healthy when traveling Europe "how to eat cheaply and healthy while traveling Europe")? Want special memories that will last forever while [traveling with your family](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "amazing around the world family travel ")? Think picnic! Like we did here in Norway near the boats in the charming town of Bergen. We still remember this happy moment as if it was yesterday.  
   

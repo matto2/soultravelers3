@@ -16,7 +16,7 @@ tags:
   - "worlds-best-education"
 ---
 
-[![185406266](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35ba73bd970b.jpg "185406266")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35ba73bd970b.jpg)World School - 
+![185406266](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35ba73bd970b.jpg)World School - 
 Education at it's Best  
   
 What is the best education  
@@ -25,7 +25,7 @@ very best 21st century education
 
 <!--more-->  
   
-[![homeschool and travel - roadschooling in Tahiti](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee75dc042970d.jpg "homeschool and travel - roadschooling in Tahiti")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee75dc042970d.jpg)  
+![homeschool and travel - roadschooling in Tahiti](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee75dc042970d.jpg)  
   
   
 What is the best education in the world? We think the very best 21st century education is global learning, using the world as your classroom and that education is everywhere. There are no limits to worldschooling.  

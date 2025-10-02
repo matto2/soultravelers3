@@ -23,7 +23,7 @@ tags:
   - "world-school"
 ---
 
- [![IMG_1671](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7b6d06970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7b6d06970b.jpg) Family Travel, Homeschool, Education & Global Students  
+ ![IMG_1671](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7b6d06970b.jpg) Family Travel, Homeschool, Education & Global Students  
 April 6, 2008
 
 Family travel is the best education  
@@ -32,7 +32,7 @@ and extended travel internationally,
 
 <!--more-->
 
-[![IMG_1671](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec750443970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec750443970b.jpg)
+![IMG_1671](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec750443970b.jpg)
 
 Family travel is the best education in the world and if you do [slow travel and extended travel internationally](http://soultravelers3new.local/2008/06/how-to-do-exten.html), by [designing a lifestyle that is location independent](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html), the world becomes your classroom.Today it is easier than ever to [give your child a world class education](http://soultravelers3new.local/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html) to prepare them to be global citizens of the 21st century on as little as 23 dollars a day per person.
 
@@ -90,7 +90,7 @@ Some of the most brilliant people [](http://learninfreedom.org/Nobel_hates_schoo
 "As a student in a digital world, tell me again why I need the building? The administration? The system?  
 I don’t. And as accreditation becomes less meaningful because it’s easier to test the student than to test the system, the top heavy organizations will falter. And fast." Seth Godin  
 
-[![IMG_6616](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7bde4f970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7bde4f970b.jpg)  
+![IMG_6616](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7bde4f970b.jpg)  
 _Reading on a train in Norway_  
   
 For us, the only real value to school is [language/culture](http://www.youtube.com/watch?v=ONPYysaauQM) immersion in a foreign land, connecting deeply with [local families through the local schoo](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html)l and [friend consistency](http://www.youtube.com/watch?v=xIoXlRXIRgk) while doing world travel (returning yearly for a few months)...but we also [picked a school](http://soultravelers3new.local/2006/11/first-day-of-sc.html) where we can come or go as we please, do an incomplete school year, & it has a very short school day. We'll do the same when we pick a school in Asia next winter to immerse in Mandarin Chinese.
@@ -101,7 +101,7 @@ How can I connect with my children today, bring joy into their lives, expand the
 
   
 
-[![IMG_6061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7c0a54970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7c0a54970b.jpg)  
+![IMG_6061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7c0a54970b.jpg)  
 _Having lunch and recess with a friend from UK in Barcelona after roadshooling some Singapore math  
 _
 
@@ -116,7 +116,7 @@ I see our digital nomad lifestyle as a great ADVANTAGE in socialization. Our chi
 
 I’m a big fan of [John Taylor Gatto](http://soultravelers3new.local/education.html) (an award winning teacher) & [love this article](http://www.naturalchild.org/guest/john_gatto.html) about why schools don’t educate. One of the worse things about schools (and the typically busy, over scheduled American life)  is that they leave no time to develop a sense of self. Schools were made for industrialization and simply no longer work for what we need in these [exponential times](http://www.youtube.com/watch?v=PHmwZ96_Gos&feature=related) of the 21st century.
 
-[![IMG_9079](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7e934a970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7e934a970b.jpg)  
+![IMG_9079](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7e934a970b.jpg)  
 _A full day of bike explorations in a huge park in Dublin with an Irish friend_
 
 I talked about this in one of our very first posts called ["Timing Is Everything"](http://soultravelers3new.local/2006/08/timing-is-eve-1.html). We believe in the value of [attachment parenting](http://en.wikipedia.org/wiki/Attachment_parenting)  not only for [babies](http://www.compleatmother.com/attachment.htm) ,but as a way of life since [parents are much more important than peers](http://www.amazon.com/Hold-Your-Kids-Parents-Matter/dp/0375760288/ref=sr_1_1?ie=UTF8&s=books&qid=1270561951&sr=1-1) and conscious [parenting can help create a more peaceful world.](http://www.youtube.com/watch?v=cp8tKUQtEsk) 
@@ -128,7 +128,7 @@ I talked about this in one of our very first posts called ["Timing Is Everything
   
 In the next decade 60% of schools will be virtual. More and more jobs will be virtual as well. Flexible out-of-the-box multi-lingual global thinking citizens will do better in our coming world. The more we do this, the more I see what a fabulous way it is to learn and prepare for the future.
 
-[![IMG_5344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347faf57b9970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347faf57b9970c.jpg)  
+![IMG_5344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347faf57b9970c.jpg)  
 _Feeding and catching baby ducklings in Bordeaux, France with friends from several countries_
 
   
@@ -146,7 +146,7 @@ We are strong believers in child led learning, that we are ALWAYS learning and t
 
 Our child is an advanced learner so can go at her own pace which is many years above her grade level. We homeschool a small amount daily at her level in English all year round and also use the local school in Spain for 4/5 months out of the year for deep immersion into her 2nd language, literature & culture. We discussed [more homeschooling details in this post](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html#more).
 
-[![IMG_9573](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7f82dd970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7f82dd970b.jpg)_  
+![IMG_9573](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec7f82dd970b.jpg)_  
 "World schooling" on a train ride in the UK, writing about recent events & reading_  
 
 We plan to also immerse her into a 3rd language-Mandarin Chinese in the same way when we get to Asia this fall. Much of her homeschooling is done through her [reading (geared to our travels](http://soultravelers3new.local/2009/10/family-travel-photo-finland-books-library-travel-with-kids-homeschool.html)) & other ways where she just thinks she is having fun. Below I will leave links including a great one about books that are fantastic  to combine with travel and an exciting thread (rich with links) about homeshooling/roadschooling/worldschooling older children including teens and tweens.
@@ -155,7 +155,7 @@ We also do her piano and violin lessons via Skype webcam from two different  te
 
 **Tips for getting started:** Read [John Taylor Gatto](http://en.wikipedia.org/wiki/John_Taylor_Gatto) and [John Holt](http://en.wikipedia.org/wiki/John_Holt_%28educator%29) (”father” of unschooling).
 
-[![IMG_6035](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347fafaae0970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347fafaae0970c.jpg)  
+![IMG_6035](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301347fafaae0970c.jpg)  
 _World schooling in Barcelona between swimming, biking & playing with friends_
 
 **Recommended Links:**

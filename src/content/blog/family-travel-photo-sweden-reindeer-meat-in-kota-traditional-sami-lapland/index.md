@@ -7,7 +7,7 @@ categories:
   - "sweden"
 ---
 
-[![IMG_3986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570a6c70d970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570a6c70d970b.jpg) Family Travel Photo - Sweden  
+![IMG_3986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570a6c70d970b.jpg) Family Travel Photo - Sweden  
 May 26, 2009
 
 Cooking reindeer meat over an open  
@@ -16,7 +16,7 @@ makes a perfect family travel moment
 
 <!--more-->
 
-[![IMG_3986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570a6c5cd970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570a6c5cd970b.jpg)
+![IMG_3986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570a6c5cd970b.jpg)
 
   
 Cooking reindeer meat over an open fire in a Kota with friends in Sweden makes a perfect family travel moment as you can see by the expression on the kid's faces! A kota is a [traditional Lapland or Sami home](http://en.wikipedia.org/wiki/Sami_people) and reindeer meat is [delicious](http://en.wikipedia.org/wiki/Swedish_cuisine) and tastes a lot like good beef. We all took a fun tractor ride through the  idyllic countryside to arrive and depart, which added to the adventure.

@@ -17,13 +17,13 @@ tags:
   - "photo-of-paris"
 ---
 
-[![IMG_3720](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc2f203c970d.jpg "IMG_3720")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc2f203c970d.jpg)Dramatic Paris
+![IMG_3720](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc2f203c970d.jpg)Dramatic Paris
 
 Paris, "The City of Light,  
 (La Ville-Lumiere) is  
 amazing when the sun  
 
-<!--more--> [![dramatic paris photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc2f2080970d.jpg "dramatic paris photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc2f2080970d.jpg)  
+<!--more--> ![dramatic paris photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc2f2080970d.jpg)  
   
 [Paris](http://soultravelers3new.local/2006/09/paris-bois-de-b.html "Paris"), "The City of Light, ( La Ville-Lumiere) is amazing when the sun is out and the temperature is just right and we've been blessed to experience it many times at it's best. Sublime. But like London and most of northern Europe, it's not known for it's great weather.  
   

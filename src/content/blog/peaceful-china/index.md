@@ -18,13 +18,13 @@ tags:
   - "visiting-china"
 ---
 
-[![IMG_9470](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cfb9b970c.jpg "IMG_9470")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cfb9b970c.jpg)Peaceful China  
+![IMG_9470](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cfb9b970c.jpg)Peaceful China  
   
 Willow tree, the color red,  
 misty morning and shimmering  
 reflection of Beijing houses on
 
-<!--more--> [![Beautiful old China photgraphs like a painting](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cfc18970c.jpg "Beautiful old China photgraphs like a painting")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cfc18970c.jpg)  
+<!--more--> ![Beautiful old China photgraphs like a painting](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cfc18970c.jpg)  
   
   
 Willow tree, the color red, misty morning and shimmering reflection of [Beijing houses](http://soultravelers3new.local/2012/11/real-beijing-hutong-nights.html#more "beijing houses in hutong") on a still river makes an idyllic oriental scene as peaceful as a painting.  

@@ -8,14 +8,14 @@ categories:
   - "health-and-travel"
 ---
 
-[![IMG_4072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176161bf344970c.jpg "IMG_4072")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176161bf344970c.jpg)Where To Buy  
+![IMG_4072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176161bf344970c.jpg)Where To Buy  
 Organic Food in Penang
 
 Let me tell you, it is a  
 LOT harder to find and buy  
 organic food around the world
 
-<!--more--> [![IMG_4072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ee1c53970d.jpg "IMG_4072")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ee1c53970d.jpg)  
+<!--more--> ![IMG_4072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ee1c53970d.jpg)  
   
   
 Let me tell you, it is a LOT harder to find and buy [organic food around the world](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic food around the world") than it is to do that in [California](http://soultravelers3new.local/2012/02/beautiful-capitola-californias-oldest-beach.html "California beach"). The endless variety of healthy food choices in California is almost obscene! I was gobsmacked on our recent visit when I went into the gigantic healthfood stores..( after [traveling the world](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling the world") so long away from such [consumer overwhelm](http://soultravelers3new.local/2011/08/reverse-culture-shock-usa-over-consumerism.html "consumer overwhelm")).  

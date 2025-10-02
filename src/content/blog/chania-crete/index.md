@@ -15,7 +15,7 @@ beaches. We got a cute room with lovely sea views and terrace
 
 <!--more-->
 
-[![Img_9204](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9204.png "Img_9204")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9204.png)
+![Img_9204](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9204.png)
 
 Chania, Xania, Hania are all names for the old capital in Crete with its  charming, softly hued Venetian buildings, lovely harbor and idyllic beaches. We got a cute room with lovely sea views and terrace in a quiet section of the old town on attractive Theotokopoulou street, close to everything. It was called Nora’s Pension and only thirty euros per night.
 
@@ -35,26 +35,26 @@ The next day we came across a stand that has those funny little colorful string 
 
 We all enjoyed our relaxing stay in Chania and are very grateful that we did not miss it and at least got a taste of Crete. There are lots of large chain “holiday” hotels along beaches on the other side of the island (where most tourists go) but we were more than happy to miss that as it is not really our style. We did not even care for the new town of Chania which was typical modern European blight without any charm, but the old town was a joy to explore and experience.
 
-[![Img_9171](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9171.png "Img_9171")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9171.png)
+![Img_9171](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9171.png)
 
-[![Img_9179](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9179.png "Img_9179")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9179.png)
+![Img_9179](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9179.png)
 
-[![Img_9182](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9182.png "Img_9182")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9182.png)
+![Img_9182](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9182.png)
 
-[![Img_9191](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9191.png "Img_9191")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9191.png)
+![Img_9191](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9191.png)
 
-[![Img_9195](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9195.png "Img_9195")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9195.png)
+![Img_9195](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9195.png)
 
-[![Img_9188](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9188.png "Img_9188")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9188.png)
+![Img_9188](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9188.png)
 
-[![Img_9197](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9197.png "Img_9197")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9197.png)
+![Img_9197](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9197.png)
 
-[![Img_9208](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9208.png "Img_9208")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9208.png)
+![Img_9208](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9208.png)
 
-[![Img_9216](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9216.png "Img_9216")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9216.png)
+![Img_9216](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9216.png)
 
-[![Img_9225](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9225.png "Img_9225")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9225.png)
+![Img_9225](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9225.png)
 
-[![Img_9277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9277.png "Img_9277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9277.png)
+![Img_9277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9277.png)
 
-[![Img_9443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9443.png "Img_9443")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9443.png)
+![Img_9443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9443.png)

@@ -17,13 +17,13 @@ tags:
   - "what-is-punting"
 ---
 
-[![IMG_1735](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d5c143970b.jpg "IMG_1735")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d5c143970b.jpg)Punting in Cambridge
+![IMG_1735](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d5c143970b.jpg)Punting in Cambridge
 
 Looking for fun family travel  
 while visiting England? Don't  
 miss punting when you visit
 
-<!--more--> [![Family travel fun in Cambridge on a punt](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617439a86970c.jpg "Family travel fun in Cambridge on a punt")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617439a86970c.jpg)  
+<!--more--> ![Family travel fun in Cambridge on a punt](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617439a86970c.jpg)  
   
   
 Looking for fun [family travel while visiting England](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "fun family travel England")? Don't miss punting when you visit Cambridge as the historic college "backs" are a world famous tourist attraction and traditional way to get around.  

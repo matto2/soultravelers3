@@ -18,13 +18,13 @@ tags:
   - "travel-health-china"
 ---
 
-[![IMG_6664](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4fa2ca2970d.jpg "IMG_6664")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4fa2ca2970d.jpg)China Parks and Martial Arts  
+![IMG_6664](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4fa2ca2970d.jpg)China Parks and Martial Arts  
   
 Can we learn about  
 travel fitness and travel  
 health from the Chinese?
 
-<!--more--> [![Tai Chi in Beijing parks - Chinese exercise and health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4fa2d34970d.jpg "Tai Chi in Beijing parks - Chinese exercise and health")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4fa2d34970d.jpg)  
+<!--more--> ![Tai Chi in Beijing parks - Chinese exercise and health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4fa2d34970d.jpg)  
   
 Can we learn about [travel fitness](http://soultravelers3new.local/2012/08/exercise-and-travel-how-to-stay-in-shape-while-traveling.html "travel fitness") and [travel health](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") from the Chinese?  
   

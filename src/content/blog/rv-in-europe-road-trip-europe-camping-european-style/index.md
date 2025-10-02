@@ -17,14 +17,14 @@ tags:
   - "rv-in-europe"
 ---
 
-[![IMG_1292](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015438383a55970c.jpg "IMG_1292")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015438383a55970c.jpg)RV in Europe - Road Trip Europe - 
+![IMG_1292](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015438383a55970c.jpg)RV in Europe - Road Trip Europe - 
 Camping European Style
 
 Most American's don't  
 realize that one of the  
 best and cheapest ways
 
-<!--more--> [![Our Motorhome in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015438383aa1970c.jpg "Our Motorhome in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015438383aa1970c.jpg)  
+<!--more--> ![Our Motorhome in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015438383aa1970c.jpg)  
   
   
 Most American's don't realize that one of the [best and cheapest ways to see Europe](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "best and cheapest way to see Europe") is with a motorhome, van or small RV. A motorhome is a especially useful and ideal for families, couples or small group of friends as they are both transportation and accommodation and one of the best ways to meet other Europeans. We travel the world on just $23/day per person and you can too!  

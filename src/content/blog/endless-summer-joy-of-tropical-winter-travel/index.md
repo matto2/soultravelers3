@@ -20,14 +20,14 @@ tags:
   - "winter-vacation"
 ---
 
-[![IMG_6901](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee41d0b9a970d.jpg "IMG_6901")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee41d0b9a970d.jpg)Endless Summer - Joy of  
+![IMG_6901](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee41d0b9a970d.jpg)Endless Summer - Joy of  
 Tropical Winter Travel  
   
 Clear turquoise water, palm trees,  
 sea breezes, walking barefoot on  
 the white sand, relaxing in the sun
 
-<!--more--> [![best winter vacation escape to tropical paradise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c327940ed970b.jpg "best winter vacation escape to tropical paradise")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c327940ed970b.jpg)  
+<!--more--> ![best winter vacation escape to tropical paradise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c327940ed970b.jpg)  
   
 Clear turquoise water, palm trees, sea breezes, walking barefoot on the white sand, [relaxing in the sun](http://soultravelers3new.local/2012/07/sun-for-its-health-benefits-.html "sun health benefits") by the pool is the perfect [tropical travel dream](http://soultravelers3new.local/2011/11/florida-family-vacation-fun.html "tropcial travel dream Florida vacation") for someone who wants to escape a cold winter. Brrr, before the winter blues set in and with the [holidays just around the corner](http://soultravelers3new.local/2011/12/christmas-holiday-travel-ideas-for-family-getaways.html "christmas holiday getaway vacation ideas"), perhaps it's time to plan that [winter getaway!](http://soultravelers3new.local/2012/01/florida-sun-winter-getaway.html "winter getaway florida") You don't have to live a t[ravel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "travel lifestyle") like us to enjoy this perk.  
   

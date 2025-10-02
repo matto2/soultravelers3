@@ -10,13 +10,13 @@ tags:
   - "take-kids-to-hamleys"
 ---
 
-[![IMG_0870](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302ba6019970d.jpg "IMG_0870")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302ba6019970d.jpg)Travel, Kids, London? Hamleys Toy Store
+![IMG_0870](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302ba6019970d.jpg)Travel, Kids, London? Hamleys Toy Store
 
 If you are going to London  
 as a family with kids, don't  
 miss the iconic Hamleys
 
-<!--more--> [![travel kid playing at Hamleys in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8af833c970c.jpg "travel kid playing at Hamleys in London")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8af833c970c.jpg)  
+<!--more--> ![travel kid playing at Hamleys in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8af833c970c.jpg)  
   
   
 If you are going to London as a family with kids, don't miss the iconic [Hamleys Toy Shop](http://www.hamleys.com/ "hamleys") on Regent Street as it has been a London landmark and opened since 1881. There are seven floors of fun which will please any child or child at heart.  

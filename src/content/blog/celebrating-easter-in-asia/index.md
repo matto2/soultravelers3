@@ -8,13 +8,13 @@ tags:
   - "holidays-abroad"
 ---
 
- [![Heavenly_easterhat](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e18c70b970b.jpg "Heavenly_easterhat")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e18c70b970b.jpg) Celebrating Easter in Asia  
+ ![Heavenly_easterhat](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e18c70b970b.jpg) Celebrating Easter in Asia  
   
 Celebrating Easter while  
 traveling as a family is  
 now our normal way of life
 
-<!--more--> [![celebrating Easter in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e880c724e970d.jpg "celebrating Easter in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e880c724e970d.jpg)  
+<!--more--> ![celebrating Easter in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e880c724e970d.jpg)  
   
   
 Celebrating Easter while [traveling as a family](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling as a family") is now our normal way of life and we had a good one here in tropical Asia as we prepare for next week's take off to Singapore, Bangkok, Bhutan, and Jordan on our way back to [Europe for the summer](http://soultravelers3new.local/2010/06/grand-tour-europe-iv-family-travel-extended-vacation-road-trip-summer-holiday-abroad.html "Europe for the summer road trip"). We arrived in Asia around [Thanksgiving](http://soultravelers3new.local/2010/11/first-thanksgiving-in-asia.html "Thanksgiving abroad"), had a great [Christmas](http://soultravelers3new.local/2010/12/first-christmas-in-asia.html "christmas abroad") and now it's time to hit the road again. I wrote about [celebrating Christmas abroad](http://soultravelers3new.local/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "celebrating Christmas abroad") a while ago, but Easter abroad is basically the same message.  

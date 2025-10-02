@@ -16,13 +16,13 @@ tags:
   - "traveling-china-and-english"
 ---
 
-[![IMG_7311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c10e60970d.jpg "IMG_7311")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c10e60970d.jpg)China Bridge, Summer Palace  
+![IMG_7311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c10e60970d.jpg)China Bridge, Summer Palace  
   
 This beautiful red bridge in China's  
 ancient Summer Palace near  
 Beijing with Mozart on it, reminds
 
-<!--more--> [![beautiful bridge and being a bridge through language](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c10e9f970d.jpg "beautiful bridge and being a bridge through language")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c10e9f970d.jpg)  
+<!--more--> ![beautiful bridge and being a bridge through language](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c10e9f970d.jpg)  
   
 This beautiful red bridge in [China's ancient Summer Palace](http://soultravelers3new.local/2012/11/-summer-palace-sunset-in-beijing-china.html "china summer palace ") near [Beijing](http://soultravelers3new.local/2012/11/babies-in-beijing-china-travel-joy.html "Beijing travel") with Mozart on it, reminds me how she can be a bridge between East and West, thanks to her [Mandarin](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "learning Mandarin in China").  
   

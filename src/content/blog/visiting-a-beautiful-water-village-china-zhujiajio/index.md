@@ -18,14 +18,14 @@ tags:
   - "zhujiajio-travel"
 ---
 
-[![IMG_0162](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5a9a11c970d.jpg "IMG_0162")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5a9a11c970d.jpg)Visiting a Beautiful  
+![IMG_0162](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5a9a11c970d.jpg)Visiting a Beautiful  
 Water Village China - Zhujiajio
 
 Some call it the Venice  
 of China and when you  
 go on the little boats, one
 
-<!--more--> [![beutiful boat Zhujiajio, china water village near Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3405f6f9970b.jpg "beutiful boat Zhujiajio, china water village near Shanghai")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3405f6f9970b.jpg)  
+<!--more--> ![beutiful boat Zhujiajio, china water village near Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3405f6f9970b.jpg)  
   
 Some call it the [Venice](http://soultravelers3new.local/2007/05/venezia.html "venice italy") of [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "visit china") and when you go on the little boats, one can see exactly where it got that name and it did remind of us our time on [gondolas in Italy](http://soultravelers3new.local/2007/05/gotta-do-gondol.html "gondolas in Italy- venice"). Zhujiajio is an exciting ancient town with bridges and roads from the Ming ( 1368 -1644) and Qing ( 1636 -1911)  dynaasties.  
   

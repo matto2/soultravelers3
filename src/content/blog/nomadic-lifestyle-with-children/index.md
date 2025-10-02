@@ -22,13 +22,13 @@ tags:
   - "world-schooling"
 ---
 
-[![IMG_2898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767632338970b.jpg "IMG_2898")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767632338970b.jpg)Nomadic Lifestyle With Children
+![IMG_2898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767632338970b.jpg)Nomadic Lifestyle With Children
 
 Can you live a nomadic  
 life with children in a  
 way that will enrich them and
 
-<!--more--> [![nomadic travel lifestyle with kids means friends around the world in several languages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163066f67c6970d.jpg "nomadic travel lifestyle with kids means friends around the world in several languages")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163066f67c6970d.jpg)  
+<!--more--> ![nomadic travel lifestyle with kids means friends around the world in several languages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163066f67c6970d.jpg)  
   
 Can you live a [nomadic lifestyle with children](http://soultravelers3new.local/2008/06/how-to-do-exten.html "How to live a nomadic travel life with children") in a way that will enrich them and prepare them for our fast changing world? Of course! It's easier today than ever before and there are many different ways to do this. We had our [fears](http://soultravelers3new.local/2011/10/travel-distasters-vacation-nightmares.html "travel disasters and fears") and uncertainties before [world traveling with a school age child](http://soultravelers3new.local/2012/04/best-friends-around-the-world-traveling-with-school-age-kids.html "world traveling with a school age child"), but are so grateful for the amazing and beautiful people and places we have experienced [around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world family travel").  
   

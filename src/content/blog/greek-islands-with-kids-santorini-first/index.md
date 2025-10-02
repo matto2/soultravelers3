@@ -17,13 +17,13 @@ tags:
   - "visiting-greek-islands-with-kids"
 ---
 
-[![IMG_8903](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea215559970c.jpg "IMG_8903")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea215559970c.jpg)Greek Islands With Kids
+![IMG_8903](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea215559970c.jpg)Greek Islands With Kids
 
 The Greek Islands  
 are beautiful and romantic,  
 but amazingly kid friendly
 
-<!--more--> [![gorgeous sunset in the Greek Islands Santorini](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163042bdc0c970d.jpg "gorgeous sunset in the Greek Islands Santorini")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163042bdc0c970d.jpg)  
+<!--more--> ![gorgeous sunset in the Greek Islands Santorini](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163042bdc0c970d.jpg)  
   
 The [Greek Islands](http://soultravelers3new.local/greece/ "greek islands") are beautiful and romantic, but amazingly kid friendly as well and can be done luxuriously on a low budget. Gorgeous, diverse beaches ( black, red, white sand); picturesque, walkable towns; healthy, yummy food; easy transportation ( be it ferry, bus or plane); wonderful culture and educational opportunities and warm locals make it an ideal family vacation destination.  
   

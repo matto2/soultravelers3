@@ -20,7 +20,7 @@ tags:
   - "wintering-in-penang"
 ---
 
- [![IMG_4556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6eec457970c.jpg "IMG_4556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6eec457970c.jpg) How to Rent a Tropical Winter  
+ ![IMG_4556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6eec457970c.jpg) How to Rent a Tropical Winter  
 Home In Penang, Malaysia
 
 Want to escape the cold  
@@ -29,7 +29,7 @@ winter in Penang, Malaysia where
 
 <!--more-->
 
-[![penang sea view from our winter home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4bc8d970b.jpg "penang sea view from our winter home")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4bc8d970b.jpg)  
+![penang sea view from our winter home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4bc8d970b.jpg)  
   
 
 Want to escape the cold and snow? Ready for the ideal location independent lifestyle design, global digital nomad style or technomad neo minimalism in Asia?  Consider a [tropical winter](http://soultravelers3new.local/2010/12/tropical-christmas-abroad-in-asia.html "tropical winter") rental apartment  in Penang, Malaysia where the weather is perfect and you can swim at the beach or your pool all winter long. See also:  
@@ -45,15 +45,15 @@ Historic [Georgetown,](http://en.wikipedia.org/wiki/George_Town,_Penang "georget
 **BEAUTIFUL, CHEAP, WARM, EASY, FABULOUS FOOD, GREAT INTERNET, HISTORIC, CULTURE, FRIENDLY, SAFE, STABLE, ENGLISH SPEAKING  
 **
 
-[![tropical plants at our Penang resort in Malayisa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c01b970b.jpg "tropical plants at our Penang resort in Malayisa")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c01b970b.jpg)  
+![tropical plants at our Penang resort in Malayisa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c01b970b.jpg)  
   
 
-[![relaxing in the Jacuzzi at our Penang resort home in Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c276970b.jpg "relaxing in the Jacuzzi at our Penang resort home in Malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c276970b.jpg)  
+![relaxing in the Jacuzzi at our Penang resort home in Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c276970b.jpg)  
   
 
-[![tropical flowers at our Penang home in December](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c3dd970b.jpg "tropical flowers at our Penang home in December")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c3dd970b.jpg)
+![tropical flowers at our Penang home in December](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4c3dd970b.jpg)
 
-[![view of our Penang resort pools from our terrace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4d0c8970b.jpg "view of our Penang resort pools from our terrace")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4d0c8970b.jpg)
+![view of our Penang resort pools from our terrace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0e4d0c8970b.jpg)
 
 **LOOKING FOR AN IDEAL LOCATION INDEPENDENT PLACE TO WINTER?**
 
@@ -61,17 +61,17 @@ As many of our readers know, we have spent the last four [winters "Mediterranean
 
  We really enjoyed our time in Spain, so I was looking for a similar set up ( which was also not too dissimilar to  our warm, sunny winters in a small, family -friendly  town in California). I had found a real estate person online for Penang & talked to her via email about six months before arrival, so knew that we could easily find something nice in our price range which was 400 to 700 dollars a month for a high end, fully furnished,  3 bedroom home or apartment.
 
-[![tranquil ocean view from our winter home in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6eeff2c970c.jpg "tranquil ocean view from our winter home in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6eeff2c970c.jpg)
+![tranquil ocean view from our winter home in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6eeff2c970c.jpg)
 
 Once I knew that, I didn't do any more as I knew it could be easily handled on the ground once we arrived ( and I had 14 stops before that so [enough on my plate](http://soultravelers3new.local/2010/12/mourning-while-traveling-tribute-to-al-grief-and-travel-deathdying-at-a-distance.html?cid=6a00e5502a950788330148c6782e6f970c "enough on my plate") to look at). You can find an apartment or rental MUCH cheaper ( I've seen ads from 12 dollars to 100 dollars a month for [studios or private rooms](http://www.caribilik.my/rooms/penang "penang room rentals") in a home), but we wanted a three bedroom, 2 bathroom, large, luxurious home for the winter, so we went for the higher price ( about 700 dollars a month rent) when we fell in love with this one with spectacular ocean views from every room.( A FAR inferior, smaller,  unfurnished 2 bedroom rental with no views, cost us $1700.00 a month in California before we left in 2005, after we sold our home).
 
 **LUXURY BEACH RENTAL IN PENANG**
 
-[![luxury rental apartment in Penang,Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f19259970c.jpg "luxury rental apartment in Penang,Malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f19259970c.jpg)
+![luxury rental apartment in Penang,Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f19259970c.jpg)
 
-[![partial view of kitchen in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f193e7970c.jpg "partial view of kitchen in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f193e7970c.jpg)
+![partial view of kitchen in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f193e7970c.jpg)
 
-[![sunrise view from our apartment in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f1980d970c.jpg "sunrise view from our apartment in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f1980d970c.jpg)
+![sunrise view from our apartment in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6f1980d970c.jpg)
 
 **SUPER EASY TO FIND A FURNISHED RENTAL APARTMENT OR HOUSE IN PENANG**
 
@@ -79,13 +79,13 @@ We did not have a place to stay when we arrived, nor an apartment lined up, but 
 
  **WHAT 700 DOLLARS A MONTH BUYS YOU FOR LUXURY RENTAL IN PENANG**
 
-[![Partial view of dining area in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e19d1970b.jpg "Partial view of dining area in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e19d1970b.jpg)
+![Partial view of dining area in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e19d1970b.jpg)
 
-[![Our child's bedroom and desk in our  Penang home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e1b0b970b.jpg "Our child's bedroom and desk in our  Penang home")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e1b0b970b.jpg)
+![Our child's bedroom and desk in our  Penang home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e1b0b970b.jpg)
 
-[![partial view workout room in penang resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c7378612970c.jpg "partial view workout room in penang resort")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c7378612970c.jpg)
+![partial view workout room in penang resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c7378612970c.jpg)
 
-[![dining room and distant bedrooms in Penang home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e493c970b.jpg "dining room and distant bedrooms in Penang home")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e493c970b.jpg)
+![dining room and distant bedrooms in Penang home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e12e493c970b.jpg)
 
 **OUR PENANG APARTMENT DETAILS**
 
@@ -93,12 +93,12 @@ We chose a large, over 1250 square feet, 3 bedroom, 2 bathroom apartment in a to
 
 There are two large bathrooms with two showers and one bathtub and both have heated water (an extra in Asia). It's air conditioned in every room, but we have yet to use it as the weather has been a perfect 75 to 85, almost always sunny and we get wonderful, cool cross breezes day and night from being so close to the sea. There are ceiling fans in every room, but we tend to just use the living room one during the day and our bedroom at night, (they're just not needed). Haven't gotten our electric or water bill, but our friends say it is almost nothing and they used the air conditioning every night. I had heard many horror stories about the heat and humidity in Asia so I'm very happy to find it so pleasantly perfect. We've slept with light blankets every night. There is a large vestibule with two doors at the entrance ( which is usually kept open), where one traditionally keeps shoes in a cabinet as people here do not use them inside the home, (a normal custom for us as well).
 
-[![kids playground in penang resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e141d079970b.jpg "kids playground in penang resort")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e141d079970b.jpg)
+![kids playground in penang resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e141d079970b.jpg)
 
-[![our junggle queen playing on water slide in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74b5101970c.jpg "our junggle queen playing on water slide in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74b5101970c.jpg)  
+![our junggle queen playing on water slide in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74b5101970c.jpg)  
   
 
-[![playing with friends in Penang resort water slide](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74b46ff970c.jpg "playing with friends in Penang resort water slide")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74b46ff970c.jpg)
+![playing with friends in Penang resort water slide](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74b46ff970c.jpg)
 
 **ADVANTAGES TO LIVING IN A LUXURY RESORT IN PENANG**
 
@@ -110,23 +110,23 @@ Adults can sunbathe, swim laps, take water aerobics classes, talk with other par
 
 **SHOPPING MALLS AND MOVIES IN PENANG**
 
-[![Penang Mall](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e142f5d2970b.jpg "Penang Mall")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e142f5d2970b.jpg)
+![Penang Mall](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e142f5d2970b.jpg)
 
 There are two HUGE modern malls nearby, that are bigger than the malls in Silicon Valley, which is astounding because Penang is a very small island (with a long bridge to the mainland).  There is not much that you can not find here and most of it is exceedingly cheap. English is everywhere since there are 3 cultures in Malaysia and that is the common language, thus much easier than Europe in that way and an endless supply of both English and Chinese books for all ages. Shopping, movies and food seem to be passionate pleasures for Asians. The movie theaters are grand with the latest movies and treats with ridiculously low prices like 2 dollars for the latest hit movie.  Or as DaVinci says, "This is what things should cost". Since we haven't seen any English movies in 5 years, this has become a once a week family treat for us.
 
 **PENANG'S IS WORLD FAMOUS FOR IT'S DELICIOUS FOOD**
 
-[![Penang cuisine](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74c8e92970c.jpg "Penang cuisine")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74c8e92970c.jpg)
+![Penang cuisine](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74c8e92970c.jpg)
 
-[![visiting the famous night food markets in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74c8fe0970c.jpg "visiting the famous night food markets in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74c8fe0970c.jpg)
+![visiting the famous night food markets in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c74c8fe0970c.jpg)
 
-[![world famous food in penang, malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a7312970b.jpg "world famous food in penang, malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a7312970b.jpg)
+![world famous food in penang, malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a7312970b.jpg)
 
 [Penang is world famous for it's food](http://hubpages.com/hub/Penangs_Food "penang is famous for it's food") and Hawkers Markets ( according to Time Magazine, Lonely Planet and many publications) and I will be writing more about this in detail. They say it is the best food in Asia. Singaporeans drive 9 hours just to eat this food as a special treat. Many people fly into here just for the food. Although the Chinese are a big majority here in Penang, there are 3 dominant cultures in Malaysia, so one finds a huge variety of good food, some of the best Chinese, Indian and Malay food as well as delicious Korean, Japanese, Thailand ( very close border) and even western restaurants.
 
-[![yummy fresh papaya in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14318ef970b.jpg "yummy fresh papaya in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14318ef970b.jpg)
+![yummy fresh papaya in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14318ef970b.jpg)
 
-[![growing organic herbs in our winter garden on our terrace in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e147a936970b.jpg "growing organic herbs in our winter garden on our terrace in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e147a936970b.jpg)
+![growing organic herbs in our winter garden on our terrace in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e147a936970b.jpg)
 
 **PLEASURES OF HOME COOKING AND GARDENING & LEARNING TO COOK CHINESE**
 
@@ -134,7 +134,7 @@ It is common in Asia to eat many or most meals out as it is almost as cheap as m
 
 **MONEY!** **MONEY!** **MONEY!**
 
-[![Collecting money for rental deposit](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c7517319970c.jpg "Collecting money for rental deposit")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c7517319970c.jpg)  
+![Collecting money for rental deposit](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c7517319970c.jpg)  
   
  
 
@@ -174,7 +174,7 @@ LARGE CARMELED POPCORN AT MOVIES:    $1.60 for a large
 
 SOOTHING CHAIR MASSAGE:    .30 cents
 
-[![blond american girl in mandarin chinese school in penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e148f8f6970b.jpg "blond american girl in mandarin chinese school in penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e148f8f6970b.jpg)
+![blond american girl in mandarin chinese school in penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e148f8f6970b.jpg)
 
 **HIGH QUALITY LIFE AT LOW PRICES**
 
@@ -202,13 +202,13 @@ We came primarily because it is a fantastic place to immerse deeply in Mandarin 
 
 \* Safe and very expat friendly (easy to get long stay visa or do visa runs)
 
-[![Watching cruise ships out my window in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a1942970b.jpg "Watching cruise ships out my window in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a1942970b.jpg)
+![Watching cruise ships out my window in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a1942970b.jpg)
 
 **MALAYSIA RANKS AS BEST PLACE TO RETIRE IN ASIA**
 
 The first time at a place is always hardest (next year will be a piece of cake) but  Penang is well set up to easily find a rental home very quickly as there are a ton available. One of the attractions here for us and many is [Malaysia's My Second Home Programme](http://www.mm2h.gov.my/ "malaysias my second home programme") which makes it very appealing to expats from around the world. We may or may not ever get involved with their program but the advantages are so fantastic, that it seems a wise move to pick this spot as a long stay option to get to know better, should we later want to participate. We like to winter in places that have good future potential, thus learning Mandarin in Penang made lots more sense than China. Penang is a popular spot for visitors from Australia, New Zealand, Hong Kong, Korea, Russia, Eastern Europe, UK, Taiwan and more. That said, although there are many Caucasians at our resort, out and about, we are usually the only Caucasians in sight on buses, planes, stores, movies or in the mall etc, but it has never been a problem so we feel very comfortable.
 
-[![tropical flowers at our resort in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a1b89970b.jpg "tropical flowers at our resort in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a1b89970b.jpg)
+![tropical flowers at our resort in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e14a1b89970b.jpg)
 
 **QUESTIONS?**
 

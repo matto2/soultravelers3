@@ -8,7 +8,7 @@ categories:
   - "health-and-travel"
 ---
 
-[![Img_5631](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_5631.jpg "Img_5631")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_5631.jpg) How To Eat Healthy & Cheap Traveling Europe!  
+![Img_5631](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_5631.jpg) How To Eat Healthy & Cheap Traveling Europe!  
 September 12, 2008
 
 We have found it quite easy to eat  
@@ -23,7 +23,7 @@ We have found it quite easy to eat delicious, nutritious food on a very tight bu
 
 It is important when traveling on a budget, especially doing extended travel, to make sure that one is eating well and making sure the family is eating high quality food. Often people on a budget make compromises with food, but it can backfire in the long run and make you more susceptible to illness.
 
-[![Img_0037](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_0037.jpg "Img_0037")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_0037.jpg)
+![Img_0037](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_0037.jpg)
 
 Our life is one big vacation,  so it is also easier to be bombarded by expensive and poor food quality temptations that are everywhere that tourists go and especially tempting to children. We gave into a few too many ice creams last year for Mozart and wanted to be more conscious this year with our eating.
 
@@ -67,7 +67,7 @@ We buy more veggies for a longer stay and have a three tiered collapsible basket
 
 We do shop in health food stores sometimes which can be more expensive, but we usually make several meals with more expensive items so that they too become budget items. If we are stopped long enough, we will buy some chicken from a butcher and barbecue it for several meals. Sometimes we buy a whole roasted chicken which is a more expensive item, but sometimes more convenient for us. We usually get three, four or more primary meals out of that chicken, so that makes it much more economical.
 
-[![Img_5050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_5050.jpg "Img_5050")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_5050.jpg)
+![Img_5050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_5050.jpg)
 
 We also get four or five meals out of one package of spelt pasta ( we often chop spaghetti up into small pieces for the soup) so that too becomes very economical. We have gone to butchers and fish markets all over the world and they all work pretty similarly and gives us another chance to connect with locals.
 
@@ -96,7 +96,7 @@ My online friend [Squawkfox has a neat article](http://www.squawkfox.com/2008/07
 
 I am not sure what we spend on food on an average day, but we eat very well on very little money, even in expensive countries. It is hard to figure out precisely by the day, as we tend to buy things in bulk when we can when prices are good at the hypermarkets, farm stands, or markets. We estimate that our average daily food costs about five to seven dollars a day total for a family of three. Not per person, but for all of us. Sometimes it's probably only two dollars a day for our family and  possibly up to ten dollars on days where we make lots of exceptions and indulge in extras.
 
-[![Img_5612](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_5612.jpg "Img_5612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_5612.jpg)
+![Img_5612](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/11/img_5612.jpg)
 
 This allows us to splurge once in a while on a great meal out, although we usually do that at lunch time when it is a better deal and we try to eat where the locals recommend and not in the touristy areas where many restaurants are rip offs and the food is lousy.
 

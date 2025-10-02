@@ -7,7 +7,7 @@ categories:
   - "italy"
 ---
 
- [![IMG_5215](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571427982970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571427982970c.jpg) Family Travel Photo- Italy  
+ ![IMG_5215](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571427982970c.jpg) Family Travel Photo- Italy  
 July 27, 2009
 
 Ah, Portofino! It has been over 25  
@@ -16,7 +16,7 @@ idyllic spot and it looked exactly the
 
 <!--more-->
 
-[![Portofino, Italy, Italian Riviera, soultravelers3, beautiful](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011572375f99970b.jpg "Portofino, Italy, Italian Riviera, soultravelers3, beautiful")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011572375f99970b.jpg)
+![Portofino, Italy, Italian Riviera, soultravelers3, beautiful](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011572375f99970b.jpg)
 
 Ah, Portofino! It has been over 25 years since my last visit to this idyllic spot and it looked exactly the same to me. Still one of the prettiest places on the planet, [fun for family travel](http://soultravelers3new.local/2009/07/7-best-reasons-to-travel-cinque-terre-italy.html) and very empty and peaceful this past Friday. There was a bus strike, so perhaps that is the reason, although the entire [Italian Riviera](http://en.wikipedia.org/wiki/Italian_Riviera) seems much less crowded than I ever expected for late July. We are having a ball and finding it hard to leave.
 

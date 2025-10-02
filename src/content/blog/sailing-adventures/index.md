@@ -3,13 +3,13 @@ title: "Sailing Adventures"
 date: 2012-08-02
 ---
 
-[![IMG_1912_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615f7267a970c.jpg "IMG_1912_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615f7267a970c.jpg) Sailing Adventures
+![IMG_1912_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615f7267a970c.jpg) Sailing Adventures
 
 When I look at the many sailboats  
 in Asia  or watch them sail  
 by on the Andaman Sea
 
-<!--more--> [![Beautiful sail boats](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615f727ca970c.jpg "Beautiful sail boats")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615f727ca970c.jpg)  
+<!--more--> ![Beautiful sail boats](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615f727ca970c.jpg)  
   
 When I look at the many sailboats in [Asia](http://soultravelers3new.local/2012/05/penang-at-night.html "Penang") or watch them sail by on the [Andaman Se](http://soultravelers3new.local/2012/06/serene-azure-andaman-sea-1.html "Andaman sea")a from my [rental condo in Penang](http://soultravelers3new.local/2012/04/penang-apartment-or-condo-rental-plenty-of-choices.html "rental condo Penang vacation home"), it makes me want to go on a sailing adventure like we did in [Turkey](http://soultravelers3new.local/2007/07/sailing-away.html "Sail in Turkey") or exploring [islands in Croatia](http://soultravelers3new.local/2007/09/croatian-island.html "sailing island hopping croatia") or [sailing Hawaii](http://soultravelers3new.local/2011/02/sailing-the-stunning-napali-coast-of-kauai-hawaii-with-dolphins-snorkeling-fun.html "Sailing Hawaii").  
   

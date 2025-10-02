@@ -19,13 +19,13 @@ tags:
   - "traveling-europe-in-a-motorhome"
 ---
 
-[![11981800](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ee69d970d.jpg "11981800")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ee69d970d.jpg)Camping Europe  
+![11981800](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ee69d970d.jpg)Camping Europe  
   
 Looking for the best and  
 cheapest family vacation  
 in Europe or planning a European
 
-<!--more--> [![Camping Europe and a happy kid in her tent ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebf94ca970b.jpg "Camping Europe and a happy kid in her tent ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebf94ca970b.jpg)  
+<!--more--> ![Camping Europe and a happy kid in her tent ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebf94ca970b.jpg)  
   
 Looking for the [best and cheapest family vacation in Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best european family vacations") or planning a [European road trip](http://soultravelers3new.local/2012/09/europe-road-trip-a-drive-through-france-provence-to-dordogne-via-photos-family-travel.html "planning a European road trip")?  In my [Top 10 Family Travel Tips](http://soultravelers3new.local/2008/05/top-10-family-t.html "top 10 family travel tips"), [camping Europe](http://soultravelers3new.local/camping-europe/ "camping Europe") is  listed  as number one!  
   
@@ -146,7 +146,7 @@ It’s been great watching you guys explore & enjoy the adventure! I hope you in
 
 \- See more at: http://theplanetd.com/camping-tips-for-spain-and-france/#sthash.hj30Es1O.dpu
 
-[![camping Europe means free kids camps and happy children, playmates from many countries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebfae79970b.jpg "camping Europe means free kids camps and happy children, playmates from many countries")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebfae79970b.jpg)  
+![camping Europe means free kids camps and happy children, playmates from many countries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebfae79970b.jpg)  
   
 We loved the seven months of [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel") in the RV combined with 5 months of deeper immersion in a [rental home in Spain](http://soultravelers3new.local/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "rental home or apartment in spain") in [our white village](http://soultravelers3new.local/2006/11/we-are-living-i.html "white village in Spain") where we returned [every winter](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to winter in spain").  We did that for 5 years and can't wait to do some more. We also love the [time in nature](http://soultravelers3new.local/2012/06/unplugged-todays-best-luxury-.html "unplugged") and miss that a lot.  
   
@@ -173,29 +173,29 @@ We loved the seven months of [slow travel](http://soultravelers3new.local/2011/1
 RV in Europe: Camping European Style](http://soultravelers3new.local/2011/12/rv-in-europe-road-trip-europe-camping-european-style.html "Rv in Europe, camping european style")  
   
   
-[![camping europe means time in nature](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebf9df3970b.jpg "camping europe means time in nature")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebf9df3970b.jpg)  
+![camping europe means time in nature](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebf9df3970b.jpg)  
   
 We store our small motorhome in Europe when we are not there for just $700 a year in a covered, secure place. One of our smartest investments for our [travel retirement](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "travel retirement"),  as the motorhome allows us to have a home/vehicle/storage unit in Europe for our [world travels](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "world travel family") on a tiny budget. We use the tents that you see in these photos primarly as an extra playroom or sleep over place for Mozart and her friends.  
   
-[![bike riding in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104b5a370970c.jpg "bike riding in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104b5a370970c.jpg)  
+![bike riding in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104b5a370970c.jpg)  
   
 It is true gas in expensive in Europe, but we are mostly parked and using [our bikes](http://soultravelers3new.local/2009/05/biking-st-emilion-bordeaux-vineyards-in-france-wine-country.html "biking europe"), walking, [trains](http://soultravelers3new.local/2013/05/train-travel-in-europe-with-kids.html "trains europe") or mass transit, thus our transportation costs are very low and we know the best campsites to save money at. Hopefully, we will have time to get our camping books done to share more secrets with you.  I think this is the first summer of our [famly world trip](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family world trip") where we didn't spend time in Europe, but next summer we will be back and can hardly wait.  
   
-[![motorhome camping in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebfb906970b.jpg "motorhome camping in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebfb906970b.jpg)  
+![motorhome camping in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ebfb906970b.jpg)  
   
   
 Campgrounds in Europe tend to be very luxurious with pools or near beaches and [in nature](http://soultravelers3new.local/2008/06/celebrating-in.html "celebrating in nature") which we [love](http://soultravelers3new.local/2011/07/beautiful-butterfly-flowers-and-family-travel.html "love nature, butterfly, flowers").  
   
-[![camping Europe - pools,touring, fun  and beaches](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ef518970d.jpg "camping Europe - pools,touring, fun  and beaches")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ef518970d.jpg)  
+![camping Europe - pools,touring, fun  and beaches](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ef518970d.jpg)  
   
 Yet, close enough to the city and famous sites, that make it a perfect enviroment for families, retirees and budget travelers.  
   
   
-[![camping Europe - luxury on a small budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7f0c05970d.jpg "camping Europe - luxury on a small budget")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7f0c05970d.jpg)  
+![camping Europe - luxury on a small budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7f0c05970d.jpg)  
   
 Have you ever done camping in Europe or is it on your bucket list?  We are missing our little camping home in Europe and our friends there.  
   
-[![camping Europe..the joys of slow travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ee7c8970d.jpg "camping Europe..the joys of slow travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ee7c8970d.jpg)  
+![camping Europe..the joys of slow travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac7ee7c8970d.jpg)  
   
 
 Related articles

@@ -24,14 +24,14 @@ tags:
   - "visiting-alhambra"
 ---
 
-[![3636547](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910397b613970c.jpg "3636547")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910397b613970c.jpg) Alhambra Moorish Palace  
+![3636547](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910397b613970c.jpg) Alhambra Moorish Palace  
 in Granada with Gypsy Guitar  
   
 Sunset at the romantic Alhambra  
 in Granada with a passionate left  
 handed guitar playing gitano
 
-<!--more--> [![Stunning photo of the Alhambra in Granada with gypsy guitar](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ab602681970d.jpg "Stunning photo of the Alhambra in Granada with gypsy guitar")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ab602681970d.jpg)  
+<!--more--> ![Stunning photo of the Alhambra in Granada with gypsy guitar](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ab602681970d.jpg)  
   
 [Sunset](http://soultravelers3new.local/2012/10/sweet-sunset.html "sunset and inspiration") at the romantic [Alhambra in Granada](http://soultravelers3new.local/2013/03/granadas-alhambra.html "alhambra in granada, spain") with a passionate left handed guitar playing gitano ( gypsy) couldn't say exotic, [evocative Spain](http://soultravelers3new.local/2011/05/best-southern-spain-holiday/comments/page/2/ "best southern spain holiday") any stronger.  
   

@@ -18,13 +18,13 @@ tags:
   - "trilingual-dreams"
 ---
 
-[![6a00e5502a95078833017d3f935fbb970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3564db8b970b.jpg "6a00e5502a95078833017d3f935fbb970c-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3564db8b970b.jpg)Multilingual Dreams  
+![6a00e5502a95078833017d3f935fbb970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3564db8b970b.jpg)Multilingual Dreams  
   
 What language do you dream in?  
 _Pǔtōnghuà_ 普通话 or Mandarin  
 is what my twelve year old
 
-<!--more--> [![Sweet dreams, sleeping girl having multilingual dreams](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f93cbb9970c.jpg "Sweet dreams, sleeping girl having multilingual dreams")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f93cbb9970c.jpg)  
+<!--more--> ![Sweet dreams, sleeping girl having multilingual dreams](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f93cbb9970c.jpg)  
   
   
 What language do you dream in? _Pǔtōnghuà_ 普通话 or [Mandarin](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "mandarin ") is what my twelve year old [multilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "how to raise multilingual child") was dreaming mostly on our recent [trip to Chin](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "trip to china")a where she was in a [Mandarin School](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "mandarin school in China") to immerse more deeply. I took that as a good sign...that her mind was processing it day and night.  

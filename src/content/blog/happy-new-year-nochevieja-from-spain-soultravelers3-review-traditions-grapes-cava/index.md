@@ -27,7 +27,7 @@ families and every age in their festivals
 
 <!--more-->
 
-[![New Year's Eve Spain Cava grapes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287690d866970c.jpg "New Year's Eve Spain Cava grapes")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287690d866970c.jpg)
+![New Year's Eve Spain Cava grapes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287690d866970c.jpg)
 
 Family travel in Spain is stupendous because they embrace children, families and every age in their [festivals](http://soultravelers3new.local/2008/05/joys-of-the-roa.html) and [celebrations](http://www.lonelyplanet.com/spain). I love how the [culture](http://soultravelers3new.local/2007/02/village-people.html#more) includes [everyone in the community](http://soultravelers3new.local/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html) during [festivals from the oldest to the youngest](http://soultravelers3new.local/2007/02/carnival-espana.html#more) and visitors are welcome to participate!
 

@@ -21,14 +21,14 @@ tags:
   - "tips-for-curing-gum-disease"
 ---
 
-[![IMG_6116](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37f0b241970b.jpg "IMG_6116")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37f0b241970b.jpg)Curing Gum Disease  
+![IMG_6116](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37f0b241970b.jpg)Curing Gum Disease  
 and Cavities Naturally  
   
 Can you cure gum disease,  
 re-grow bone loss and cure  
 cavities naturally? Absolutely!
 
-<!--more--> [![yes, you can heal cavities and gum disease naturally](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d421fe6da970c.jpg "yes, you can heal cavities and gum disease naturally")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d421fe6da970c.jpg)  
+<!--more--> ![yes, you can heal cavities and gum disease naturally](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d421fe6da970c.jpg)  
   
 Can you cure gum disease, re-grow bone loss and [cure cavities naturally](http://thedentalessentials.wordpress.com/ "cure cavities naturally")? Absolutely! I only wish I had known all this information earlier. [Mozart](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "Ted talk inspiring 12 year old") just lost her last baby tooth at 12, so her teeth are still coming in and finding their place, as you see in this photo, thus I am grateful that I at least got some of this additional information at this point. Many have [healed severe cavities](http://www.mommypotamus.com/can-a-weston-a-price-diet-reverse-tooth-decay/ "healing severe cavities") and [avoided braces](http://wellnessmama.com/1756/how-toreverse-tooth-decay-and-avoid-braces-by-changing-one-dietary-factor/ "avoid braces") just by correct diet.  
   
@@ -61,11 +61,11 @@ We have found a great reliable source for fresh,  raw, grass fed goats milk in 
 Since I had no cavities for so long and still don't, dentists always remark in amazement at my mouth as most people at 60 years old have already lost 8 teeth and have had many cavities. Sadly, like the World Health Organization reports that show 85% of adults in the US have some type of gum disease, I battled that problem since my early twenties, when I was first told that I needed gum surgery. Now, I know it didn't help I was on birth control pills for ten years.  
   
   
-[![healing gum disease and bone loss after 50](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d421fe803970c.jpg "healing gum disease and bone loss after 50")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d421fe803970c.jpg)  
+![healing gum disease and bone loss after 50](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d421fe803970c.jpg)  
   
 Despite dentists regularly warning me to get periodontal surgery for decades or I'd lose my teeth, the idea of gum surgery just never made sense to me and I had read about others who did it and had to keep on doing it, until their smiles and teeth were a mess. I had perfect wisdom teeth that never gave me a problem, but dentists talked me into removing them at 36 to help my gum disease. I kept looking for a natural way to solve this problem, especially when I knew we would be traveling the world and I'd be at the mercy of international dentists who wouldn't even speak my language.  
   
-[![Xray 2006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee99c2d61970d.png "Xray 2006")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee99c2d61970d.png)  
+![Xray 2006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee99c2d61970d.png)  
   
 This is a full mouth xray of my teeth in 2006. After much research, many years of regular dental cleanings and check ups every three months plus impeccable daily home oral care and attention to a healthy diet, I was begining to solve or at least make head way with the problem, but I still had severe gum disease and severe bone loss.  
   
@@ -77,7 +77,7 @@ Gum disease is a huge health problem and most are unaware of the dangers. Left u
   
 Needless, to say, I was very motivated to find solutions to this problem.As an older parent, I especially want to live a long, healthy life, if at all possible. I've recently realized that weight problems are all about malnutrition and is related to these problems as was my extremely low Vitamin D levels ( despite having a permanent tan from doing summer all year).  
   
-[![Xray 2008](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d422864be970c.png "Xray 2008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d422864be970c.png)  
+![Xray 2008](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d422864be970c.png)  
   
 **GOOD NEWS! BONE LOSS AND GUM DISEASE CAN BE REVERSED NATURALLY**  
   

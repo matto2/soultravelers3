@@ -16,7 +16,7 @@ tags:
   - "ways-to-not-have-travel-burnout"
 ---
 
-[![IMG_4032](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f772717970b.jpg "IMG_4032")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f772717970b.jpg) How to Prevent Travel Burnout
+![IMG_4032](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f772717970b.jpg) How to Prevent Travel Burnout
 
 "Do you ever get tired  
 of traveling?" This is a  
@@ -24,7 +24,7 @@ question we hear often and
 
 <!--more-->
 
-[![Madrid airport after Jordan on our trip around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e896a9038970d.jpg "Madrid airport after Jordan on our trip around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e896a9038970d.jpg)  
+![Madrid airport after Jordan on our trip around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e896a9038970d.jpg)  
   
   
 "Do you ever get tired of [traveling](http://soultravelers3new.local/2008/06/how-to-do-exten.html "extended travel ")?" This is a question we hear often and we also  frequently hear other travelers complain about [travel burnout](http://boards.bootsnall.com/travel-burnout-your-experiences-t9335.html "travel burnout").  
@@ -35,7 +35,7 @@ question we hear often and
   
 In the last twelve months, we have been completely [around the world as a family](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world as a family") with 26 airport stops, 13 countries, yet not one iota of travel burn out. And we are not just traveling [but educating our child](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "educating our child as a global citizen") in 3 languages, plus playing 2 instruments and working as we roam on investments, writing a book and this travel blog in our spare time.  
   
-  [![Blissing out at the Bora Bora blue lagoon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e81832970d.jpg "Blissing out at the Bora Bora blue lagoon")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e81832970d.jpg)  
+  ![Blissing out at the Bora Bora blue lagoon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e81832970d.jpg)  
   
   
 As we approach our 6th year of non-stop extensive [long term travel as a family](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "long term travel as a family"), soon to explore our 43rd country on 5 continents and have done over 200, 000 miles overland, I can honestly say, we have **NEVER** had travel burnout, never been homesick, still love the thrill of  traveling and are tremendously grateful for this dream lifestyle that we have created.  
@@ -57,7 +57,7 @@ KEYS THAT WORK FOR US TO PREVENT TRAVEL BURNOUT
   
 Sure there are times when one needs to go faster like we did in [Norway](http://soultravelers3new.local/2010/02/family-travel-photo-norway-in-a-nutshell-fijords-europe-roadtrip-budget-cheap-flam-train-vacation-.html "Norway travel ") to stay within our $23/ a day per person budget, but for the most part we are very big fans of [slow travel](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "slow travel"), slow food, slow living  which is a perfect antidote for our fast paced world and helps to be more present with and cherish what is truly important in life.  
   
-[![Barcelona beach resort - time in nature](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a173a970b.jpg "Barcelona beach resort - time in nature")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a173a970b.jpg)  
+![Barcelona beach resort - time in nature](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a173a970b.jpg)  
   
   
   
@@ -69,7 +69,7 @@ We are world citizens that like having special "homes" around the world that we 
   
 I think [making deep connectons with locals](http://soultravelers3new.local/2011/06/delicious-dinner-in-barcelona.html "making deep connections with locals") is key to really knowing a place and preventing travel fatigue or feeling homesick. This goes hand in hand with slow travel and return to favorite places. One reason they will be [favorite places](http://soultravelers3new.local/2011/01/how-to-make-paella-in-spain-the-valencia-way-recipe-for-travel-foodie-lovers-of-traditional-food.html "favorite places") is because of the [dear friends](http://soultravelers3new.local/2007/02/marvelous-meal.html "dear friends") that you have there. Many travelers make the mistake of just connecting with other travelers or not staying long enough to really connect with locals.  
   
-[![6a00e5502a950788330147e1cfe9fa970b-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e82942970d.jpg "6a00e5502a950788330147e1cfe9fa970b-pi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e82942970d.jpg)  
+![6a00e5502a950788330147e1cfe9fa970b-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e82942970d.jpg)  
   
   
 **LEARN LANGUAGES**  
@@ -92,7 +92,7 @@ The whole point of the [digital nomad 4 Hour Workweek style](http://soultraveler
   
 The longer we travel the less we need. Minimalism makes traveling and life so much easier. We zip through airports, on trains, buses, cargo ships etc almost effortlessly because we travel so light. Yes, a family CAN travel the world for a year with 26 airport stops, 13 countries with just one small carry-on luggage each. We will take even less this year. When travel is easy, burn out is avoided.  
   
-[![travel light for rtw travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154346e347f970c.jpg "travel light for rtw travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154346e347f970c.jpg)  
+![travel light for rtw travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154346e347f970c.jpg)  
   
   
 **STAY CONNECTED TO FAMILY AND FRIENDS**  
@@ -103,7 +103,7 @@ When you do go online, make sure that you stay connected regularly with family a
   
 One of the great advantages of [traveling by motorhome in Europe](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html "traveling by motorhome in europe") and doing most of our slow travel in it or a [furnished vacation rental](http://soultravelers3new.local/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "furnished vacation rental") means that it is easy for us to just keep up our normal family routines. Things like eating breakfast together, musical instrument practice, cooking dinner together, my morning walks, family movie nights, family cuddles and prayers at bedtime and upon waking are routines we do no matter where we are. Home is where the heart is, not a single place for us.  
   
-[![Relaxing and reading in Vienna](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a1e45970b.jpg "Relaxing and reading in Vienna")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a1e45970b.jpg)  
+![Relaxing and reading in Vienna](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a1e45970b.jpg)  
   
   
   
@@ -115,7 +115,7 @@ Of course,  a traveler can not live exactly as a local, but by having local fri
   
 One way to keep family close, is to travel with them and our [three generations travel](http://soultravelers3new.local/2007/03/sharing-village.html#more "three generation travel with family") with DaVinci's family and [traveling with Grandma](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html "traveling with grandma") with my mom was some of our most enriching. They get to see first hand how our life is exotic and exciting, yet simple and ordinary as well. We've met up with old friends from California and Sweden to travel together and plan more of that. If you are homesick for family and friends why not invite them to stay and travel together?  
   
-[![fun water slide in Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a8df783970d.jpg "fun water slide in Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a8df783970d.jpg)  
+![fun water slide in Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a8df783970d.jpg)  
   
   
   
@@ -127,7 +127,7 @@ By living in luxury in places like we have done in our [Spain winter rentals](ht
   
 Yes, we have enjoyed an [overnight in a Berber tent in the Sahara](http://soultravelers3new.local/2007/04/sahara-rainbow.html "over night in berber tent in sahara"), [couch surfing](http://soultravelers3new.local/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "couch surfing") and some very primative lodgings from time to time as well as [top luxury hotels](http://soultravelers3new.local/2011/01/family-vacation-san-francisco-fairmont-review-family-friendly-best-luxury-hotel-with-kids.html "top luxury hotels")..all wonderful, but long-stays are best done in a comfortable  home environment for families.
 
-[![hugging a puppy in Bora Bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a20a9970b.jpg "hugging a puppy in Bora Bora")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a20a9970b.jpg)  
+![hugging a puppy in Bora Bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a20a9970b.jpg)  
   
   
 **MAKE HOMECOOKED MEALS**  
@@ -140,7 +140,7 @@ Beaultiful weather is MUCH more enjoyable way to see a place, so we do our best 
   
 Weather is never perfect but trust me, a string of  gorgeous days are a lot more uplifting  than a dismal, rainy, dark, depressing or hot, miserable, sweltering, or cold, freezing-your-butt-off season. If the weather is miserable, it's time to move on or travel burn out will catch you, because day in and day out of hard and ugly, wears on the soul.  
   
-[![Beautiful tropical sunset in Tahiti ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a2272970b.jpg "Beautiful tropical sunset in Tahiti ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a2272970b.jpg)  
+![Beautiful tropical sunset in Tahiti ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153909a2272970b.jpg)  
   
   
   

@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
-[![Sng_rec_xmas_sp06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/14/sng_rec_xmas_sp06.png "Sng_rec_xmas_sp06")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/sng_rec_xmas_sp06.png)Spanish Kids Singing a Carol  
+![Sng_rec_xmas_sp06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/sng_rec_xmas_sp06.png)Spanish Kids Singing a Carol  
 April 14, 2008
 
 Mozart and her class in Andalusia Spain  

@@ -18,14 +18,14 @@ tags:
   - "world-school"
 ---
 
-[![IMG_6883_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac118d70970d.jpg "IMG_6883_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac118d70970d.jpg)Homeschool High School  
+![IMG_6883_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac118d70970d.jpg)Homeschool High School  
 and World Travel  
   
 Can you homeschool high school  
 and go onto a top university and/ or  
 a fabulous career? How will world
 
-<!--more--> [![homeschool high school and world travel- perusing books at an International school library abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910448522e970c.jpg "homeschool high school and world travel- perusing books at an International school library abroad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910448522e970c.jpg)  
+<!--more--> ![homeschool high school and world travel- perusing books at an International school library abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910448522e970c.jpg)  
   
 Can you [homeschool](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "homeschool travel") high school and go onto a top university and/or a fabulous career? How will [world travel](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "world traveling family soultravelers3") and being a [multilingual](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "how to raise a multilingual child"), multicultural  [American white girl](http://www.thedailybeast.com/articles/2012/04/04/who-got-in-to-the-country-s-top-colleges.html "white girls and getting into top collegs") affect my child's future? What is success and [is college needed today](http://www.usnews.com/opinion/articles/2013/05/09/why-a-college-degree-no-longer-guarantees-success "Is college needed today")?  
   
@@ -33,7 +33,7 @@ These are some of the things we are pondering and why we will [homeschool](http:
   
 Carry a vision of heaven in your hearts, and you shall make your home, your school, your world correspond to that vision. ~ Helen Keller  
   
-[![Reading a classic book while chomping on an organic carrot](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e5241a6970b.jpg "Reading a classic book while chomping on an organic carrot")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e5241a6970b.jpg)  
+![Reading a classic book while chomping on an organic carrot](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e5241a6970b.jpg)  
   
   
 "Classics are gifted books, by gifted writers, and are right for gifted kids." Michael Thompson  
@@ -48,7 +48,7 @@ I don't have all the [answers about homeschool](http://soultravelers3new.local/2
 
 For us, homeschooling/worldschooling is a way of life, a way of looking at the world, a way of being a family, being free and self directed... always learning, growing, loving and expanding.  
   
-[![Homeschool and travel, making friends around the world like this girl in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac15415f970d.jpg "Homeschool and travel, making friends around the world like this girl in Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac15415f970d.jpg)  
+![Homeschool and travel, making friends around the world like this girl in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac15415f970d.jpg)  
   
 "Don't tell me how educated you are, tell me how much you traveled." Mohammed  
   
@@ -68,7 +68,7 @@ Our primary goal for our travels have been to [educate](http://soultravelers3new
   
 But how should we handle the teen years and school?"Aut Viam Inveniam Aut Faciam" or “I will either find a way or make one ”  
   
-[![homeschool and travel makes a global citizen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104486426970c.jpg "homeschool and travel makes a global citizen")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104486426970c.jpg)  
+![homeschool and travel makes a global citizen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104486426970c.jpg)  
   
 "I decided that adventure was the best way to learn..." Lloyd Alexander  
   
@@ -84,7 +84,7 @@ Swimming with sharks in [in Bora Bora](http://soultravelers3new.local/2010/11/bo
   
 ...celebrating [Chinese New Year](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "celebrating chinese new year in Penang") at [temples in Asia](http://soultravelers3new.local/2012/09/stunning-kek-lok-si-largest-buddhist-temple-in-se-asia.html "temples in Asia") or participating in [Semana Santa in Spain](http://soultravelers3new.local/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html "semana santa in Spain ..holy week"), eating [reindeer meat in a kota in Sweden](http://soultravelers3new.local/2009/05/family-travel-photo-sweden-reindeer-meat-in-kota-traditional-sami-lapland.html "kids eating reindeer meat in kota in Sweden"), munching [dumplings in Kradow,](http://soultravelers3new.local/2012/08/polish-pierogi-or-munching-dumplings-in-krakow.html "dumplings in Krakow") climbing the [Tiger's Nest in Bhutan](http://soultravelers3new.local/2011/07/tigers-nest-in-paro-bhutan.html "Climbing tigers nest in bhutan"), playing violin on a Vienna stage or ending up in a [Japanese film in Croatia](http://soultravelers3new.local/2007/09/mozarts-film-de.html "Japanese film in Croatia ABC's Travel Salad show"), seeing world class [operas in Verona](http://soultravelers3new.local/2010/09/family-travel-italy-verona-opera-carmen-aida-domingo-zeffirelli-family-friendly-educational-travel.html "operas in verona for kids") in an ancient amphitheater, dissecting squid in California at a Johns Hopkins CTY science workshop,  [sailing the Turquoise coast](http://soultravelers3new.local/2007/07/sailing-away.html "sailing turkey") in Turkey, [cruising the Fjords of Norway](http://soultravelers3new.local/2010/02/family-travel-photo-norway-in-a-nutshell-fijords-europe-roadtrip-budget-cheap-flam-train-vacation-.html "norway fjords"), cheap [private tutors](http://soultravelers3new.local/2012/10/tutoring-in-asia-why-asians-get-superior-test-scores.html "private tutors Asia") and [violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "violin playing around the world kid") and [piano lessons](http://www.youtube.com/watch?v=0Ar90wOnWnM "piano lessons via skype") etc via skype, [BFF](http://soultravelers3new.local/2012/04/best-friends-around-the-world-traveling-with-school-age-kids.html "friends and travel school age") best [friends in 3 languages](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends around the world") etc,etc etc...the educational opportunities have been phenomenal.  
   
-[![homeschooling in Asia with her Chinese tutor](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104486c6c970c.jpg "homeschooling in Asia with her Chinese tutor")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104486c6c970c.jpg)  
+![homeschooling in Asia with her Chinese tutor](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104486c6c970c.jpg)  
   
 **HOMESCHOOL AND ADAPTING**   
   
@@ -92,7 +92,7 @@ We never pay attention to grade level with Mozart because she is usually working
   
 She skipped 3 grades in USA schools by extreme early entrance and she skipped 3 grades when we went from a 4th grade level at a Spanish school to 7th grade level for Chinese in Asia. Sounds strange I know, but she is a very normal kid and that is just what worked best for her at the time.  
   
-[![homeschooling and love of creating - here a house of toothpicks and new windows made with glue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e526e38970b.jpg "homeschooling and love of creating - here a house of toothpicks and new windows made with glue")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e526e38970b.jpg)  
+![homeschooling and love of creating - here a house of toothpicks and new windows made with glue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e526e38970b.jpg)  
   
 **ADVANTAGES OF WORLD SCHOOL**  
   
@@ -100,24 +100,24 @@ We decided to do first grade over again when we arrived [in Spain](http://soultr
   
 Dictato, writing and reading Spanish so deeply at six implanted it forever ( and actually helped her English writing as well as she didn't really enjoy handwriting until that daily "dictato" cursive writing in Spanish first grade. She has had to be very flexible to meet both Spanish and [Chinese writing](http://soultravelers3new.local/2012/02/mandarin-chinese-learning-at-home-and-abroad.html "chinese writing") standards, which are very different than American and even numbers are written differently.  
   
-[![IMG_4453_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e532ba8970b.jpg "IMG_4453_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e532ba8970b.jpg)  
+![IMG_4453_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e532ba8970b.jpg)  
   
 She was in 8th grade at her [Chinese school](http://soultravelers3new.local/2012/11/chinese-school-fun.html "chinese school") this year doing [physics and biology in Mandarin](http://soultravelers3new.local/2012/07/chinese-school-in-asia-11-year-old-american-doing-physics-in-mandarin.html "physics and biology in Chinese"). She is now doing a senior high school level class with [Johns Hopkins CTY](http://cty.jhu.edu/ "Johns hopkins cty") and some college level work, yet she still enjoys playing/creating with playmobiles.  
   
 Along with making creative [fashion](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html "world traveling fashionista") and homemade clothes from throw aways  for her few dolls we bought here for her at 10 as there were no playmobiles and little choice that [first Christmas](http://soultravelers3new.local/2010/12/first-christmas-in-asia.html "first christmas in Asia") for a kid who loves imaginative play.  [Asynchronous development](http://giftedkids.about.com/od/glossary/g/asynchronous.htm "asynchronous development") or just a [creative kid](http://soultravelers3new.local/2010/02/kids-art-creativity-travel-family-friendly-travel-education-homeschool-roadschool-.html "creative kid") who is very good at [making something](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html "making toys for free") out of nothing?  
   
-[![Mozart and a friend from Scotland playing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044d31a3970c.jpg "Mozart and a friend from Scotland playing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044d31a3970c.jpg)  
+![Mozart and a friend from Scotland playing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044d31a3970c.jpg)  
   
   
 " A master in the art of living draws no sharp distinction between his work and his play; his labor and his leisure; his mind and his body; his education and his recreation. He hardly knows which is which. He simply pursues his vision of excellence through whatever he is doing, and leaves others to determine whether is working or playing. To himself, he always appears to be doing both." Chateaubriand  
   
-[![homeschool play - I think this kid can make anything!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e526512970b.jpg "homeschool play - I think this kid can make anything!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e526512970b.jpg)  
+![homeschool play - I think this kid can make anything!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e526512970b.jpg)  
   
 ( Her bedroom is actually filled with an entire, large and detailed world that she mostly makes out of paper, or thin air,  so playmobiles as [travel toys](http://soultravelers3new.local/2011/09/best-toys-for-travel-.html "travel toys") and [creativity has been a strength for her](http://soultravelers3new.local/2008/04/creative-projec.html "creativity") from the beginning as you see her doing this in [Spain](http://soultravelers3new.local/2007/03/mozart-motel.html "living in spain") at 6, in [Dubrovnik](http://soultravelers3new.local/2007/08/heavenly-holida.html "dubrovnik"), Barcelona, [Portugal](http://soultravelers3new.local/2008/07/workyoutube-pla.html "portugal"),  Asia etc etc.  
   
 I sometimes wonder if this means she will be a city planner, architect, designer or if it is helping with her imaginative creative writing skills. Since we prefer to be [unplugged](http://soultravelers3new.local/2012/06/unplugged-todays-best-luxury-.html "unplugged") and do [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel"), we prefer doing real things rather than doing this kind of play with an addictive video game, (although she did enjoy Zoo Tycoon some as a little one, so has the skills).  
   
-[![kid's play and learning...I love the detail in all the tiny things she makes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e5265a7970b.jpg "kid's play and learning...I love the detail in all the tiny things she makes")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e5265a7970b.jpg)  
+![kid's play and learning...I love the detail in all the tiny things she makes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e5265a7970b.jpg)  
   
 **HOMESCHOOL AND TIME**  
   
@@ -128,16 +128,16 @@ We don't really care what grade she is in, only that she is learning optimally a
 One of the best things about homeschooling high school or middle school is the freedom one gets with it and TIME. A teenager can pursue their own interests and figure out what they love to do and what their gifts are because they have the time to do it, even when doing advanced course work.  
   
   
-[![Homeschool - learning volleyball at an International school after school class](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac11bfae970d.jpg "Homeschool - learning volleyball at an International school after school class")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac11bfae970d.jpg)  
+![Homeschool - learning volleyball at an International school after school class](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac11bfae970d.jpg)  
   
 She is not a high school kid yet, but things shift at this point and we are starting to look differently at our homeschooling goals as she dreams about going to Harvard or other top university. We are also open to the fact that her dreams may change as she ages and she could take a non-college route, but we think it is best to keep all options open.  
   
-[![Homeschool almost teen - lazing in bed reading classics](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044c1854970c.jpg "Homeschool almost teen - lazing in bed reading classics")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044c1854970c.jpg)  
+![Homeschool almost teen - lazing in bed reading classics](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044c1854970c.jpg)  
   
 Unplanned, unconscious unschooling will likely NOT get a homeschooler in a top university today, but smartly planned, child-directed, motivated learning likely can. We have friends and relatives who have done it.  Rigorous academics can benefit children even if they are not planning for higher education.  
   
   
-[![homeschool life skills like cooking,nutrition,  laundry, dishes, keeping a budget etc](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e567abb970b.jpg "homeschool life skills like cooking,nutrition,  laundry, dishes, keeping a budget etc")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e567abb970b.jpg)  
+![homeschool life skills like cooking,nutrition,  laundry, dishes, keeping a budget etc](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e567abb970b.jpg)  
   
 She has other dreams we also want to support her getting and even supporting her skills on how to manifest big dreams. Following her lead and mentoring her growth and abilities to its potential is what we see as our parental duty.  
   
@@ -145,31 +145,31 @@ We think learning entrepreneurship, finance and life skills are an important par
   
 She already has her first job..teaching kids Spanish here as well as English to young adults in China online and is writing a series of books about her travels for younger kids as well as a novel.  
   
-[![homeschool kid doing chemistry online and drinking raw milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104488698970c.jpg "homeschool kid doing chemistry online and drinking raw milk")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104488698970c.jpg)  
+![homeschool kid doing chemistry online and drinking raw milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104488698970c.jpg)  
   
 Some think travel and education only works for the primary years before middle school and high school obligations, but we think the opposite. As much as we are pleased with her grade school years of superior education and travel, we think the upcoming teen years will be even more exciting by adding world travel and I don't think we will do any more brick and motar type schooling except college classes.  
   
-[![homeschool and traveling the world with a violin and piano means daily practice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104488784970c.jpg "homeschool and traveling the world with a violin and piano means daily practice")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104488784970c.jpg)  
+![homeschool and traveling the world with a violin and piano means daily practice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104488784970c.jpg)  
   
 We are thankful to the [Chinese schoo](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Chinese school penang")l here, but we are really grateful to be back to homeschooling as it really suits our family.  We love the freedom, bonding and being able to make much faster progress in many areas in less time...which leaves us more time for fun.  
   
-[![Homeschooling in Asia...hanging out with local friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac1239df970d.jpg "Homeschooling in Asia...hanging out with local friends")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac1239df970d.jpg)  
+![Homeschooling in Asia...hanging out with local friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac1239df970d.jpg)  
   
 Yessiree, just like the song says..."girls just wanna have fun" and local friends, [sleep overs](http://soultravelers3new.local/2008/04/slumber-party-i.html "slumber parties"), pool parties, [karaoke](http://soultravelers3new.local/2012/07/singing-karaoke-in-asia.html "karaoke in Asia") and [mall shopping](http://soultravelers3new.local/2012/08/weird-asia.html "mall shopping Asia") are all easier to fit into a homeschool schedule. What a relief too not to have to get up at 5 or 6 am and going to school 6 days a week. We can let the sun wake us between 7 and 8 which feels more natural.  
   
 We adults get more interruptions and likely less done with a high energy kid around all day and taking her places like piano lessons, but we love the spontaneous joy she adds to our daily lives as it was much too quiet in our home when she was in school.  
   
-[![Homeschooling leaves lots of time for socializing with this American friend who has lived here most of her life](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac122fba970d.jpg "Homeschooling leaves lots of time for socializing with this American friend who has lived here most of her life")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac122fba970d.jpg)  
+![Homeschooling leaves lots of time for socializing with this American friend who has lived here most of her life](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac122fba970d.jpg)  
   
 Schools have an extraordinary amount of wasted time built into the day since it is one-size-fits-all program, endless bureaucracy and crowd control. Time is wasted traveling to and from school, transition between classes, and waiting for the slower students to finish work. Homeschooling is immensely more efficient and tailored exactly to the child and the family, so most homeschoolers tend to be ahead of public and private school students.  
   
-[![Lunch time at her Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104492dd8970c.jpg "Lunch time at her Chinese school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104492dd8970c.jpg)  
+![Lunch time at her Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104492dd8970c.jpg)  
   
 Many recent studies applaud homeschoolers’ academic success, showing homeschoolers get significantly higher SAT and  ACT scores, earn merit scholarships. and have higher grade point averages as college students. Most homeschooled teens rack up massive amounts of college credits before high school gradution and some do the entire college degree before 18. 
   
 We are super proud of my homeschooled niece who graduated early from a top university this way as a chemical engineer, offered a 6 figure income job before she graduated and bought a home!  
   
-[![worldschooling at a Chinese school and being different](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104499056970c.jpg "worldschooling at a Chinese school and being different")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104499056970c.jpg)  
+![worldschooling at a Chinese school and being different](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104499056970c.jpg)  
   
 Some things are always maddening and illogical with schools.... like both the [school in Penang](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "only american girl in Chinese school in Asia") and [Spain](http://soultravelers3new.local/2007/03/last-day-of-sch.html "American in school in spain") insisted that she take what we call "baby English", ( good for the 2nd language learner) but insane for a child that is a native speaker and was already reading English at a 10th grade level at 7. She was more advanced than the teachers teaching the class, so a total waste of her time.  
   
@@ -193,42 +193,42 @@ Growing up in California as just another blue eyed blond would give her a very d
   
 She has never met so many Americans on our travels (although most have lived here most of their lives and there are lots from many other countries as well), so that has been a new experience and exciting for her. Living outside their home country and culture, the kids have things in common and she enjoys the classes and library.  
   
-[![homeschooling piano practice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910448f053970c.jpg "homeschooling piano practice")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910448f053970c.jpg)  
+![homeschooling piano practice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910448f053970c.jpg)  
   
 Most of her work is self directed, but we guide her,  plan as a family and when we need a tutor we get one. We love her [Mandarin tutor](http://soultravelers3new.local/2012/10/tutoring-in-asia-why-asians-get-superior-test-scores.html "Chinese tutor") who comes to our home 4 times a week and she is already far ahead of where she would be if she had stayed in school. Her old class is still plodding through the 3rd grade [primary Chinese](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "chinese immersion in China") curriculum and she is now almost finished with 4th grade well on her way to complete her goal of mastering all the primary grade curriculum ( year 1 through 6 ) reading and writing Chinese.  
   
 Her language learning in childhood, leaves her far ahead of most college courses in Chinese and Spanish, so her hard work in many areas will pay off in her high school and college years via CLEP/DSST/AP Examinations.  
   
-[![Homeshooling violin lessons at Cat Studio in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac161511970d.jpg "Homeshooling violin lessons at Cat Studio in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac161511970d.jpg)  
+![Homeshooling violin lessons at Cat Studio in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac161511970d.jpg)  
   
 Due to her deep fluency in Spanish and [trilingual training from birth](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "trilingual growing up bilingual"),  she should be able to pretty easily master French, Portuguese, Italian and Latin as well, but we will look into/decide that more when we return to [Europ](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best european vacations")e via the Trans-Siberian Railway when she is 13. 
   
 We will start with [French in Provence](http://soultravelers3new.local/2012/06/france-with-kids-exploring-provence.html "exploring provence in france") and [Paris](http://soultravelers3new.local/2011/08/paris-travel-with-kids.html "Paris travel with kids") and see how that goes as she has wanted to [learn French](http://soultravelers3new.local/2010/08/camping-europe-with-kids-free-kids-clubs-family-friendly-international-travel-tips.html "learn french in france kids") for a long time. She can make up her mind then if she wants to add more now or not.  
   
-[![Doing a group project with Chinese school friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044b30ab970c.jpg "Doing a group project with Chinese school friends")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044b30ab970c.jpg)  
+![Doing a group project with Chinese school friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044b30ab970c.jpg)  
   
   
 I don't think she could have done as well with only a Chinese tutor in the beginning ( we tried) as the [extended  Chinese immersion](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "Chinese immersion in Asia") is important, but at this point in fluency, she can zip through it much faster than the Chinese school AND we can plow ahead faster on her other areas of interest like her classic books,science, music, writing, Spanish and advanced math from Singapore.  
   
 She is a math whiz like her Dad and they enjoy that daily time together as well as swimming, sports, games, gardening, art, design, music and discussing finances or word problems etc from our life. I guide her on subjects I am strong in like literature, writing, drama, science, history, meditation, cooking, nutrition with lots of deep family discussions, debates and analysis on every possible topic.  
   
-[![Homeschooling algebra and geometry with Dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e52d2d2970b.jpg "Homeschooling algebra and geometry with Dad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e52d2d2970b.jpg)  
+![Homeschooling algebra and geometry with Dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e52d2d2970b.jpg)  
   
 Two parents one kid, makes guiding this self-directed child fairly easy, although I am always researching more ideas to support her. More so now as I am teaching myself how to best homeschool high school and as usual, we are making it up as we go. It is a fascinating topic I could read about all day.  
   
 We think of everything as homeschooling so consciously pick daily choices that support her from playing chess, doing jig saw puzzles, art projects, daily fun jumping rope contests ( that support bone health), exploring the cultures here, science projects, games, reading Shakespeare or poems aloud, watching good movies, Tedtalks and home movies in our leisure time etc etc etc.  
   
-[![Homeschooling in Asia means exploring the environment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e56c7bd970b.jpg "Homeschooling in Asia means exploring the environment")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e56c7bd970b.jpg)  
+![Homeschooling in Asia means exploring the environment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e56c7bd970b.jpg)  
   
 These things and our travel lifestyle, help her learn how to communicate with others, research, think, analyze, write, create, make good decisions, and problem-solve. We think in terms of preparing her, but also educating her for generations to come by passing on the life long learning passion and going for excellence and optimal with ease and grace.  
   
-[![homeschooling jump rope family champ..daily competitions!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac147983970d.jpg "homeschooling jump rope family champ..daily competitions!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac147983970d.jpg)  
+![homeschooling jump rope family champ..daily competitions!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac147983970d.jpg)  
   
 Stanford, Northwestern, U. Miami, and U. Nebraska all have accredited online high schools, so we could possibly dip into them if needed. Some say to skip high school and even college, so we are looking at it all and still forming our high school plan.  
   
 "The applications \[from homeschoolers\] I've come across are outstanding. Homeschoolers have a distinct advantage because of the individualized instruction they have received."- Dartmouth College admissions officer  
   
-[![Homeschooling tropical style means pool, book and vitamin D](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044b6eee970c.jpg "Homeschooling tropical style means pool, book and vitamin D")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044b6eee970c.jpg)  
+![Homeschooling tropical style means pool, book and vitamin D](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191044b6eee970c.jpg)  
   
 Luckily, homeschoolers are actively recruited by schools like Harvard University, Stanford, MIT,  Duke and Dartmouth, but the competition for everyone today ( especially as we prefer a top Uni and full scholarship) is extremely challenging and it pays off to stand out.   
   

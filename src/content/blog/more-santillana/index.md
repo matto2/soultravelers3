@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_3504](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3504.jpg "Img_3504")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3504.jpg) More Santillana Del Mar  
+ ![Img_3504](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3504.jpg) More Santillana Del Mar  
 November 1, 2008
 
 It is soon obvious why this entire town  
@@ -39,15 +39,15 @@ There was a very nice hotel there that let us use their free wifi  which was a 
 
 The best trick for finding free wifi on the road is to ask and ask again, until you find it. Soon I am going to do a post on some of the great and not so great places where we make our "mobile offices" with laptops on the move while traveling the world. Our "three laptop family" has become experts on this fine art and this was one of our luxurious finds! There is nothing quite like soaking up the benefits of a 5 star hotel for free.
 
-[![Img_3611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3611.jpg "Img_3611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3611.jpg)
+![Img_3611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3611.jpg)
 
-[![Img_3635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3635.jpg "Img_3635")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3635.jpg)
+![Img_3635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3635.jpg)
 
 [![Img_3668](http://soultravelers3new.local/images/2008/10/17/img_3668.jpg "Img_3668")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3668.jpg)
 
-[![Img_3605](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3605.jpg "Img_3605")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3605.jpg)
+![Img_3605](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3605.jpg)
 
-[![Img_3664](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3664.jpg "Img_3664")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3664.jpg)
+![Img_3664](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/17/img_3664.jpg)
 
   
   

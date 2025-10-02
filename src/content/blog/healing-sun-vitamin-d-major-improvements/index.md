@@ -23,14 +23,14 @@ tags:
   - "vitamin-d-secrets"
 ---
 
-[![IMG_5942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ca3eef5970b.jpg "IMG_5942")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ca3eef5970b.jpg)Healing, Sun, Vitamin D =  
+![IMG_5942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ca3eef5970b.jpg)Healing, Sun, Vitamin D =  
 Major Improvements  
   
 Do you know what your vitamin D level is? Did you know it is critical in heart disease, cancer, diabetes,
 
 <!--more-->  
   
-[![stunning sunrise and vitamin D](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910299d644970c.jpg "stunning sunrise and vitamin D")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910299d644970c.jpg)  
+![stunning sunrise and vitamin D](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910299d644970c.jpg)  
   
 Do you know what your [vitamin D level](http://soultravelers3new.local/2012/07/sun-for-its-health-benefits-.html "sun and vitamin D level - how to increase") is? Did you know it is critical in heart disease, cancer, diabetes, MS, osteoporosis, asthma, Crohns, pneumonia, parkinsons, influenza, depression, acne, dental cavities and periodontal disease, autism, autoimmune problems, pain, dementia and  more?  I think it is astonishing that vitamin D affects over 2700 genes –around 10% of the human genome and every cell and organ in your body!  
   
@@ -42,7 +42,7 @@ A study published in the March, 2010 issue of the _Journal of Clinical Endocrino
   
 Yet most people don't know what their vitamin D level is and since I spend most of my time in sunny, summer climates and always have a tan, I like most people never imagined that I had an extremely low vitamin D level which contributed greatly to my [health issues](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets").  
   
-[![getting vitamin D from sun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aa7fea26970d.jpg "getting vitamin D from sun")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aa7fea26970d.jpg)  
+![getting vitamin D from sun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aa7fea26970d.jpg)  
   
 **DON'T TRUST YOUR MD ABOUT VITAMIN D AS MOST ARE UNINFORMED**  
   
@@ -60,7 +60,7 @@ Thankfully, I figured that out on my own through extensive research and I will l
   
 Despite my taking a very high rated whole food multivitamin [for seniors](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retirement and travel") daily, eating well, walking daily in sunny climates so that I have a permanent tan line on my berkie sandals etc, it could have been that dangerously low for a decade and killed me. I also found out [my mother](http://soultravelers3new.local/2007/02/worlds-best-mot.html "mother") ( who golfs regularly in sunny [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California destinations for travel")) and my sister ( who walks in the sun regularly on her lunch break in sunny California are also deficient in Vitamin D as was my cousin who lives in [San Francisco](http://soultravelers3new.local/2012/05/san-francisco-travel-why-we-love-it.html "San Francisco travel") area.  
   
-[![sunny beach on the equator..prime spot for vitamin d cures](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aa8018b7970d.jpg "sunny beach on the equator..prime spot for vitamin d cures")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aa8018b7970d.jpg)  
+![sunny beach on the equator..prime spot for vitamin d cures](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aa8018b7970d.jpg)  
   
   
 Dr. Zaidi a leading endocrinologist MD who worked for many years with patients in San Diego, (who usually spent time outdoors daily, took vitamins and lived a healthy lifestyle) said that almost all of his patients from children to the elderly had vitamin D deficiencies. He is one of the few smart doctors who tests for vitamin D, is aware what optimal levels are needed and has had great success treating patients with vitamin D for Cancer, Diabetes, Osteoporosis etc. The only patient that he saw that had good, optimal levels above 50 ng/ml from the sun, was a young woman who was a life guard.  

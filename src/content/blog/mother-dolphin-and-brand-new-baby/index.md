@@ -15,13 +15,13 @@ tags:
   - "wild-life-and-travel"
 ---
 
-[![IMG_6277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ffa5f5e9970d.jpg "IMG_6277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ffa5f5e9970d.jpg)Mother Dolphin and New Baby  
+![IMG_6277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ffa5f5e9970d.jpg)Mother Dolphin and New Baby  
 
 One of the wonders of  
 family travel is the  
 incredible nature we see
 
-<!--more--> [![mother and baby dolphin - perfect for family travel!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ffa5f898970d.jpg "mother and baby dolphin - perfect for family travel!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ffa5f898970d.jpg)  
+<!--more--> ![mother and baby dolphin - perfect for family travel!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ffa5f898970d.jpg)  
   
 One of the wonders of [family travel](http://soultravelers3new.local/2011/07/family-travel-ireland.html "family travel") is the incredible nature we see as we [travel the world](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "travel the world") on our super low budget. This mama and baby dolphin was seen where we swam with [dolphins in Florida](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "dolphins florida") at [Dolphins Plus](http://www.dolphinsplus.com/ "Dolphins Plus") research and education center. This baby dolphin was just two days old!  
   

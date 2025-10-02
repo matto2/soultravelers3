@@ -23,13 +23,13 @@ tags:
 ---
 
   
-[![Img_7440](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167676e6565970b.png "Img_7440")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167676e6565970b.png)Father's Day Tribute  
+![Img_7440](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167676e6565970b.png)Father's Day Tribute  
   
 "Noble fathers have noble children."  
 ~ Euripides
 
 <!--more-->  
-[![happy Father's Day! Daddy getting a kiss in Venice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067a9867970d.png "happy Father's Day! Daddy getting a kiss in Venice")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067a9867970d.png)  
+![happy Father's Day! Daddy getting a kiss in Venice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067a9867970d.png)  
   
 "Noble fathers have noble children." - Euripides  
   

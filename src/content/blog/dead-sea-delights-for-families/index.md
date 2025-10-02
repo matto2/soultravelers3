@@ -14,13 +14,13 @@ tags:
   - "travel-to-jordan"
 ---
 
-[![IMG_9902](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344d45d0970c.jpg "IMG_9902")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344d45d0970c.jpg) Dead Sea Delights for Families
+![IMG_9902](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154344d45d0970c.jpg) Dead Sea Delights for Families
 
 Who knew the Dead Sea was  
 such a beautiful and healing  
 delight that is fun for the whole family?
 
-<!--more--> [![Jordan family vacation at the dead sea](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079ea3f970b.jpg "Jordan family vacation at the dead sea")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079ea3f970b.jpg)  
+<!--more--> ![Jordan family vacation at the dead sea](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079ea3f970b.jpg)  
   
   
   

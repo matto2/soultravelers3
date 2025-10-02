@@ -6,7 +6,7 @@ categories:
   - "morocco"
 ---
 
- [![Img_2096](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2096.png "Img_2096")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2096.png) The Tannery  
+ ![Img_2096](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2096.png) The Tannery  
 March 31, 2007
 
 After seeing the tannery in Fez, I will  
@@ -15,7 +15,7 @@ It is the oldest tannery
 
 <!--more-->
 
-[![Img_2096_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2096_2.png "Img_2096_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2096_2.png)
+![Img_2096_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2096_2.png)
 
   
 After seeing the tannery in Fez, I will never look at leather in the same way. It is the oldest tannery in the world and a bizarre world unto itself. The leather souk is one of the most fascinating sights in Fez (which is full of fascinating sights) and it dates back at least nine centuries. It is not a sight we will ever forget.
@@ -31,28 +31,28 @@ a natural process. Next to the colored vats, is a white area where the pigeon dr
 
 We saw lots of beautiful leather goods, but since we travel in a very tight space, we can not be shoppers. We settled for a cute pair of Moroccan slip on shoes for Mozart. They had a lovely adult size pair in our room which she (and all of us) clomped around in, so she was very happy to have her own pair.
 
-[![Img_2094](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2094.png "Img_2094")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2094.png)
+![Img_2094](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2094.png)
 
-[![Img_2098](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2098.png "Img_2098")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2098.png)
+![Img_2098](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2098.png)
 
-[![Img_2103](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2103.png "Img_2103")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2103.png)
+![Img_2103](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2103.png)
 
-[![Img_2133](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2133.png "Img_2133")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2133.png)
+![Img_2133](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2133.png)
 
-[![Img_2099](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2099.png "Img_2099")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2099.png)
+![Img_2099](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2099.png)
 
-[![Img_2110](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2110.png "Img_2110")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2110.png)
+![Img_2110](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2110.png)
 
-[![Img_2112](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2112.png "Img_2112")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2112.png)
+![Img_2112](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2112.png)
 
-[![Img_2121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2121.png "Img_2121")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2121.png)
+![Img_2121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2121.png)
 
-[![Img_2108](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2108.png "Img_2108")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2108.png)
+![Img_2108](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2108.png)
 
-[![Img_2117](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2117.png "Img_2117")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2117.png)
+![Img_2117](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2117.png)
 
   
 
-[![Img_2109](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2109.png "Img_2109")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2109.png)
+![Img_2109](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2109.png)
 
-[![Img_2123](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2123.png "Img_2123")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2123.png)
+![Img_2123](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2123.png)

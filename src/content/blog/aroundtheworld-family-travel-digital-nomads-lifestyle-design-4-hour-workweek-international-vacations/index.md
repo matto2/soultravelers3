@@ -17,7 +17,7 @@ tags:
   - "travel-abroad"
 ---
 
-[![IMG_2016](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134802eed92970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134802eed92970c.jpg) Around-The-World Family Travel  
+![IMG_2016](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134802eed92970c.jpg) Around-The-World Family Travel  
 April 27, 2010
 
 More and more families are choosing  
@@ -26,7 +26,7 @@ world trips perhaps inspired by the
 
 <!--more-->
 
-[![oxen crossing road sign, Andalusia Spain, soultravelers3, around the world travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecff565b970b.jpg "oxen crossing road sign, Andalusia Spain, soultravelers3, around the world travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecff565b970b.jpg)  
+![oxen crossing road sign, Andalusia Spain, soultravelers3, around the world travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecff565b970b.jpg)  
 
 More and more [families are choosing international travel](http://travel.nytimes.com/2007/11/04/travel/04heads.html) and [around the world trips](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) perhaps inspired by the [new economy and many changes](http://soultravelers3new.local/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html) in our world. Today, we begin a new category for random [round-the-world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html) thoughts. Things like this cow or [ox crossing](http://soultravelers3new.local/2010/04/family-travel-photo-spain-around-the-world-travel-ox-traditional-white-village-expat-lifestyle.html#more) sign on a main highway, let you know that you are no longer in Kansas. After [traveling the world non-stop since 2006](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html) on 4 continents, as a family with a young child, there are three very important keys that  we suggest:
 

@@ -18,7 +18,7 @@ tags:
   - "yellow-train"
 ---
 
-[![IMG_5843](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e604e9489970c.jpg "IMG_5843")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e604e9489970c.jpg) Family Travel France:  
+![IMG_5843](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e604e9489970c.jpg) Family Travel France:  
 Pyrenees Photo - Highest Train Ride  
   
 When we stayed in  
@@ -27,7 +27,7 @@ the Pyrenees meet the sea 
 
 <!--more-->
 
-[![Family Travel France:  Pyrenees Photo - Highest Train Ride](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3a9920d970b.jpg "Family Travel France:  Pyrenees Photo - Highest Train Ride")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3a9920d970b.jpg)  
+![Family Travel France:  Pyrenees Photo - Highest Train Ride](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3a9920d970b.jpg)  
   
   
 

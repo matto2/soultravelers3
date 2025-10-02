@@ -18,14 +18,14 @@ tags:
   - "most-stunning-temple-asia"
 ---
 
-[![236228620](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31d4fcbd970b.jpg "236228620")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31d4fcbd970b.jpg)Stunning Kek Lok Si - Largest  
+![236228620](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31d4fcbd970b.jpg)Stunning Kek Lok Si - Largest  
 Buddhist Temple in SE Asia  
   
 Looking for a magical temple  
 experience in Asia? Don't miss  
 the stunning Kek Lok Si
 
-<!--more--> [![Magical and stunning Kek Lok Si 新年快乐  largest Buddhist Temple in SE Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744b2b5ae970d.jpg "Magical and stunning Kek Lok Si 新年快乐  largest Buddhist Temple in SE Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744b2b5ae970d.jpg)  
+<!--more--> ![Magical and stunning Kek Lok Si 新年快乐  largest Buddhist Temple in SE Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744b2b5ae970d.jpg)  
   
 Looking for a magical temple experience in Asia? Don't miss the stunning Kek Lok Si Temple, the largest Buddhist temple in Southeast Asia, on [Chinese New Year's](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Chinese New Years") Eve. The 10, 000 lanterns will enchant you as our video shows and most Chinese families are having their traditional dinner at that time, so you will have it almost completely to yourself.  
   

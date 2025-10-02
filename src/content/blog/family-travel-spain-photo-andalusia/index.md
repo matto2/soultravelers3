@@ -17,7 +17,7 @@ tags:
   - "white-villages-of-andalusia"
 ---
 
-[![IMG_4146](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434222344970c.jpg "IMG_4146")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434222344970c.jpg) Family Travel Spain: Photo Andalusia
+![IMG_4146](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434222344970c.jpg) Family Travel Spain: Photo Andalusia
 
 Family travel or a "family  
 holiday" as the British say,  
@@ -25,7 +25,7 @@ in southern Spain means
 
 <!--more-->
 
-[![family travel spain white village church square](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153904ed03b970b.jpg "family travel spain white village church square")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153904ed03b970b.jpg)  
+![family travel spain white village church square](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153904ed03b970b.jpg)  
   
 
 Family travel or a "family holiday" as the British say,  in [southern Spain](http://soultravelers3new.local/2011/05/best-southern-spain-holiday.html "southern spain holiday") means visiting beautiful [sugar cube villages](http://soultravelers3new.local/2006/11/we-are-living-i.html "adalusia white village") perched on verdant hills near the sea. The center of these villages metaphorically speaking, is the big square around the church.  

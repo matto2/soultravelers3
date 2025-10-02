@@ -18,13 +18,13 @@ tags:
   - "worlds-funniest-signs"
 ---
 
-[![IMG_2911](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3758978a970b.jpg "IMG_2911")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3758978a970b.jpg)Funniest Signs Around the World  
+![IMG_2911](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3758978a970b.jpg)Funniest Signs Around the World  
   
 Amongst the great joys of our  
 7 years of open-ended family travel,  
 are the hilarious and amusing signs
 
-<!--more--> [![funniest signs around the world - camel crossing ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4187d000970c.jpg "funniest signs around the world - camel crossing ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4187d000970c.jpg)  
+<!--more--> ![funniest signs around the world - camel crossing ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4187d000970c.jpg)  
   
 Amongst the great joys of our 7 years of [open-ended family travel](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "RTW long term travel"), are the hilarious and amusing signs we find on our [trip around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "family trip around the world") and get to add to our immense photo collection. Sign spotting weird, strange, funny signs is an entertaining game for [world travelers](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family world travelers").  
   

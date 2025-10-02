@@ -14,7 +14,7 @@ tags:
   - "winter-escape-georgetown"
 ---
 
-[![IMG_5285](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7993970d.jpg "IMG_5285")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7993970d.jpg)Georgetown, Penang  
+![IMG_5285](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7993970d.jpg)Georgetown, Penang  
 UNESCO Heritage City
 
 Georgetown, Penang is a UNESCO  
@@ -22,7 +22,7 @@ World Heritage site because it
 is an exceptional example of a
 
 <!--more-->  
-[![ Georgetown, Penang UNESCO Heritage City photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ab79fc15970d.jpg " Georgetown, Penang UNESCO Heritage City photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ab79fc15970d.jpg)  
+![ Georgetown, Penang UNESCO Heritage City photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ab79fc15970d.jpg)  
   
 [Georgetown](http://soultravelers3new.local/2011/01/family-travel-asia-photo-georgetown-malaysia.html "georgetown penang travel"), [Penang](http://soultravelers3new.local/2012/03/how-to-find-a-rental-apartment-in-penang-part-1.html "penang apartment finding one") is a [UNESCO World Heritage](http://whc.unesco.org/ "UNESCO world heritage") site because it is an exceptional example of a [multicultural](http://soultravelers3new.local/2012/06/nomadic-lifestyle-with-children-.html "raising multicultural kids") trading town with over a 500 year history of blending [Malay](http://soultravelers3new.local/2012/08/ramadan-ends-eid-ul-fitr-festival-begins.html "Malay festival penang"), [Chinese](http://soultravelers3new.local/2012/04/the-beauty-of-traditional-chinese-culture.html "Chinese culture penang"), [Indian](http://soultravelers3new.local/2013/02/worlds-best-festival-.html "Indian culture") cultures with 3 successive [European](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "European vacation") colonial powers.  
   

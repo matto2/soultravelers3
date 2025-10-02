@@ -7,14 +7,14 @@ categories:
   - "family-travel-photo"
 ---
 
- [![IMG_8363](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a580dc8c970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a580dc8c970b.jpg)Family Travel Photo - Austria  
+ ![IMG_8363](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a580dc8c970b.jpg)Family Travel Photo - Austria  
 September 18, 2009
 
 Joy! It is really what family travel  
 is about, isn't it? Don't forget that  
 no matter where you are on your travels
 
-<!--more-->  [![IMG_8363](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d75482970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d75482970c.jpg)
+<!--more-->  ![IMG_8363](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d75482970c.jpg)
 
  Joy! It is really what family travel is about, isn't it? Don't forget that no matter where you are on your travels to [allow for some spontaneous fun](http://www.uptake.com/blog/family_vacations/tips-traveling-with-kids-summer-vacation_4392.html) that your [child initiates](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html)!
 

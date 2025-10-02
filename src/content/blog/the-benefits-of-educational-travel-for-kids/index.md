@@ -19,14 +19,14 @@ tags:
   - "why-travel-with-kids"
 ---
 
-[![IMG_4247](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea228059970c.jpg "IMG_4247")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea228059970c.jpg)The Benefits of Educational  
+![IMG_4247](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea228059970c.jpg)The Benefits of Educational  
 Travel for Kids  
   
 Can travel help children  
 learn? I've written before  
 about learning vacations and
 
-<!--more--> [![travel benefits for kids like playing Jordan Monopoly in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676521141b970b.jpg "travel benefits for kids like playing Jordan Monopoly in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676521141b970b.jpg)  
+<!--more--> ![travel benefits for kids like playing Jordan Monopoly in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676521141b970b.jpg)  
   
   
 Can travel help children learn? I've written before about [learning vacations](http://soultravelers3new.local/2011/09/learning-vacations-educational-trips-that-teach-kids.html "learning vacations") and e[ducational trips that teach kids](http://soultravelers3new.local/2012/02/travel-schooling-learning-through-travel.html#more "educational trips that teach kids") as it is one of my passions and reasons why we  [travel as a family](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "world travel as a family") and do [world school](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "wold school") as we roam. I've also written about the benefits of [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel") and [kid-friendly travel perks](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html "kid friendly travel perks").  No matter how you travel or vacation, taking kids will benefit the whole family.  

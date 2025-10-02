@@ -15,14 +15,14 @@ tags:
   - "family-vacation-provence"
 ---
 
-[![IMG_6271](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134887c9718970c.jpg "IMG_6271")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134887c9718970c.jpg) Family Travel Provence, France: Narbonne  
+![IMG_6271](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134887c9718970c.jpg) Family Travel Provence, France: Narbonne  
 November 9, 2010
 
 Narbonne is a unique town  
 in Provence and very pretty  
 with the famous midi canal 
 
-<!--more--> [![family travel France Narbonne, Provence](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134887c9803970c.jpg "family travel France Narbonne, Provence")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134887c9803970c.jpg)  
+<!--more--> ![family travel France Narbonne, Provence](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134887c9803970c.jpg)  
   
 
 [Narbonne](narbonne "http://en.wikipedia.org/wiki/Narbonne") is a unique town in Provence and very pretty with the [famous midi canal r](midi  "http://en.wikipedia.org/wiki/Canal_du_Midi")uning right through it. The architecture seems more like the middle of France, instead of Provence. [Family travel in Provence](family travel provence "http://soultravelers3new.local/2006/10/good-morning-pr.html") multiple times can mean exploring lots of new places each time along with the tried and true.  

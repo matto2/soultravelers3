@@ -7,7 +7,7 @@ categories:
   - "norway"
 ---
 
- [![IMG_2717](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330112793ab88e28a4.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330112793ab88e28a4.jpg) Family Travel Photo- Norway!  
+ ![IMG_2717](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330112793ab88e28a4.jpg) Family Travel Photo- Norway!  
 March 6th, 2009
 
 After a sauna and the most scrumptious  
@@ -16,7 +16,7 @@ leisurely while taking in the awe-inspiring
 
 <!--more-->
 
-[![Norway fjord lake peaceful](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330112793b302128a4.jpg "Norway fjord lake peaceful")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330112793b302128a4.jpg) 
+![Norway fjord lake peaceful](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330112793b302128a4.jpg) 
 
   
 After a sauna and the most scrumptious organic breakfast, which we savored leisurely while taking in the awe-inspiring mountain and lake views, Mozart decided that she had to investigate it even closer.

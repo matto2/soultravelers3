@@ -21,13 +21,13 @@ tags:
   - "mandarin-immersion-in-china"
 ---
 
-[![IMG_7862](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee531fd5b970d.jpg "IMG_7862")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee531fd5b970d.jpg)Mandarin Immersion in China  
+![IMG_7862](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee531fd5b970d.jpg)Mandarin Immersion in China  
   
 There is no better way  
 to learn a language or  
 culture than immersing in it
 
-<!--more--> [![immersing in Mandarin in China in an ideal environment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee531ff06970d.jpg "immersing in Mandarin in China in an ideal environment")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee531ff06970d.jpg)  
+<!--more--> ![immersing in Mandarin in China in an ideal environment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee531ff06970d.jpg)  
   
 There is no better way to [learn a language and culture than immersing](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "learning a chinese through immersion") in it and becoming part of the family as we are doing in China and we've written about that before in our [Raising a Multilingual Child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "raising a multilingual child") series and [How and Why to Raise a Global Kid](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "why raise a global kid").  
   
@@ -59,7 +59,7 @@ Global Citizens = Spanish and Mandarin Immersion](http://soultravelers3new.local
   
   
   
-[![American in a Chinese school immersing in Mandarin with kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee53200ef970d.jpg "American in a Chinese school immersing in Mandarin with kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee53200ef970d.jpg)  
+![American in a Chinese school immersing in Mandarin with kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee53200ef970d.jpg)  
   
 Mozart [adores babies and kids](http://soultravelers3new.local/2012/11/babies-in-beijing-china-travel-joy.html "babies and kids in China"), so this is a playful way to immerse. She just finished nine months of intensive Mandarin High School (skipped several years ahead), so it's good for her to have a lot of fun and play time on her school vacation while she does this immersion.  
   
@@ -71,7 +71,7 @@ It is common here for some young kids to stay over night in the school on weekda
   
 A group of older kids come after school between 3 P.M. and 8 P.M., including a twelve year old girl that has a brother who is a student here, so this gives her some older children to play with as well. With the twenty-something teachers, older help and parents, she has a wide range of local people and loving community to connect with and converse with at the school.  
   
-[![serving delicious, nutritious organic TCM food at Chinese school in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338e9b7e970b.jpg "serving delicious, nutritious organic TCM food at Chinese school in Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338e9b7e970b.jpg)  
+![serving delicious, nutritious organic TCM food at Chinese school in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338e9b7e970b.jpg)  
   
 The school principal is a TCM doctor, so health is of utmost importance to the school and they serve only [organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic food") which is super delicious and nutritious. This is a photo of the head cook and the photos in the background are basics about TCM food to help educate the children about eating well.  
   
@@ -79,19 +79,19 @@ We parents often eat lunch there ( using chopsticks of course) and learn more ab
   
 It's an extremely clean and well organized kitchen and dining rooms ( and the school is filled with extraordinary antiques and beautiful wooden furntiture and art). We were told the exceptional cooks could work elsewhere for more money, but they enjoy serving the children and being part of this school.  
   
-[![large play area in Chinese school in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338e9e4a970b.jpg "large play area in Chinese school in Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338e9e4a970b.jpg)  
+![large play area in Chinese school in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338e9e4a970b.jpg)  
   
 The space the school is in is huge and I will be doing a more detailed report and series on our experience here. There is a connected organic food coop on the floor below with large office with the school is primarily on the second floor. ...all in central Beijing in a family friendly middle class area.  
   
 The kids go outside to a nearby park every morning hand in hand which Mozart enjoys too and this gigantic play room is used every day as well. All of the equipment is child friendly materials to help increase the children's physical abilities as well as fun to do. Mozart adores sliding on the wheelie thing down the little roller coaster on her belly like in this photo as well as building block creations with the kids, jumping on the trampolines or swinging like above.  
   
-[![One of our offices in China at this beautiful Chinese school in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320887970d.jpg "One of our offices in China at this beautiful Chinese school in Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320887970d.jpg)  
+![One of our offices in China at this beautiful Chinese school in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320887970d.jpg)  
   
 Mid day when the little kids are taking a nap, Mozart gets some private lessons and time to read and write in Mandarin. They have a fantastic selection of kids books in Mandarin, so perfect for her and sometimes she reads to the little ones.  
   
 We set up our little office with our laptops when there at this lovely wood table and can give her a hug or kiss as she walks by. We're also going to teach the kids a song and put on a little play before we leave with the kids and teachers with them learning a bit of English and Mozart will be the master of ceremony explaing it all in Mandarin. Can you guess the theme? Thanksgiving!  
   
-[![chinese school dining room for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320aca970d.jpg "chinese school dining room for kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320aca970d.jpg)  
+![chinese school dining room for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320aca970d.jpg)  
   
 This is a photo of the kids having their afternoon snack ( they get three healthy meals and two snacks every day). You can see the other 12 year old who comes after school, but there are several other older neighborhood kids who also come every day.  
   
@@ -101,11 +101,11 @@ Originally we were going to work with a language school that has an immersion pr
   
 This serendipity has been a great blessing as I can't imagine a better situation for us on our first visit to China to immerse in the language and culture. We are so impressed with this magnificent school and these outstanding people and share the same values.  
   
-[![The adventures of Tintin in Mandarin at Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320cc2970d.jpg "The adventures of Tintin in Mandarin at Chinese school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320cc2970d.jpg)  
+![The adventures of Tintin in Mandarin at Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5320cc2970d.jpg)  
   
 They have a enormous and fantastic selection of quality kids books in Mandarin which all the kids love and keeps Mozart occupied in spare moments like this classic Tintin book ( that are so popular in Europe).  
   
-[![chinese school in China dorm room for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3dbd21c0970c.jpg "chinese school in China dorm room for kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3dbd21c0970c.jpg)  
+![chinese school in China dorm room for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3dbd21c0970c.jpg)  
   
 Mozart enjoyed showing us where she sleeps every night at the school and one can spot her bed by the little Panda she just got from the [Four Seasons Beijing](http://www.fourseasons.com/beijing/ "four seasons beijing") when we arrived. Just four kids, (including her favorite, a bright 6 year old girl), sleep over night with two teachers.  
   

@@ -16,13 +16,13 @@ tags:
   - "wadi-rum-best-lodging"
 ---
 
-[![IMG_2895](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538fee46b3970b.jpg "IMG_2895")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538fee46b3970b.jpg)Wadi Rum Bedouin Honeymoon Suite
+![IMG_2895](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538fee46b3970b.jpg)Wadi Rum Bedouin Honeymoon Suite
 
 A stunning sunset over  
 the majestic and unique  
 landscape of Wadi Rum,
 
-<!--more--> [![wadi rum jordan bedouin camp honeymoon suite in a tent](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e1dd08970d.jpg "wadi rum jordan bedouin camp honeymoon suite in a tent")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e1dd08970d.jpg)
+<!--more--> ![wadi rum jordan bedouin camp honeymoon suite in a tent](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89e1dd08970d.jpg)
 
 A stunning sunset over the majestic and unique landscape of Wadi Rum, followed by a full moon, endless stars and tranquil evening with a spectacular Bedouin dinner cooked under the sand, made Wadi Rum DaVinci's favorite place on our [family trip to Jordan.](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "family trip to Jordan")  
   

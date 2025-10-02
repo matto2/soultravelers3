@@ -15,7 +15,7 @@ do while I rested and recuperated.
 
 <!--more-->
 
-[![Img_3996](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3996.png "Img_3996")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3996.png)
+![Img_3996](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3996.png)
 
 The good news about my ten day recovery, is it was a great spot to be in, because there were so many great things for Mozart to do while I rested and recuperated. The bad news is we had to revamp our itinerary again and we had to cut out a lot of things that we were looking forward to seeing and doing.
 

@@ -15,7 +15,7 @@ few places like that on our travels, but Hallstatt was definitely
 
 <!--more-->
 
-[![Img_2134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2134.png "Img_2134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2134.png)
+![Img_2134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2134.png)
 
 Some places just make you feel like you are in a dream as the beauty seems almost too much for reality. We have actually found quite a few places like that on our travels, but Hallstatt was definitely one that stood out. It is such a perfect postcard Alpine village that it almost seems out of Disneyland, and fall is a wonderful time to visit with the Octoberfest music, bright foliage and traditional costumes adding to the enchantment.
 
@@ -27,26 +27,26 @@ Hallstatt almost seems like a toy town with each ivy and flower covered cottage 
 
 The beauty is so astounding here that it could not help but make me wonder what it is like to grow up in this environment. I wonder if the locals take all of it for granted or if one just gets used to it if you see it every day. It is abundantly clear why this area was picked as a Unesco World Heritage site. I bet it is beautiful in every season, but I am glad that we got to see it in the fall.
 
-[![Img_1966](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_1966.png "Img_1966")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1966.png)
+![Img_1966](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1966.png)
 
-[![Img_1985](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_1985.png "Img_1985")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1985.png)
+![Img_1985](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1985.png)
 
-[![Img_2028](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2028.png "Img_2028")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2028.png)
+![Img_2028](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2028.png)
 
-[![Img_1981](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_1981.png "Img_1981")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1981.png)
+![Img_1981](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1981.png)
 
-[![Img_2029](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2029.png "Img_2029")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2029.png)
+![Img_2029](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2029.png)
 
-[![Img_2153](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2153.png "Img_2153")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2153.png)
+![Img_2153](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2153.png)
 
-[![Img_2409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2409.png "Img_2409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2409.png)
+![Img_2409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2409.png)
 
-[![Img_2200](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2200.png "Img_2200")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2200.png)
+![Img_2200](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2200.png)
 
-[![Img_2226](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2226.png "Img_2226")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2226.png)
+![Img_2226](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2226.png)
 
-[![Img_2033](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2033.png "Img_2033")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2033.png)
+![Img_2033](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2033.png)
 
-[![Img_1998](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_1998.png "Img_1998")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1998.png)
+![Img_1998](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1998.png)
 
-[![Img_2051](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2051.png "Img_2051")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2051.png)
+![Img_2051](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2051.png)

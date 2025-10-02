@@ -21,7 +21,7 @@ tags:
   - "teen-singer-mozart-is-in-recording-studio"
 ---
 
-[![B4XqRoHCcAAYnIi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c71beec2970b.jpg "B4XqRoHCcAAYnIi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c71beec2970b.jpg)Mozart's Recording Her Beautiful  
+![B4XqRoHCcAAYnIi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c71beec2970b.jpg)Mozart's Recording Her Beautiful  
 Song "You're Not Alone"!!  
   
 Dallas Lovato and the world loves  
@@ -29,7 +29,7 @@ just-turned -14-year-old  Mozart's
 beautiful song, "You're Not Alone"
 
 <!--more-->  
-[![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c71bff42970b.png "Mozart's Recording Her Beautiful Song "You're Not Alone"!!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c71bff42970b.png)  
+![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c71bff42970b.png)  
   
 Dallas Lovato and the world loves just-turned -[14-year-old Mozart](http://soultravelers3new.local/2014/10/mozart-sings-at-the-house-of-blues.html "beautiful teen singer Mozart performs at the House of Blues")'s [beautiful song, "You're Not Alone"](https://www.youtube.com/watch?v=AUd-6FmGFVU "beautiful song, \"You're Not Alone\" by Mozart") that she wrote to help the cause of Human Trafficking, but it appeals to everyone's heart, as we all need inspiration!  
   
@@ -44,7 +44,7 @@ Dallas Lovato and the world loves just-turned -[14-year-old Mozart](http://soult
   
 They're actually going to do two versions, one for Dallas Lovato and the movie producers that have interest and one for one of the top music managers in the business who has interest in her. [Mozart](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Mozart beautiful teen singer songwriter, musician") is so excited as it is truly a dream come true!  
   
-[![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a5cd35970c.png "Mozart's Recording Her Beautiful Song "You're Not Alone"!!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a5cd35970c.png)  
+![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a5cd35970c.png)  
   
 **MOZART'S SONG ON ITUNES**  
   
@@ -60,7 +60,7 @@ In just over a week this [song, "You're Not Alone"](http://soultravelers3new.loc
   
 We just put this song on Youtube with our little inexpensive camcorder, so can't imagine how beautiful the song will sound when professionally produced. It should be done around December 17th & we will share it with you and the world.  
   
-[![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a5cd53970c.png "Mozart's Recording Her Beautiful Song "You're Not Alone"!!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a5cd53970c.png)  
+![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a5cd53970c.png)  
   
 **MOZART'S SINGING PERFORMANCES AND RADIO SHOW**  
   

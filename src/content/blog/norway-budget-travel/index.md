@@ -11,13 +11,13 @@ tags:
   - "visit-norway-on-a-budget"
 ---
 
-[![IMG_6939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154343f2583970c-scaled.jpg "IMG_6939")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154343f2583970c-scaled.jpg)Norway Budget Travel
+![IMG_6939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154343f2583970c-scaled.jpg)Norway Budget Travel
 
 Can expensive, beautiful  
 Norway be traveled to  
 on a very low budget
 
-<!--more--> [![enjoying norway fjords on a budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154343f2708970c.jpg "enjoying norway fjords on a budget")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154343f2708970c.jpg)  
+<!--more--> ![enjoying norway fjords on a budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154343f2708970c.jpg)  
   
   
 Can expensive, [beautiful Norway](http://www.visitnorway.com/ "travel to norway") be traveled to on a very low budget like ours? Absolutely! We've been [traveling the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "traveling the world") for going on 6 years now on just $23/day per person to 43 countries on 5 continents and that includes some of the world's most expensive destinations like [Norway](http://en.wikipedia.org/wiki/Norway "norway") and [Bora Bora](http://soultravelers3new.local/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "bora bora on a budget") on a very tight budget. If there is a will, there is always a way.  

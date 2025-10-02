@@ -13,7 +13,7 @@ tags:
   - "remembrance-on-memorial-day"
 ---
 
-[![10342489_10203066404597772_6182011212935321594_n](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd105dc0970b.jpg "10342489_10203066404597772_6182011212935321594_n")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd105dc0970b.jpg)Gratitude and Remembrance  
+![10342489_10203066404597772_6182011212935321594_n](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd105dc0970b.jpg)Gratitude and Remembrance  
 on Memorial Day  
   
 I am an extreme pacifist, very  
@@ -22,18 +22,18 @@ so for me, most of my life
 
 <!--more-->  
   
-[![ gratitude and remembrance on Memorial Day - My dad in uniform](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c00490970c.png " gratitude and remembrance on Memorial Day - My dad in uniform")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c00490970c.png)  
+![ gratitude and remembrance on Memorial Day - My dad in uniform](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c00490970c.png)  
   
 I am an extreme [pacifist](http://soultravelers3new.local/2012/10/world-peace-love-and-happiness.html "world peace"), very much against war and violence, so for me, most of my life, [Memorial Day](http://soultravelers3new.local/2007/05/italian-memoria.html "Memorial Day in Italy") has been one of mainly celebrating the beginning of summer.  
   
 As it happens my brother ( who died young) had the same birthday as my husband and both often fall on [Memorial Day weekend](http://soultravelers3new.local/2007/06/adriatic-birthd.html "Memorial Day weekend")\- so that always added to our holiday celebrations.  
   
-[![Gratitude and Remembrance on Memorial Day - my step dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c00cdf970c.png "Gratitude and Remembrance on Memorial Day - my step dad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c00cdf970c.png)  
+![Gratitude and Remembrance on Memorial Day - my step dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c00cdf970c.png)  
   
   
 But this Memorial Day, I am thinking about [my father](http://soultravelers3new.local/2012/05/what-i-learned-from-my-father.html "what I learned from my father"), my [step father](http://soultravelers3new.local/2010/12/mourning-while-traveling-tribute-to-al-grief-and-travel-deathdying-at-a-distance.html "mourning and travel") and my [father-in-law](http://soultravelers3new.local/2010/06/good-bye-dad-grandpa-family-death-afar-while-traveling-abroad.html "death in the family while traveling "), all veterans and all fairly recently deceased ( while we [traveled the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel the world")).  
   
-[![ Honoring and Gratitude on Memorial Day - DaVinci's Dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c0a254970c.png " Honoring and Gratitude on Memorial Day - DaVinci's Dad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c0a254970c.png)  
+![ Honoring and Gratitude on Memorial Day - DaVinci's Dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c0a254970c.png)  
   
   
 Two fought in World War II, one barely 18 who lied about his color blindedness to get in and the other even younger who lied about his age to get in and saw some of the worst action in the Pacific. The third wasn't old enough to join during the war and was disappointed about that.  

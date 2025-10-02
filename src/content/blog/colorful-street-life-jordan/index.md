@@ -17,13 +17,13 @@ tags:
   - "visiting-jordan"
 ---
 
-[![IMG_1151](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c88100970b.jpg "IMG_1151")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c88100970b.jpg)Colorful Street Life Jordan
+![IMG_1151](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c88100970b.jpg)Colorful Street Life Jordan
 
 We loved the colorful  
 street life in Jordan. Just  
 wandering the streets in any
 
-<!--more--> [![wandering the streets of Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c881cf970b.jpg "wandering the streets of Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c881cf970b.jpg)  
+<!--more--> ![wandering the streets of Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c881cf970b.jpg)  
   
   
 We loved the colorful street life in [Jordan](http://soultravelers3new.local/2011/05/jordan-tourismsmartest-.html "Jordan travel"). Just wandering the streets in any foreign location, is one of the great [pleasures of travel](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "Pleasures of travel") in my book, getting a glimpse into every day life in another part of the world. Different clothes, written language, smells, [food](http://soultravelers3new.local/2012/03/jordan-means-delicious-food.html "Jordan food"), markets, sounds...delight the senses.  

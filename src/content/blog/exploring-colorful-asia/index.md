@@ -17,13 +17,13 @@ tags:
   - "weld-quay"
 ---
 
-[![IMG_5275](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167695b8b4d970b.jpg "IMG_5275")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167695b8b4d970b.jpg)Exploring Colorful Asia
+![IMG_5275](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167695b8b4d970b.jpg)Exploring Colorful Asia
 
 The bright colors of Asia  
 ...lots of red combined  
 with yellow, azure, green,
 
-<!--more--> [![IMG_5275](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167695b8be6970b.jpg "IMG_5275")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167695b8be6970b.jpg)  
+<!--more--> ![IMG_5275](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167695b8be6970b.jpg)  
   
 The bright [colors of Asia](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "stunning color photos of Asia")...lots of red combined with yellow, azure, green, white, orange against a rustic background under the tropical sun, [Mandarin](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "learning Mandarin in Asia") characters written everywhere, are all part of what attracts us to this area of the world.  UNESCO Heritage Site, [Penang](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "Our Penang home") or Pearl of the Orient, is considered one of the most beautiful destinations in [Southeast Asi](http://soultravelers3new.local/2012/05/living-in-asia.html "southeast Asia")a with it's magnificent, unique architecture and rich history.
 

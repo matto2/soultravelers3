@@ -18,7 +18,7 @@ tags:
   - "yummy-chocolate-cake"
 ---
 
-[![6a00e5502a95078833019b006309be970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5115724c3970c.jpg "6a00e5502a95078833019b006309be970b-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5115724c3970c.jpg)Gluten-Free Yummy Chocolate Cake
+![6a00e5502a95078833019b006309be970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5115724c3970c.jpg)Gluten-Free Yummy Chocolate Cake
 
 Did you know that January 27th  
 is World Chocolate Cake Day? Looking  
@@ -26,7 +26,7 @@ for the BEST healthy chocolate cake
 
 <!--more-->
 
-[![best chocolate cake gluten-free, grain-free, Paleo, healthy and yummy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5115792c1970c.png "best chocolate cake gluten-free, grain-free, Paleo, healthy and yummy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5115792c1970c.png)  
+![best chocolate cake gluten-free, grain-free, Paleo, healthy and yummy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5115792c1970c.png)  
   
 Did you know that January 27th is World Chocolate Cake Day? Looking for the [BEST healthy chocolate cake recipe](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html "best chocolate cake recipe - healthy gluten-free, grain-free") around that is healthy, gluten-free, grain-free and easy?  
   

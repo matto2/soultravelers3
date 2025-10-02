@@ -21,7 +21,7 @@ tags:
   - "travel-teen-mozart-sings"
 ---
 
-[![IMG_5260](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce13230970b.jpg "IMG_5260")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce13230970b.jpg)13 Year Old Mozart Sings  
+![IMG_5260](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce13230970b.jpg)13 Year Old Mozart Sings  
 Time After Time  
   
 We are so proud of 13 year old  
@@ -31,13 +31,13 @@ showcase which had an 80's theme
 <!--more-->  
   
   
-[![beautiful 13 year old Mozart singing Time After Time by Cyndi Lauper](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a1db970c.png "beautiful 13 year old Mozart singing Time After Time by Cyndi Lauper")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a1db970c.png)  
+![beautiful 13 year old Mozart singing Time After Time by Cyndi Lauper](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a1db970c.png)  
   
 **MOZART SINGS**  
   
 We are so proud of [13 year old Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "travel teen Mozart speech") who just did her first [singing showcase](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "beautiful teen singer Mozart") which had an 80's theme so she sang _Time After Time._ She added curly hair, [fashionista](http://soultravelers3new.local/2014/01/life-of-luxury.html "fashionista") clothes and Cyndi Lauper/Eva Cassidy dazzle to this award winning, classic Pop song.  
   
-[![Travel teen Mozart is singer, songwriter, musician and linguist](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d9db6ce970d.png "Travel teen Mozart is singer, songwriter, musician and linguist")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d9db6ce970d.png)  
+![Travel teen Mozart is singer, songwriter, musician and linguist](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d9db6ce970d.png)  
   
   
 **BRAVE ARTIST** - **JUST 5 LESSONS**  
@@ -69,7 +69,7 @@ We've just learned that she has a 4 octave range which is very unusual for a 13 
   
 ( Normally an untrained voice has a vocal range of about one and one-half octaves, while most trained singers have at least two usable octaves as training can expand a voice, though it is rare to have 4 usable octaves, especially this young).  
   
-[![Mozart travel teen and singer/songwriter and musician ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ed6b970b.png "Mozart travel teen and singer/songwriter and musician ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ed6b970b.png)  
+![Mozart travel teen and singer/songwriter and musician ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ed6b970b.png)  
   
 **VOCAL OCTAVE RANGES OF CURRENT SINGING STARS**  
   
@@ -80,7 +80,7 @@ To put it into perspective here are some vocal ranges for various singers: Britn
 Back in the day, I did some vocal training in NYC with an awesome coach who taught many stars on Broadway, so found out I have a 3 1/2 octave range. ( I didn't do it for singing, but to improve my speaking voice which needed to go from a Jackio-O-type-whisper...due to trauma... to my full capacities for stage acting.) Thus, I know first-hand the value of a great teacher when it comes to voice.  
   
   
-[![RTW Travel teen Mozart taking a selfie in the Tulips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a287970c.png "RTW Travel teen Mozart taking a selfie in the Tulips")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a287970c.png)  
+![RTW Travel teen Mozart taking a selfie in the Tulips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a287970c.png)  
   
 **WHY DALLAS?**  
   
@@ -91,7 +91,7 @@ Many of you wondered why we came to Dallas from Asia. According to a book I just
 [Our travel lifestyle](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "How-to longterm family travel lifestyle ") has always been led by Mozart's educational needs. We travel to places that enrich her whether that is [learning Spanish in Spain](http:/
 /www.soultravelers3.com/2013/05/learning-spanish-in-spain.html "learning spanish in spain"), making her [film debut](http://soultravelers3new.local/2007/09/mozarts-film-de.html "Mozart's film debut ") in Croatia,  [learning Mandarin in China](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html "learning Mandarin in Beijing, China - best school"), exploring the [Grand Canyon](http://soultravelers3new.local/2014/02/grand-canyon-family-adventure.html "grand canyon family adventure"), [Harry Potter's World](http://soultravelers3new.local/2012/01/the-wizarding-world-of-harry-potter-kids-review.html "Harry potter's world Universal kid review"), or [Santa Fe](http://soultravelers3new.local/2014/02/romantic-winter-getaway-santa-fe.html "santa fe romantic travel"), learning to [play the didgeridoo in Australia](http://soultravelers3new.local/2014/03/best-place-to-buy-a-didgeridoo-in-sydney-gifts-at-the-quay.html "playing didgeridoo in Sydney with Steven Tyler"), [swimming with dolphins in Portugal](http://soultravelers3new.local/2013/02/only-place-in-europe-to-swim-with-dolphins-portugal.html "swim with dolphins ") or what ever can help enrich her and expand her consciousness.  
   
-[![Travel teen Mozart singing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ee23970b.png "Travel teen Mozart singing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ee23970b.png)  
+![Travel teen Mozart singing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ee23970b.png)  
   
 **FINDING MANDARIN AND SPANISH SPEAKING COMMUNITIES**  
   
@@ -101,19 +101,19 @@ There is also a Mandarin-speaking Chinese community here and a Spanish-speaking 
   
 Mozart has joined a Spanish-speaking Girl Scout troop here and is working on a STEM project for a badge with a University of Texas professor, has connected to an award-winning Mandarin-speaking violinist and conductor about joining a youth orchestra, is taking a songwriting class, [giving a travel speech](http://soultravelers3new.local/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html "Teen travel expert Mozart youngest presenter at Global Education Conference") soon for the [Dallas Public  Libraries](http://dallaslibrary2.org/ "dallas public libraries"), dissected a fruit-fly larva in a chromosome experiment at the fabulous [Perot Museum of Nature and Science,](http://www.perotmuseum.org/ "the perot museum") is taking fencing, learned some science at [Dallas Arboretum](http://www.dallasarboretum.org/ "dallas Arboretum") etc.,....so she continues her well-rounded interests.  
   
-[![Mozart singing a POP classic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d9db81d970d.png "Mozart singing a POP classic")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d9db81d970d.png)  
+![Mozart singing a POP classic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d9db81d970d.png)  
   
 **COMING OF AGE PROCESS FOR TEEN AND PARENTS**  
   
 I am finding it fascinating that as our Mozart blossoms in her teen years, we parents are also going through a "coming of age" new phase as we try to figure out ways to support her and keep an open mind without any preconcieved ideas about her journey to adulthood, allowing and trusting her passions to lead the way.  
   
-[![Travel teen Mozart is a globetrotting  fashionista](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2edf3970b.png "Travel teen Mozart is a globetrotting  fashionista")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2edf3970b.png)  
+![Travel teen Mozart is a globetrotting  fashionista](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2edf3970b.png)  
   
 **GIVING A TEEN MANY OPPORTUNITIES**  
   
 As we have always done, we try to support her passions, give her many different opportunities to learn, grow and explore different ways of being. As non-singing, non-musical-instrument-playing parents, it's been an interesting and wild ride lately, but we are grateful we decided to take this risk and lean into the unique experiences available here.  
   
-[![Mozart singing a tender song](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a35a970c.png "Mozart singing a tender song")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a35a970c.png)  
+![Mozart singing a tender song](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192a35a970c.png)  
   
 **FOREIGN OR NOT**  
   
@@ -129,7 +129,7 @@ It is almost as if she is turning into those [Uffitzi](http://soultravelers3new.
   
 Perhaps it is because I am an older mom or because she is an "only", or maybe this is just normal for parenting a new teen in these fast moving "launching" years as they prepare for college and careers. I sometimes wonder how people do this with more than one.  
   
-[![travel teen Mozart exploring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ee98970b.png "travel teen Mozart exploring")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ee98970b.png)  
+![travel teen Mozart exploring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2ee98970b.png)  
   
 **PERFECT SONG CHOICE**  
   
@@ -140,7 +140,7 @@ Time after time
 If you fall I will catch you--I'll be waiting  
 Time after time  
   
-[![Travel teen Mozart singing and feeling the music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2eecc970b.png "Travel teen Mozart singing and feeling the music")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2eecc970b.png)  
+![Travel teen Mozart singing and feeling the music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fce2eecc970b.png)  
   
 **MOZART'S UPCOMING PERFORMANCES AND SONGS**  
   
@@ -156,7 +156,7 @@ What do you think about this new adventure? Have you found parenting and homesch
   
 **MOZART WON HER 1ST MUSIC AWARD!!**  
   
-[![Bronze performance award](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192d2e0970c.jpg "Bronze performance award")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192d2e0970c.jpg)  
+![Bronze performance award](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51192d2e0970c.jpg)  
 OMG! She just won an A&R Award for best performance on her first cover song!!
 
 "Congratulations! You have [received a prestigious BEAT100 A&R Award.](http://www.beat100.com/watch-video/time-after-time---cyndi-lauper-cover-by-13-year-old-mozarti_117200/ "Mozart wins a music award!") BEAT100 only gives these awards to selected individuals for their exceptional achievement. Our music video awards targets musical talent directly ensuring that the most talented artists, bands or musicians are the most rewarded for uploading well-written original music or songs, for displaying a strong vocal/musical performance, or for uploading an overall high-quality and well produced video."  

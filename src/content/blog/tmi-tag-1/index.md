@@ -27,7 +27,7 @@ tags:
   - "wild-questions"
 ---
 
-[![-1 copy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0602e61970c.jpg "-1 copy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0602e61970c.jpg)TMI Tag!
+![-1 copy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0602e61970c.jpg)TMI Tag!
 
 Trilingual teen Mozart answers  
 the TMI Tag ( too much information)  
@@ -35,7 +35,7 @@ on Youtube, vlogging her entertaining
 
 <!--more-->
 
-[![TMI Tag! Youtuber Mozart tells all!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c26970b.png "TMI Tag! Youtuber Mozart tells all!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c26970b.png)  
+![TMI Tag! Youtuber Mozart tells all!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c26970b.png)  
 [Trilingual teen Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html#more "trilingual teen Mozart public speaker") answers the TMI Tag ( too much information) on [Youtube](http://www.youtube.com/user/soultravelers3 "youtube soultravelers3"), vlogging her entertaining take to this popular and fun "beauty guru" youtuber tag because many of you have wanted more information, so this seemed like a cool one to do.  
   
 Fears, TV shows, Boyfriend? ...and more!  
@@ -47,12 +47,12 @@ Fears, TV shows, Boyfriend? ...and more!
   
 Mozart had a blast making it,so we hope you enjoy it!  She did it in one take since we were busy moving this week ( more on that soon!) and only had 18 minutes on the camera. Then we edited it to add a little spice ( but challenging as we had to finally buy a new Mac and the tech has changed sooo much since we bought ours in 2006!).Yikes!  
   
-[![RTW Travel teen singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c35970b.png "RTW Travel teen singer Mozart")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c35970b.png)  
+![RTW Travel teen singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c35970b.png)  
   
   
 Thanks to her [first vlog](http://www.youtube.com/watch?v=un95ND8Uasc "Mozart's first Vlog about Shopping in Mandarin in China"), ( and much to our surprise) Mozart got asked to be the youngest backstage and runway reporter for [New York Fashion Week](http://www.newyorkfashionweek.buzz/ "New York Fashion Week with Mozart as youngest reporter") with some amazing opportunities!! Stay tuned for news/video about that, a big GiveAway and upcoming EPIC road trip from [Dallas](http://soultravelers3new.local/2014/02/dallas-luxury-resort-arriving-to-big-d-in-style.html "dallas travel") to the [Big Apple](http://soultravelers3new.local/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "NYC travel")!  
   
-[![TMI Tag done by travel teen and singer Mozart on Youtube](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c3b970b.png "TMI Tag done by travel teen and singer Mozart on Youtube")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c3b970b.png)  
+![TMI Tag done by travel teen and singer Mozart on Youtube](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c3b970b.png)  
   
 Don't forget to subscribe to you [Soultravelers3 YOUTUBE channel](http://www.youtube.com/user/soultravelers3 "soultravelers3 youtube channel") for lots of exciting weekly videos by Mozart. Give her a thumbs up if you'd like to see more Q/A videos and if you answer 3 questions, she will follow you on Twitter!  
   

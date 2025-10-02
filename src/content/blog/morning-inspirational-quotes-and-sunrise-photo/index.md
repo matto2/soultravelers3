@@ -17,14 +17,14 @@ tags:
   - "sunrise-photo"
 ---
 
-[![IMG_5746](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32d7f4a6970b.jpg "IMG_5746")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32d7f4a6970b.jpg)Morning Inspirational  
+![IMG_5746](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32d7f4a6970b.jpg)Morning Inspirational  
 Quotes and Sunrise Photo  
   
 Morning has broken and  
 a new day , a new week  
 greets us. Things have speeded
 
-<!--more--> [![beautiful sunrise photo starts me day with joy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d0690a1970c.jpg "beautiful sunrise photo starts me day with joy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d0690a1970c.jpg)  
+<!--more--> ![beautiful sunrise photo starts me day with joy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d0690a1970c.jpg)  
   
 Morning has broken and a new day , a new week greets us. Things have speeded up in our [travel lifestyle](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "travel lifestyle for digital nomad family")  world as we are doing last minute prep for our trip to China, thus my posts will likely be shorter for a while with mostly photos. I love sharing these sunrise photos with you and inspiring quotes so hope you enjoy them too.  
   

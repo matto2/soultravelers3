@@ -15,14 +15,14 @@ tags:
   - "trains-in-china"
 ---
 
-[![IMG_9570](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4ea97a970c.jpg "IMG_9570")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4ea97a970c.jpg)Taking the Fast  
+![IMG_9570](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4ea97a970c.jpg)Taking the Fast  
 Train in China  
   
 Arriving at Beijing's South  
 Station to take the super  
 fast bullet train ( a distinctive
 
-<!--more--> [![fast train Beijing south to Shanghai - beautiful attendants](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c36cb5970d.jpg "fast train Beijing south to Shanghai - beautiful attendants")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c36cb5970d.jpg)  
+<!--more--> ![fast train Beijing south to Shanghai - beautiful attendants](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5c36cb5970d.jpg)  
   
 Arriving at Beijing's South Station to take the super fast bullet train ( a distinctive pointed nose - their brand new "G" category) to [Shanghai](http://soultravelers3new.local/2012/12/shanghai-skyline-worlds-best-.html "Shanghai"), is more like being at an airport than a train station. It travels at 300km/186 miles an hour and arrives in under 5 hours in comfort ( and likely more reliable than a flight and as fast, counting travel and check-in time).  
   

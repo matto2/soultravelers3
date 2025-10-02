@@ -9,7 +9,7 @@ categories:
 [  
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011168461885970c-768x579-1.jpg)
 
- [![IMG_9703](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330105370be488970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330105370be488970b.jpg) Family Travel Photo-England  
+ ![IMG_9703](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330105370be488970b.jpg) Family Travel Photo-England  
 February 4, 2009
 
 Mozart had a brilliant time swimming  
@@ -18,7 +18,7 @@ beautiful canal where we would take a boat ride
 
 <!--more-->
 
-[![Stratford-upon-Avon, UK, England, Camping, Swans,Shakespeare, RSC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011168461885970c.jpg "Stratford-upon-Avon, UK, England, Camping, Swans,Shakespeare, RSC")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011168461885970c.jpg)
+![Stratford-upon-Avon, UK, England, Camping, Swans,Shakespeare, RSC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011168461885970c.jpg)
 
 Mozart had a brilliant time swimming and splashing with the swans on this beautiful canal where we would take a boat ride in from our campsite to visit and see Shakespeare plays at [world famous Stratford-upon-Avon](http://en.wikipedia.org/wiki/Stratford-upon-Avon "wikipedia info on Stratford upon Avon"). It is hailed as the [birthplace of William Shakespeare](http://www.onlineshakespeare.com/birthplace.htm "information about Shakespeares birthplace") and filled with the charm of ["The heart of England's " Cotswolds.](http://en.wikipedia.org/wiki/Cotswolds "wikipedia info about Cotswolds/heart of England")
 

@@ -16,13 +16,13 @@ tags:
   - "what-do-with-kids-in-paris"
 ---
 
-[![IMG_2459](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a50d4b0970d.jpg "IMG_2459")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a50d4b0970d.jpg) Paris Travel With Kids
+![IMG_2459](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a50d4b0970d.jpg) Paris Travel With Kids
 
 Having spent many  
 months with repeat  
 visits to Paris as a family,
 
-<!--more--> [![Paris with kids best tips for perfect day](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434309046970c.jpg "Paris with kids best tips for perfect day")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434309046970c.jpg)  
+<!--more--> ![Paris with kids best tips for perfect day](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434309046970c.jpg)  
   
   
 Having spent many months with repeat [visits to Paris as a family](http://soultravelers3new.local/2006/09/paris-bois-de-b.html "visits to paris as a family"), I will have to do a [Paris family travel guide](http://soultravelers3new.local/2011/04/paris-france-travel-guide-by-mozart.html "paris family travel guide") soon, but this photo says it all, doesn't it? What could be better on a beautiful summer day in Paris than renting a hand made boat and playing in a gorgeous park near the [Louvre](http://soultravelers3new.local/2011/03/-family-travel-paris-france-louvre-photo.html "louvre ")?  It reminds me of a living painting.  

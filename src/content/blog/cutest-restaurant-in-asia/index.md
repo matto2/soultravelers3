@@ -18,13 +18,13 @@ tags:
   - "restaurant-malaysia"
 ---
 
-[![IMG_5284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7556970d.jpg "IMG_5284")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7556970d.jpg)Cutest Restaurant in Asia
+![IMG_5284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7556970d.jpg)Cutest Restaurant in Asia
 
 Isn't this an adorable  
 restaurant in an Asian  
 funky kind of way? I must
 
-<!--more--> [![adorable restaurant in UNESCO area of Georgetown, Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b75a6970d.jpg "adorable restaurant in UNESCO area of Georgetown, Malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b75a6970d.jpg)  
+<!--more--> ![adorable restaurant in UNESCO area of Georgetown, Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b75a6970d.jpg)  
   
 Isn't this an adorable restaurant in an Asian funky kind of way? I must admit, I haven't tried the food yet at this little gem in the UNESCO area of [Georgetown, Penang](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "georgetown, penang"), but it always makes me smile when I walk by because it is so photogenic.  
   

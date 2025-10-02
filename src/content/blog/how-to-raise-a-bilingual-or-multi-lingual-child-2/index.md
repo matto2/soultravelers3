@@ -16,7 +16,7 @@ tags:
   - "teaching-kids-language"
 ---
 
- [![Chinese day-Kuumba solo 3-0613](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f163b56970b.jpg "Chinese day-Kuumba solo 3-0613")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f163b56970b.jpg) How to Raise a Bilingual or Multi-lingual Child 2
+ ![Chinese day-Kuumba solo 3-0613](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f163b56970b.jpg) How to Raise a Bilingual or Multi-lingual Child 2
 
 This is a continuation of my  
 series on language  
@@ -24,7 +24,7 @@ learning for kids, starting
 
 <!--more-->
 
-[![Our blonde daughter dresssed in chinese clothes at 3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89097b95970d.jpg "Our blonde daughter dresssed in chinese clothes at 3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89097b95970d.jpg)  
+![Our blonde daughter dresssed in chinese clothes at 3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89097b95970d.jpg)  
   
   
 This is a continuation of my series on [language learning for kids](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "language learning for kids"), starting from the womb, that is focused on raising [bilingual](http://en.wikipedia.org/wiki/Bilingual_education "bilingual education for kids"), [polyglot](http://en.wikipedia.org/wiki/Polyglot_%28person%29 "polyglot") and [multi-lingual children](http://en.wikipedia.org/wiki/Multilingualism "multi-lingual children"). Catch the first of this three part post, [How to Raise a Bilingual or Multi-lingual Child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html#more "how to raise a bilingual or multi-lingual child") where I talk about why to learn languages, can a monolingual raise a multi-lingual child, beginning in the womb, [the one parent, one language method](http://www.bilingualbaby.eu/methods/opol "one parent one language method") and much more.  
@@ -114,7 +114,7 @@ We did it at home **daily (LOTS)**  with :
   
 With a ten year old, we are still using most of these and continue to re-immerse regularly and keep up all three languages/literatures, although it is less intense now than when she was young. If languges and musical instrument practice is not kept up for many years, they can be lost, even the mother tongue.  
   
-[![Our daughter working on Mandarin daily, here in Jordan at Four Seasons Amman](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432eab25f970c.jpg "Our daughter working on Mandarin daily, here in Jordan at Four Seasons Amman")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432eab25f970c.jpg)  
+![Our daughter working on Mandarin daily, here in Jordan at Four Seasons Amman](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432eab25f970c.jpg)  
   
   
   
@@ -122,7 +122,7 @@ With a ten year old, we are still using most of these and continue to re-immerse
   
 At 15 months Mozart had figured out the code, because kids just learn language and said in an ah ha moment, "Daddy say's concina and Mommy says kitchen". I am not sure what is the average age that children come to understand they are learning more than one language, but probably varies with each child.  I've heard of many that realize around 3 or 4 years old. The process simply seems normal to the child if that is all they have known.  
   
-[![IMG_4898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e890a9e8f970d.jpg "IMG_4898")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e890a9e8f970d.jpg)  
+![IMG_4898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e890a9e8f970d.jpg)  
   
   
 **CREATING IMMERSION OUTSIDE THE HOME**  

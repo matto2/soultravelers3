@@ -19,14 +19,14 @@ tags:
   - "world-peace-quotes"
 ---
 
-[![IMG_5867](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32a35615970b.jpg "IMG_5867")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32a35615970b.jpg)World Peace, Love  
+![IMG_5867](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32a35615970b.jpg)World Peace, Love  
 and Happiness  
   
 If we want to achieve  
 world peace on a systemic  
 level, we each need to first
 
-<!--more--> [![world peace, love happiness kids art view and peaceful parenting](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee44737ec970d.jpg "world peace, love happiness kids art view and peaceful parenting")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee44737ec970d.jpg)  
+<!--more--> ![world peace, love happiness kids art view and peaceful parenting](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee44737ec970d.jpg)  
   
 If we want to achieve world peace on a systemic level, we each need to first find inner-peace within ourselves and teach our children how to do this. Kids art tells us so much about their inner world. Mozart got some paints for her recent [birthday](http://soultravelers3new.local/2012/10/global-travel-tween-ultimate-birthday-party-in-asia.html "travel birthday"), so  grabbed a piece of cardboard the other day  and quickly, spontaneously  made this sign as she hummed happily in creative mode. It now has an honored place in our [minimalist travel home](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "apartment in Penang").  
   
@@ -36,7 +36,7 @@ That sign made me smile and I hope it makes you smile too and remember that chil
   
 We could all use more peace in our world and more peace inside in these fast moving, hectic times. Mozart has her finals now at her [Mandarin school in Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "mandarin school in Asia ..american kid") and then we will be off to China soon for more immersion,( just got our visa!)  so it's an exciting time for us.  
   
-[![my kids free art shows love and peace everywhere](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32a37d4f970b.jpg "my kids free art shows love and peace everywhere")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32a37d4f970b.jpg)  
+![my kids free art shows love and peace everywhere](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32a37d4f970b.jpg)  
   
   
 **FAVORITE PEACE QUOTES**  
@@ -64,7 +64,7 @@ differences. " - **John Morton**
 "Peace is not merely a distant goal that we seek, but a means by which we arrive at that goal."  
 **Martin Luther King, Jr.  
   
-[![the door to her kids doll house she painted love and welcome](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee447706b970d.jpg "the door to her kids doll house she painted love and welcome")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee447706b970d.jpg)  
+![the door to her kids doll house she painted love and welcome](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee447706b970d.jpg)  
   
   
   

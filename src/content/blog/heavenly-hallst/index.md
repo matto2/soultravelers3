@@ -15,7 +15,7 @@ effort. Up until this point,
 
 <!--more-->
 
-[![Img_2101](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2101.png "Img_2101")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2101.png)
+![Img_2101](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2101.png)
 
 The road to Hallstatt, Austria was slightly hellish for us, but once we arrived, we found the divine Bravarian-like beauty, worth the effort. Up until this point, we have not had any real concerns with our vehicle, it always seems to be able to chug up and down any steep mountain terrain we have put it through.
 
@@ -45,26 +45,26 @@ Soon all of our concerns melted away, but we did meet a mechanic who was kind en
 
 The good news was that we got to have an extra day Hallstatt since we waited until Monday morning to call the road service mechanic. It slowed us down a little, but it was such a heavenly spot, that we did not mind at all. It costs us a hundred euros (equivalent to about a  hundred dollars for us) to have the road service mechanic come to us, but we felt it was well worth the money spent, even though it turned out that we had no problem.
 
-[![Img_2090](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2090.png "Img_2090")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2090.png)
+![Img_2090](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2090.png)
 
-[![Img_1916](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_1916.png "Img_1916")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1916.png)
+![Img_1916](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1916.png)
 
-[![Img_2119](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2119.png "Img_2119")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2119.png)
+![Img_2119](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2119.png)
 
-[![Img_1963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_1963.png "Img_1963")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1963.png)
+![Img_1963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1963.png)
 
-[![Img_2018](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2018.png "Img_2018")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2018.png)
+![Img_2018](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2018.png)
 
-[![Img_2045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2045.png "Img_2045")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2045.png)
+![Img_2045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2045.png)
 
-[![Img_1921](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_1921.png "Img_1921")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1921.png)
+![Img_1921](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_1921.png)
 
-[![Img_2065](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2065.png "Img_2065")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2065.png)
+![Img_2065](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2065.png)
 
-[![Img_2406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2406.png "Img_2406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2406.png)
+![Img_2406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2406.png)
 
-[![Img_2072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2072.png "Img_2072")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2072.png)
+![Img_2072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2072.png)
 
-[![Img_2247](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2247.png "Img_2247")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2247.png)
+![Img_2247](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2247.png)
 
-[![Img_2287](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2287.png "Img_2287")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2287.png)
+![Img_2287](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2287.png)

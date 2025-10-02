@@ -24,20 +24,20 @@ tags:
   - "vegetarian-chips"
 ---
 
-[![IMG_6996_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103218d33970c.jpg "IMG_6996_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103218d33970c.jpg)Yummy, Healthy Chips Recipe  
+![IMG_6996_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103218d33970c.jpg)Yummy, Healthy Chips Recipe  
   
 Do you know how easy it  
 is to make delicious healthy  
 chips? If you are into healthy
 
-<!--more--> [![Yummy, healthy chips recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103218e12970c.jpg "Yummy, healthy chips recipe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103218e12970c.jpg)  
+<!--more--> ![Yummy, healthy chips recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103218e12970c.jpg)  
   
   
 Do you know how easy it is to make delicious [healthy](http://soultravelers3new.local/health-and-travel/ "healthy food") chips? If you are into [healthy organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy organic food") like we are, you will skip the packaged, processed potato chips that are full of [dangerously unhealthy fats](http://wellnessmama.com/2193/why-you-should-never-eat-vegetable-oil-or-margarine/ "dangerous fats") and let your kid make her own! She made these from root veggies like tunips, sweet potatoes and beets. Scrumptious...better than the one's we use to buy at Trader Joes in [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California travel") and much cheaper too.  
   
 It's a wonderfully fun [homeschool](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "homeschool and travel") project that Mozart likes to do on weekends which teaches her first hand that [real food](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy food and travel") is the way to go and can be more delicious too. Reading things like "[The Extraordinary Science of Addictive Junk Food"](http://www.nytimes.com/2013/02/24/magazine/the-extraordinary-science-of-junk-food.html?pagewanted=all&_r=0 "junk food addiction")  or watching [Youtube videos](http://www.youtube.com/user/soultravelers3 "soultravelers3 youtube videos") like, ["Sugar: the bitter truth](http://www.youtube.com/watch?v=dBnniua6-oM "sugar and disease")" help her understand WHY [eating healthy](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "how to eat healthy and cheap in Europe") today is more [important than ever.](http://www.sustainabletable.org/869/impacts-of-industrial-agriculture "sustainable food")  
   
-[![kid making healthy chips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d2b707e970b.jpg "kid making healthy chips")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d2b707e970b.jpg)  
+![kid making healthy chips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d2b707e970b.jpg)  
   
 **SUPER EASY CHIP RECIPE**  
   
@@ -46,7 +46,7 @@ You only need 3 ingredients...root vegetable, sea salt and [coconut](http://soul
 1) Slice thin ( mandolin makes it easiest and they are  cheap ,but a knife also works if you are handy).  
   
   
-[![slicing beets with a mandolin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191032191e0970c.jpg "slicing beets with a mandolin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191032191e0970c.jpg)  
+![slicing beets with a mandolin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191032191e0970c.jpg)  
   
 2) Put them in a bowl with some [coconu](http://soultravelers3new.local/2012/08/awesome-asian-coconut-rickshaw-photo.html "coconut rickshaw photo")t oil and celtic sea salt and swish a bit ( hint- do beets last as they leave everything red).  
   
@@ -54,7 +54,7 @@ You only need 3 ingredients...root vegetable, sea salt and [coconut](http://soul
   
 We are eating no sugar, no grains and on a super [healthy diet to prevent and cure cavities](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "curing gum disease and cavities") ( working great so far and lightened my daughter's tooth color about 5 shades in the first month and a [huge improvement in my blood work](http://soultravelers3new.local/2013/05/healing-sun-vitamin-d-major-improvements.html "vitamin D and health improvements")), BUT that doesn't mean we can't eat super delish food and [snacks!](http://soultravelers3new.local/2012/07/healthy-snacks-for-kids.html "healthy snacks for kids")  
   
-[![beet sliced chips in coconut oil](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d2b7274970b.jpg "beet sliced chips in coconut oil")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d2b7274970b.jpg)  
+![beet sliced chips in coconut oil](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d2b7274970b.jpg)  
   
 **  
   

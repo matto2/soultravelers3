@@ -20,13 +20,13 @@ tags:
   - "travel-signs"
 ---
 
-[![IMG_3872](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee81e0285970d.jpg "IMG_3872")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee81e0285970d.jpg)Funniest Sign in China  
+![IMG_3872](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee81e0285970d.jpg)Funniest Sign in China  
   
 Do you enjoy funny signs when  
 you travel? This is the funniest  
 sign in China that we spotted
 
-<!--more--> [![funniest travel sign](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c367ab0f7970b.jpg "funniest travel sign")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c367ab0f7970b.jpg)  
+<!--more--> ![funniest travel sign](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c367ab0f7970b.jpg)  
   
 Do you enjoy funny signs when you travel? This is the funniest sign [in China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel") that we spotted at the [Great Wall](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html "The Great Wall")l, on our recent month long [trip to China](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html "trip to China family vacation") for [language learning in Mandarin](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html "language learning Mandarin in Beijing school").  
   

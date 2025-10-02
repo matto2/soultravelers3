@@ -13,7 +13,7 @@ It was a red letter day, when I finally felt strong enough to make it into the c
 
 <!--more-->
 
-[![Img_4114](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4114.png "Img_4114")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4114.png)
+![Img_4114](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4114.png)
 
 It was a red letter day, when I finally felt strong enough to make it into the city! We may have had to give up some things, but I was not about to leave Vienna without seeing anything but their top hospital. I had to take it a little slow, but I was bound and determined to see and do a little. It was a little strange to be out and about in the world again and at first my senses felt overwhelmed, just by traffic and the rush of life, but as the day progressed that wooziness wore off.
 
@@ -35,29 +35,29 @@ She also already has “Mozart's Magnificent Voyage” by Classical Kids that pr
 
 I am not sure if I mentioned this or not, but I don't see it so I hope not. One of the things we found interesting is that Mozart was extremely affected by his extensive travels as a child. He even traveled with a piano like our little Mozart! I knew he had traveled, but I never took into consideration how much or how  that colored his whole life and how it was much different than other children. He saw much more of the world than most children of that time and was exposed to the best in the world, which impacted his music and his entire life.
 
-[![Img_4098_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4098_2.png "Img_4098_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4098_2.png)
+![Img_4098_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4098_2.png)
 
-[![Img_4121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4121.png "Img_4121")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4121.png)
+![Img_4121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4121.png)
 
-[![Img_4127_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4127_2.png "Img_4127_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4127_2.png)
+![Img_4127_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4127_2.png)
 
-[![Img_4161](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4161.png "Img_4161")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4161.png)
+![Img_4161](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4161.png)
 
-[![Img_4139_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4139_2.png "Img_4139_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4139_2.png)
+![Img_4139_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4139_2.png)
 
-[![Img_4143](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4143.png "Img_4143")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4143.png)
+![Img_4143](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4143.png)
 
-[![Img_4155](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4155.png "Img_4155")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4155.png)
+![Img_4155](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4155.png)
 
-[![Img_4159](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4159.png "Img_4159")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4159.png)
+![Img_4159](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4159.png)
 
-[![Img_4165](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4165.png "Img_4165")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4165.png)
+![Img_4165](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4165.png)
 
-[![Img_4164_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4164_2.png "Img_4164_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4164_2.png)
+![Img_4164_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4164_2.png)
 
-[![Img_4185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4185.png "Img_4185")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4185.png)
+![Img_4185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4185.png)
 
-[![Img_4108](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_4108.png "Img_4108")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4108.png)
+![Img_4108](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_4108.png)
 
   
   

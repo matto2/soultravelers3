@@ -16,7 +16,7 @@ tags:
   - "take-kids-to-paris"
 ---
 
-[![IMG_2203](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d1f4a970b.jpg "IMG_2203")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d1f4a970b.jpg) Family Travel Paris: Notre Dame Photo
+![IMG_2203](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d1f4a970b.jpg) Family Travel Paris: Notre Dame Photo
 
 Family travel in Europe  
 means not missing some  
@@ -24,7 +24,7 @@ of the gorgeous churches
 
 <!--more-->[](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel")
 
-[![beautiful photo of Notre Dame Paris, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89c889f9970d.jpg "beautiful photo of Notre Dame Paris, France")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89c889f9970d.jpg)  
+![beautiful photo of Notre Dame Paris, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89c889f9970d.jpg)  
   
 
 [Family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel") in [Europe](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html "road trip europe") means not missing some of the gorgeous churches. This photo of  [Notre Dame de Paris Cathedral](http://en.wikipedia.org/wiki/Notre_Dame_de_Paris "Notre Dame Cathedral") is taken from the left bank on a beautiful summer day and shows it encircled by roses.  

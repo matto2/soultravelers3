@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Img_3069](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/06/img_3069.png "Img_3069")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_3069.png) Mozart's Don Giovanni in Prague  
+ ![Img_3069](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_3069.png) Mozart's Don Giovanni in Prague  
 November 2, 2007
 
 This was a fantastic show for all ages.!  

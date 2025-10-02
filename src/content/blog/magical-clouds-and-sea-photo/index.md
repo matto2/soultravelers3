@@ -15,13 +15,13 @@ tags:
   - "the-joy-of-clouds"
 ---
 
-[![IMG_2921](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742e2df60970d.jpg "IMG_2921")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742e2df60970d.jpg)Magical Clouds and Sea Photo
+![IMG_2921](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742e2df60970d.jpg)Magical Clouds and Sea Photo
 
 I love clouds and find them  
 often quite magical in our  
 travels around the world.
 
-<!--more--> [![Magical clouds and sea ..blue and white nirvana](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676876edae970b.jpg "Magical clouds and sea ..blue and white nirvana")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676876edae970b.jpg)  
+<!--more--> ![Magical clouds and sea ..blue and white nirvana](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676876edae970b.jpg)  
   
   
 I love clouds and find them often quite magical in our [travels around the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family travels around the world"). The ones here in [tropcial Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "condo rental penang") can be fascinating and sometimes take my breath away. This is one of the many simple pleasures that make up my day...cloudscape watching!  

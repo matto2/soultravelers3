@@ -20,20 +20,20 @@ tags:
   - "raw-goat-milk-cheese"
 ---
 
-[![IMG_4991](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40ce73b6970c.jpg "IMG_4991")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40ce73b6970c.jpg) How to Make DIY  
+![IMG_4991](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40ce73b6970c.jpg) How to Make DIY  
 Goat Cheese with Kefir  
   
 Do you love expensive goat  
 cheese? Did you know you can  
 easily and cheaply make your own
 
-<!--more--> [![making goat cheese with kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8433be9970d.jpg "making goat cheese with kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8433be9970d.jpg)  
+<!--more--> ![making goat cheese with kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8433be9970d.jpg)  
   
 Do you love expensive goat cheese? Did you know you can easily and cheaply make your own healthier goat cheese from [goat milk kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "goat milk kefir")?  
   
 Since I have been on my [health journey](http://soultravelers3new.local/health-and-travel/ "health journey") while [traveling](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html#more "traveling when sick"), I've learned a ton about [healthy organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy organic raw food") and [how to eat for heatlh](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "how to eat for health"). Kefir is an amazing [superfood](http://chriskresser.com/kefir-the-not-quite-paleo-superfood "kefir super food") recommended by many doctors and health experts and it is best to make your own from grains and raw milk for the highest quality.  
   
-[![goats milk kefir cheese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8455df6970d.jpg "goats milk kefir cheese")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8455df6970d.jpg)  
+![goats milk kefir cheese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8455df6970d.jpg)  
   
   
 **KEFIR IS A SUPERFOOD**  
@@ -42,14 +42,14 @@ Since I have been on my [health journey](http://soultravelers3new.local/health-a
   
 "A study published in the Journal of Medicinal Foods in 2007 showed that kefir extracts have components that specifically target and stop the growth of human breast cancer cells." Kristie Leong M.D.  
   
-[![making goats milk cheese or Lebeneh or Quark](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36a35203970b.jpg "making goats milk cheese or Lebeneh or Quark")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36a35203970b.jpg)  
+![making goats milk cheese or Lebeneh or Quark](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36a35203970b.jpg)  
   
   
 **"The various types of beneficial microbiota contained in kefir make it one of the most potent probiotic foods available.** Besides containing highly beneficial bacteria and yeasts, kefir is a rich source of many different vitamins, minerals and essential amino acids that promote healing and repair, as well as general health maintenance. [](http://ecosmesi.it/pdf/Kefir-%20A%20Probiotic%20Dairy-Composition,%20Nutritional%20and%20Therapeutic%20Aspects.pdf)Kefir contains high levels of thiamin, B12, calcium, folates and Vitamin K2. It is a good source of biotin, a B vitamin that HELPS the body assimilate other B vitamins. The complete proteins in kefir are already partially digested, and are therefore more easily utilized by the body. Kefir is a great source of vitamins, minerals, probiotics, and a variety of other unique compounds that can greatly contribute to your overall health and wellbeing. I highly recommend including this nutritious superfood in your diet"  Chris Kresser L.AC  
   
 "Kefir digests yeast cells and has a beneficial affect on the intestinal flora".Dr. Orla-Jenson, a noted Danish bacteriologist  
   
-[![making kefir with raw goats milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d0efc8970c.jpg "making kefir with raw goats milk")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d0efc8970c.jpg)  
+![making kefir with raw goats milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d0efc8970c.jpg)  
 
 "When you drink kefir, the flora goes right to work for you. These mini soldiers help re-colonize the good flora in your gut. They also get rid of harmful organisms, like too much H. Pylori, the bacteria that cause ulcers. Kefir grains also seem to have the unique ability to unlock peptides from milk.1 In regular milk, these peptides stay hidden, or _encrypted_. But when you ferment the milk with kefir grains, it unlocks these peptides to give you benefits including:  
   
@@ -64,7 +64,7 @@ And despite the fact that kefir is made from milk, most people who are lactose i
 "I think kefir is great. It is a probiotic, which means it contains "friendly" bacteria that can stabilize the digestive tract, and when it is well made, it is delicious. Kefir also provides you with calcium and protein, and may have some additional benefits for the immune system. You can certainly use it every day. A small study published in the May, 2003, _Journal of the American Dietetic Association_ showed that drinking kefir eliminated - or, at least, dramatically reduced - symptoms of lactose intolerance." Dr. Weil M.D.
 
   
-[![goats milk cheese making and whey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d18a72970c.jpg "goats milk cheese making and whey")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d18a72970c.jpg)  
+![goats milk cheese making and whey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d18a72970c.jpg)  
   
 
 **KEFIR HEALTH BENEFITS**  
@@ -75,7 +75,7 @@ Many say kefir is a natural remedy for any allergy, the strongest antibiotic and
   
 We all need more probiotics to stay healthy in our toxic world and the best man-made probiotic contain about 15 billion organisms, while home made kefir tops that easily with one cup containing 5 trillion beneficial organisms.  
   
-[![yummy homemade goats milk cheese from Kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d18cff970c.jpg "yummy homemade goats milk cheese from Kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d18cff970c.jpg)  
+![yummy homemade goats milk cheese from Kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d18cff970c.jpg)  
   
 **HOW TO MAKE GOATS MILK KEFIR ( LEBAN) CHEESE**  
   
@@ -101,7 +101,7 @@ Making this goat cheese is remarkably easy and so delicious. It is also sometime
   
 \* In the bowl and jar there will be whey that has dripped from the cloth. Save this to use for other fermented foods like [lacto-fermented sals](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "lacto fermented salsa")a or [chutney](http://soultravelers3new.local/2012/08/how-to-make-healthy-lacto-fermented-mango-papaya-chutney.html "fermented chutney") or to soak grains etc.  
   
-[![goats milk cheese made from kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d1994c970c.jpg "goats milk cheese made from kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d1994c970c.jpg)  
+![goats milk cheese made from kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d1994c970c.jpg)  
   
 That's it! Put it in a jar and store in the refrigerator. I've read that it lasts months, but it is so good that it doesn't last too long in our home. You can add flavorings too like honey and walnuts or garlic and herbs, but plain is wonderful too and enjoyed by each of us atop a slice of freshly made sourdough bread.  
   

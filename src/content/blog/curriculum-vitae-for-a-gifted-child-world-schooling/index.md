@@ -23,14 +23,14 @@ tags:
   - "world-school"
 ---
 
-[![IMG_3128](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee43332d5970d.jpg "IMG_3128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee43332d5970d.jpg)Curriculum Vitae for a Gifted  
+![IMG_3128](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee43332d5970d.jpg)Curriculum Vitae for a Gifted  
 Child World Schooling  
   
 Have you ever written a Curriculum  
 Vitae? It is a more detailed  
 synopsis than a resume and
 
-<!--more--> [![a curriculum vitae to go with our gifted child's passport photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4333310970d.jpg "a curriculum vitae to go with our gifted child's passport photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4333310970d.jpg)  
+<!--more--> ![a curriculum vitae to go with our gifted child's passport photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4333310970d.jpg)  
   
   
 Have you ever written a [Curriculum Vitae](http://en.wikipedia.org/wiki/Curriculum_vitae "CV or Curriculum Vitae")? It is a more detailed synopsis than a resume and usually used when applying for a scientific, educational, academic or research position.  I had never heard of one  before, but I guess they are popular in Europe and China, as we were asked to send one to the school that Mozart will go to in China while living with a family there. They are called CV's for short.  
@@ -51,38 +51,38 @@ Curriculum Vitae roughly translated from the Latin means "the course of my life"
   
 Mozart is a fluent trilingual  American child born in [San Francisco](http://soultravelers3new.local/2012/05/san-francisco-travel-why-we-love-it.html "San Francisco"), California area who has been [traveling the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "traveling the world") with her parents non-stop for the last 9 years to educate her as a [global citizen](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "global citizen"). We started [our world trip](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family world trip") when she was 5 and she just turned 14, so she is likely the [most well traveled child in the world](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "mozart - most well traveled child in the world") with a kids record for the most global UNESCO sites visited.  
   
-[![6a00e5502a9507883301543530867e970c-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f15e75970b.jpg "6a00e5502a9507883301543530867e970c-pi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f15e75970b.jpg)  
+![6a00e5502a9507883301543530867e970c-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f15e75970b.jpg)  
   
   
 She is a happy, out going child who loves to read, sing, make art and play and has a passion for world peace, people and [sustainability/green issues](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "kid with passion for green issues winning speech"). She plays the [violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "violin"), [piano](http://www.youtube.com/watch?v=0Ar90wOnWnM "piano") and loves to compose songs. She is a Dragon in Chinese astrology and so is her mom, so it's exciting to first visit China together in a Dragon year.  
   
-[![Beautiful child at sacred  Tigers Nest Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f16ef6970b.jpg "Beautiful child at sacred  Tigers Nest Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f16ef6970b.jpg)  
+![Beautiful child at sacred  Tigers Nest Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f16ef6970b.jpg)  
   
 We have been to 47 countries on 5 continents so far. We are monolingual parents, but wanted to raise her as a trilingual from birth in the world's dominant languages ( English, Spanish and Mandarin) as we feel one can not really understand a culture without knowing the language well. She wants to learn French next.  
   
-[![Happy around-the-world traveling family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf1617970d.jpg "Happy around-the-world traveling family")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf1617970d.jpg)  
+![Happy around-the-world traveling family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf1617970d.jpg)  
   
   
 We are older parents, thus wanted more time together as a family, so took the risk to sell all our things to  [retire early](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retire early") to do this. We think experiences and time together are more important than things, so we live a simple life.  
   
-[![Mandarin speaking blond girl ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf19a2970d.jpg "Mandarin speaking blond girl ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf19a2970d.jpg)  
+![Mandarin speaking blond girl ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf19a2970d.jpg)  
   
   
 Mozart has been tested as an exceptionally  gifted child, so we have chosen a unique way to educate her. ( She walked and talked well at 6 months old in 2 languages, taught herself to read at 2, tested at a 3rd grade level  ( 9 years old) at 3 years old and 10th grade ( 16 years old) at 6 years and tested with top scores in math and language at Johns Hopkins University CTY gifted programs). She has done well in many John Hopkins University CTY classes online and in person. At 13 she scored higher than 97% of high school students who take the SAT.  
   
-[![playing violin on a camel in Petra, Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fb9b6970c.jpg "playing violin on a camel in Petra, Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fb9b6970c.jpg)  
+![playing violin on a camel in Petra, Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fb9b6970c.jpg)  
   
   
 We are interested in coming to China because we have great interest in Chinese culture and Mandarin. Mozart is the youngest, smallest and only Caucasian in her 1000 kid [Mandarin high school in Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Mandarin school in Asia"), so is use to being in an all Mandarin environment.  
   
-[![Only American in a Chinese school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.a/6a00e5502a95078833017c31f17b65970b-800wi "Only American in a Chinese school in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f17b65970b-300x227-1.jpg)  
+![Only American in a Chinese school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f17b65970b-300x227-1.jpg)  
   
   
   
   
 Last year when she was celebrating Chinese New Year with her 83 year old Grandmother in [Georgetown, Malaysia](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "georgetown Malaysia photos"), they ended up being interviewed  on Chinese television dressed in their Cheongsam traditional dresses.  
   
-[![Grandma and child dressed in traditional Chinese dresses ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f178b3970b.jpg "Grandma and child dressed in traditional Chinese dresses ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f178b3970b.jpg)  
+![Grandma and child dressed in traditional Chinese dresses ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f178b3970b.jpg)  
 Chinese New Year in Asia with Grandma  
   
 **BENEFITS OF TRAVEL EDUCATION:**  
@@ -93,42 +93,42 @@ Swimming with sharks in [in Bora Bora](http://soultravelers3new.local/2010/11/bo
 ![](http://www.typepad.com/t/stats?blog_id=1575132&user_id=2877126&page=http%3A//www.soultravelers3.com/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html&referrer=http%3A//www.google.com/cse%3Fcx%3D001050992314836563403%253Ae46e6t4uayg%26cof%3DFORID%253A%26q%3Dgifted+child%26sa%3DGo%26siteurl%3Dwww.soultravelers3.com%252F%26ref%3D%26ss%3D1982j520910j12&i=923208881)
 
   
-[![Helping disadvantaged kids in Harlem to travel the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe281970c.jpg "Helping disadvantaged kids in Harlem to travel the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe281970c.jpg)  
+![Helping disadvantaged kids in Harlem to travel the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe281970c.jpg)  
 Doing volunteer work with disadvantaged kids in Harlem, USA that we took with us virtually for a year.  
   
-[![A 6 year old child doing volunteer work in Morocco's Sahara](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cbe101b970c.jpg "A 6 year old child doing volunteer work in Morocco's Sahara")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cbe101b970c.jpg)  
+![A 6 year old child doing volunteer work in Morocco's Sahara](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cbe101b970c.jpg)  
   
 Volunteering deep in the Sahara in Morocco, Africa at 6  
   
-[![road schooling on a ship](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe770970c.jpg "road schooling on a ship")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe770970c.jpg)  
+![road schooling on a ship](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe770970c.jpg)  
 Doing math home school on a ferry ship  in Greece  
   
-[![European vacation for 6 years](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c328f79e7970b.jpg "European vacation for 6 years")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c328f79e7970b.jpg)  
+![European vacation for 6 years](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c328f79e7970b.jpg)  
   
 Touring Europe extensively as a family for 6 years.  
   
-[![homeschooling or unschooling in Italy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe8df970c.jpg "homeschooling or unschooling in Italy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe8df970c.jpg)  
+![homeschooling or unschooling in Italy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fe8df970c.jpg)  
 Writing a book while camping in Italy at 7  
   
-[![Flamenco beauty in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf5de7970d.png "Flamenco beauty in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf5de7970d.png)  
+![Flamenco beauty in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf5de7970d.png)  
 Flamenco lessons in Spain at 6  
   
-[![swimming with dolphins in Portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf506a970d.jpg "swimming with dolphins in Portugal")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf506a970d.jpg)  
+![swimming with dolphins in Portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744cf506a970d.jpg)  
 Swimming with dolphins with Marine Biologist in Portugal at 8  
   
-[![Taking a kid to the opera in Verona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f19deb970b.jpg "Taking a kid to the opera in Verona")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f19deb970b.jpg)  
+![Taking a kid to the opera in Verona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f19deb970b.jpg)  
 Watching an [opera in Verona](http://soultravelers3new.local/2012/10/italy-dont-miss-romantic-verona-and-the-opera-.html "opera in Verona") with Placido Domingo and Franco Zeffirelli  
   
   
   
-[![American girl learning Mandarin in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fcbb0970c.jpg "American girl learning Mandarin in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fcbb0970c.jpg)  
+![American girl learning Mandarin in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fcbb0970c.jpg)  
   
 Having fun with friends at her Mandarin school before her Earth Day speech**  
   
   
 EDUCATION**  
   
-[![Little kid Reading Harry Potter in England](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fd33a970c.jpg "Little kid Reading Harry Potter in England")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fd33a970c.jpg)  
+![Little kid Reading Harry Potter in England](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c1fd33a970c.jpg)  
  Reading Harry Potter at Cambridge University in England  
   
   

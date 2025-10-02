@@ -21,13 +21,13 @@ tags:
   - "tween-tv-travel-host"
 ---
 
-[![6512602413_afe6ac3fa4_z](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c33a1970b.jpg "6512602413_afe6ac3fa4_z")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c33a1970b.jpg)Tween is a Talented Singer/Songwriter  
+![6512602413_afe6ac3fa4_z](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c33a1970b.jpg)Tween is a Talented Singer/Songwriter  
   
 Adele, Pink, Katy Perry are singers/  
 songwiters that 12 year old Mozart  
 loves, but she too is a prolific
 
-<!--more--> [![Tween is a Talented Singer/ Songwriter - singing for a large crowd in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c6d51970c.jpg "Tween is a Talented Singer/ Songwriter - singing for a large crowd in California")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c6d51970c.jpg)  
+<!--more--> ![Tween is a Talented Singer/ Songwriter - singing for a large crowd in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c6d51970c.jpg)  
   
 Adele, Pink, Katy Perry are singers/songwiters that [12 year old Mozart](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "teen model") loves, but she too is a prolific songwriter/singer and musician who has been composing songs since she was four...and she writes them in 3 languages..[Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "Fluent Mandarin"), [Spanish](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html "learning spanish in spain") and English! Last year she won a trophy at a 1000-kid [Chinese high school](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Chinese high school and learning Mandarin") singing competition and was the youngest competitor to become a finalist.  
   
@@ -78,7 +78,7 @@ Mozart loves and excels at [advanced math, science](http://soultravelers3new.loc
   
 I've written before about how Mozart had an [uncanny musical sense](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "prodigious musical kid and opera") and desire even as a tiny baby and started asking for opera at a year old...( shocking us)  and likely saw more operas and [Shakespeare plays](http://soultravelers3new.local/2009/02/swimming-with-swans-stratforduponavon-england-uk.html "Shakespeare plays in UK") in toddlerhood than most people see in a lifetime.  
   
-[![baby Mozart standing up totally on her own initiation at 5 months old, clapping to the music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6d170b970d.jpg "baby Mozart standing up totally on her own initiation at 5 months old, clapping to the music")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6d170b970d.jpg)  
+![baby Mozart standing up totally on her own initiation at 5 months old, clapping to the music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6d170b970d.jpg)  
 _Mozart standing up totally on her own initiation at 5 months old_, _clapping to the music  
 _  
 **MAKING DECISIONS AND CHOICES IN LIFE & HOW MOZART GOT HER NICKNAME**That standing and clapping to the music as a 5 month old is how she got the nickname Mozart (from the other Moms in the class).  
@@ -110,7 +110,7 @@ _**1ST KID SINCE WOLFGANG ARMADEUS MOZART TO TRAVEL WORLD  WITH PIANO AND VIOLI
 That said, there certainly have been advantages to our [travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "Our nomadic family travel lifestyle RTW") and she is the first kid since  
 Wolfgang Amadeus Mozart, to [travel the world](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "travel the world") extensively for a long time with a piano and violin and those experiences certainly enrich creativity too._  
   
-[![12 year old Playing piano in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c7c5e970b.jpg "12 year old Playing piano in Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c7c5e970b.jpg)  
+![12 year old Playing piano in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c7c5e970b.jpg)  
   
 _**ADVANTAGES TO SLOW TRAVEL AND WORLDSCHOOLING**  
   
@@ -144,7 +144,7 @@ criticism and feedback very well.
   
 I hope you continue in music as you are very musical" - Jolie Lin  
   
-[![Girl playing violin in Scotland](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c9524970b-scaled-1.jpg "Girl playing violin in Scotland")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c9524970b-scaled-1.jpg)  
+![Girl playing violin in Scotland](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff6c9524970b-scaled-1.jpg)  
   
 **CAN NON-MUSICIANS RAISE A MUSICIAN?  
 **  

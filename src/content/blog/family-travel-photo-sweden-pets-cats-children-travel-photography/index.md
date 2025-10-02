@@ -18,7 +18,7 @@ tags:
   - "travel"
 ---
 
-[![IMG_4964](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a59c9165970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a59c9165970b.jpg)
+![IMG_4964](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a59c9165970b.jpg)
 
 Family Travel Photo - Sweden  
 September 30, 2009
@@ -29,7 +29,7 @@ picture of our friend's cat last summer
 
 <!--more-->
 
-[![black cat in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5f35053970c.jpg "black cat in Sweden")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5f35053970c.jpg)
+![black cat in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5f35053970c.jpg)
 
 Pets can even be a part of family travel! Seven year old Mozart took this picture of our friend's cat last summer in [Sweden](http://soultravelers3new.local/2009/05/family-travel-photo-sweden-reindeer-meat-in-kota-traditional-sami-lapland.html) where we had a spectacular time staying in their cottage in the countryside. She just adored that cat and she sometimes misses our cat [Desiree](http://twitpic.com/pwym) that ran away [right before we left](http://soultravelers3new.local/2006/09/more-chocolate.html) on our world tour.
 

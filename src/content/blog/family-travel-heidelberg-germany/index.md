@@ -14,13 +14,13 @@ tags:
   - "vacation-heidelberg"
 ---
 
-[![IMG_3133](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f6cdaa5970b.jpg "IMG_3133")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f6cdaa5970b.jpg)Family Travel Heidelberg, Germany
+![IMG_3133](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f6cdaa5970b.jpg)Family Travel Heidelberg, Germany
 
 Heidelberg, Germany is a  
 picturesque  small city about  
 an hour from Frankfurt with
 
-<!--more--> [![Heidelberg, Germany travel ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f6cdb2a970b.jpg "Heidelberg, Germany travel ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f6cdb2a970b.jpg)  
+<!--more--> ![Heidelberg, Germany travel ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f6cdb2a970b.jpg)  
   
  [Heidelberg, Germany](http://en.wikipedia.org/wiki/Heidelberg "Heidelberg, germany") is a picturesque  small city about an hour from Frankfurt with a University and located along the Neckar River. Heidelberg is part of the German "Castle Road" and I so loved it long ago that I wanted to share it with my family and see it again.  
   

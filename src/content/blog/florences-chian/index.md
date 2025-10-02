@@ -15,7 +15,7 @@ on our way to the only four star campsite in the Chianti hills.
 
 <!--more-->
 
-[![Img_5918](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5918.png "Img_5918")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5918.png)
+![Img_5918](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5918.png)
 
 Refrains from Andrea Boticelli’s Sogno album belted out as we made our way from Rome through Umbria and then Tuscany countryside, on our way to the only four star campsite in the Chianti hills. The home we sold to take this journey would fit perfectly anywhere in this lovely corridor and it some how feels a little like home.
 
@@ -33,26 +33,26 @@ The setting for the Norcenni Girasole Club campsite in these Chianti hills of Tu
 
 Ahhhh, yet another place that will be very hard to leave. We could easily stay here a few weeks, but will have to settle for a few days this time and we will come back for more in the fall.
 
-[![Img_6408](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_6408.png "Img_6408")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6408.png)
+![Img_6408](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6408.png)
 
-[![Img_5908](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5908.png "Img_5908")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5908.png)
+![Img_5908](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5908.png)
 
-[![Img_5950](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5950.png "Img_5950")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5950.png)
+![Img_5950](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5950.png)
 
-[![Img_5913](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5913.png "Img_5913")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5913.png)
+![Img_5913](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5913.png)
 
-[![Img_5933](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5933.png "Img_5933")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5933.png)
+![Img_5933](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5933.png)
 
-[![Img_6038](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_6038.png "Img_6038")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6038.png)
+![Img_6038](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6038.png)
 
-[![Img_6006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_6006.png "Img_6006")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6006.png)
+![Img_6006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6006.png)
 
-[![Img_6257](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_6257.png "Img_6257")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6257.png)
+![Img_6257](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6257.png)
 
-[![Img_6024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_6024.png "Img_6024")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6024.png)
+![Img_6024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6024.png)
 
-[![Img_6003](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_6003.png "Img_6003")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6003.png)
+![Img_6003](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6003.png)
 
-[![Img_5996](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5996.png "Img_5996")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5996.png)
+![Img_5996](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5996.png)
 
-[![Img_6147](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_6147.png "Img_6147")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6147.png)
+![Img_6147](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_6147.png)

@@ -6,7 +6,7 @@ categories:
   - "morocco"
 ---
 
- [![Img_3036](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3036.png "Img_3036")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3036.png) Land of Kasbahs  
+ ![Img_3036](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3036.png) Land of Kasbahs  
 April 11, 2007
 
 We left Hassi Labiad and headed west  
@@ -15,7 +15,7 @@ towards the Todra Gorge and “road of
 
 <!--more-->
 
-[![Img_3036_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3036_2.png "Img_3036_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3036_2.png)
+![Img_3036_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3036_2.png)
 
   
 We left Hassi Labiad and headed west towards the Todra Gorge and “road of 1000 Kasbah’s” with the same kind driver who brought us on the eight hour ride from Fez. The drive to our kasbah for the night would be six hours, but we had acclimated to this wild mode of transportation and thankfully this route was not thru any of the many mountain ranges in Morocco. We were ready for more adventure, invigorated by our Sahara sojourn.
@@ -37,26 +37,26 @@ I used the opportunity to talk about Islam to Mozart as she was curious too. One
 
 Mozart slept part of the way on my lap as we enjoyed the views. Alessandra had told us that the people eat grass here and in deed we saw lots of women carrying huge bundles of grass on their backs. Camels and donkeys of course were seen regularly along with the famous Berber rugs. We were definitely not in Kansas.
 
-[![Img_3260](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3260.png "Img_3260")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3260.png)
+![Img_3260](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3260.png)
 
-[![Img_3046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3046.png "Img_3046")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3046.png)
+![Img_3046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3046.png)
 
-[![Img_3207](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3207.png "Img_3207")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3207.png)
+![Img_3207](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3207.png)
 
-[![Img_3225](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3225.png "Img_3225")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3225.png)
+![Img_3225](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3225.png)
 
-[![Img_3052](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3052.png "Img_3052")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3052.png)
+![Img_3052](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3052.png)
 
-[![Img_3160](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3160.png "Img_3160")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3160.png)
+![Img_3160](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3160.png)
 
-[![Img_3242](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3242.png "Img_3242")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3242.png)
+![Img_3242](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3242.png)
 
-[![Img_3256](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3256.png "Img_3256")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3256.png)
+![Img_3256](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3256.png)
 
-[![Img_3250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3250.png "Img_3250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3250.png)
+![Img_3250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3250.png)
 
-[![Img_3208](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3208.png "Img_3208")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3208.png)
+![Img_3208](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3208.png)
 
-[![Img_3269](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3269.png "Img_3269")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3269.png)
+![Img_3269](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3269.png)
 
-[![Img_3251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_3251.png "Img_3251")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3251.png)
+![Img_3251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_3251.png)

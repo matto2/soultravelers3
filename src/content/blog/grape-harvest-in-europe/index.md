@@ -17,13 +17,13 @@ tags:
   - "wine-wednesday"
 ---
 
-[![IMG_5581](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fd2f0f7f970d.jpg "IMG_5581")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fd2f0f7f970d.jpg)Grape Harvest in Europe
+![IMG_5581](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fd2f0f7f970d.jpg)Grape Harvest in Europe
 
 We've been blessed to  
 experience many wine  
 tours and vineyards all
 
-<!--more--> [![European wine harvest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437ad26dd970c.jpg "European wine harvest")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437ad26dd970c.jpg)  
+<!--more--> ![European wine harvest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437ad26dd970c.jpg)  
   
   
 We've been blessed to experience many wine tours, [vineyards](http://soultravelers3new.local/2008/08/oporto-dorhou-v.html "europe vineyards") and wine tasting all over Europe, from some of thier most [famous wine regions](http://soultravelers3new.local/2009/01/family-travel-photofrance-alsace-wine-region.html "famous wine region europe") to more [obscure places](http://soultravelers3new.local/2007/07/sirince-charms.html "obscure wine region"). This photo was taken near the Penedes wine region in Spain where we stopped at a lovely restaurant on our way back from Andorra this past September.  

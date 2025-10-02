@@ -7,7 +7,7 @@ categories:
   - "family-travel-photo"
 ---
 
-[![IMG_4132](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a4cd19a2970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a4cd19a2970b.jpg) Family Travel Photo - NYC, USA  
+![IMG_4132](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a4cd19a2970b.jpg) Family Travel Photo - NYC, USA  
 September 8,  2009
 
 Family travel is often about doing  
@@ -16,7 +16,7 @@ places as this photo demonstrates
 
 <!--more-->
 
-[![Family Travel Photo - NYC, USA , Metropolitan Museum of Art, Egyptian](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a524660f970c.jpg "Family Travel Photo - NYC, USA , Metropolitan Museum of Art, Egyptian")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a524660f970c.jpg)
+![Family Travel Photo - NYC, USA , Metropolitan Museum of Art, Egyptian](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a524660f970c.jpg)
 
 Family travel is often about doing ordinary things in extraordinary places as this photo demonstrates so well! Mozart adores babies and is outgoing so always [meets friends](http://soultravelers3new.local/2009/06/questions-answers-about-soultravelers3-family-travel.html) of all ages where ever she goes. When we visited the [Metropolitan Museum of Art](http://www.metmuseum.org/) in NYC last fall while there to meet all the [disadvantaged school kids](http://soultravelers3new.local/2008/10/the-traveling-o.html) that travel [with us virtually](http://twitpic.com/kfu0), Mozart and a little Japanese toddler became instant buddies who were fascinated with each other.
 

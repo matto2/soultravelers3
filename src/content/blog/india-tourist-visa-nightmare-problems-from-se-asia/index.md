@@ -13,7 +13,7 @@ tags:
   - "problems-with-india-tourist-visa"
 ---
 
-[![IMG_7080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60f223e1970c.jpg "IMG_7080")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60f223e1970c.jpg) India Tourist Visa Nightmare
+![IMG_7080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60f223e1970c.jpg) India Tourist Visa Nightmare
 
 BEWARE! If you want to get  
 a simple tourist visa to India  
@@ -35,7 +35,7 @@ When it became immediately clear that this very simple process was going to be d
   
 That was last Friday's wasted day. We were suppose to fly from Delhi to London, so just booked a week there to visit old friends who have a farm near Delhi (he is a pilot and she  does amazing esoteric healing with a Tibetan traditional medicine man)  as well as take a fast trip to see Taj Mahal. We thought it a nice way to break up the long haul as well between [SE Asia](http://soultravelers3new.local/2010/12/tropical-christmas-abroad-in-asia.html "Christmas in se asia") and [Europe](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html "Europe road trip").  
   
-[![Cooking Indian food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60f2352d970c.jpg "Cooking Indian food")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60f2352d970c.jpg)  
+![Cooking Indian food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60f2352d970c.jpg)  
   
 **INDIA'S CRAZY TOURIST VISA POLICIES**  
   
@@ -57,7 +57,7 @@ He some how hobbled his way to the stairs in front of the building and sat down 
   
 Living in Asia is often like living on another planet and surreal. DaVinci answered, "How is your foot?". He could not convince the man to put ice on his foot and eventually he found out that we had all but no chance to get these simple travel visas to visit India. DaVinci was there for hours and the man never went to the doctor, but carried on with his work.  
   
-[![cooking Indian food in little India in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538dddc9bc970b.jpg "cooking Indian food in little India in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538dddc9bc970b.jpg)  
+![cooking Indian food in little India in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538dddc9bc970b.jpg)  
   
 **WHY WE WILL SKIP INDIA AND THE TAJ MAHAL THIS YEAR**  
   

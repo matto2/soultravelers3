@@ -20,13 +20,13 @@ tags:
   - "where-to-camp-europe-with-kids"
 ---
 
-[![IMG_4690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee736cabb970d.jpg "IMG_4690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee736cabb970d.jpg)Camping Spain  
+![IMG_4690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee736cabb970d.jpg)Camping Spain  
   
 Camping in Spain can be both  
 low budget and the luxurious  
 way to vacation in Europe
 
-<!--more--> [![Camping in Spain - best campsites like this one in Granada](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c359373aa970b.jpg "Camping in Spain - best campsites like this one in Granada")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c359373aa970b.jpg)  
+<!--more--> ![Camping in Spain - best campsites like this one in Granada](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c359373aa970b.jpg)  
   
 [Camping in Spain](http://soultravelers3new.local/2008/05/joys-of-the-roa.html "camping in Spain") can be both low budget and the luxurious way to [vacation in Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "VACATION IN EUROPE"), as this beautiful campsite photo from Granada, demonstrates clearly. Since we've been [roadtripping around Europe](http://soultravelers3new.local/2011/06/road-trip-europe-plan-then-improvise.html "ROAD TRIP EUROPE PLAN") in a [campervan](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "TRAVEL EUROPE BY CAMPERVAN") for 6 years, we know the [best campsites in Europe.](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "best campsites in Europe")  
   

@@ -18,14 +18,14 @@ tags:
   - "witopia-vpn"
 ---
 
-[![IMG_6893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167667020d0970b.jpg "IMG_6893")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167667020d0970b.jpg) Secure Public WiFi? Data Protection and  
+![IMG_6893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167667020d0970b.jpg) Secure Public WiFi? Data Protection and  
 Travel? Best VPN? Witopia Review  
   
 With so many free Wi-Fi  
 hot spots around the world,  
 from McDonald's and Starbucks to
 
-<!--more--> [![Safe Public Wifi? Best have a VPN even traveling to a beach!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163057c4e3e970d.jpg "Safe Public Wifi? Best have a VPN even traveling to a beach!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163057c4e3e970d.jpg)  
+<!--more--> ![Safe Public Wifi? Best have a VPN even traveling to a beach!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163057c4e3e970d.jpg)  
   
 **IS PUBLIC WIFI SAFE?**  
   

@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
-[![3kings_spn_06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/14/3kings_spn_06.png "3kings_spn_06")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/3kings_spn_06.png)Three Kings in Andalusia  
+![3kings_spn_06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/3kings_spn_06.png)Three Kings in Andalusia  
 March 4, 2007
 
 Here is a little of the joyous Los Reyes Magos  

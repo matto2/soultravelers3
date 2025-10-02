@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![IMG_2556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f050c65970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f050c65970c.jpg) Soultravelers3 Won 2 Lonely Planet Travel Awards!!Thank YOU!  
+ ![IMG_2556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f050c65970c.jpg) Soultravelers3 Won 2 Lonely Planet Travel Awards!!Thank YOU!  
 April 7, 2009
 
 For those who haven't heard, we just won  
@@ -15,13 +15,13 @@ to thank all of you for your support and votes.
 
 <!--more-->
 
-[![IMG_2556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ffbfa7a970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ffbfa7a970b.jpg)
+![IMG_2556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ffbfa7a970b.jpg)
 
 For those who haven't heard, we just won TWO Lonely Planet Travel Awards and want to thank all of you for your support and votes. We won all three in the voting part which counted for 50% of the score and then the Lonely Planet judges count for 50% of the score. There was some really stiff competition, so we are really thrilled with these results.
 
 We won BEST Microblog for our Soutravelers3 Twitter account and Best Themed for our blog here!
 
-[![Awards_winner](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ffddf96970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ffddf96970b.jpg)            [![Awards_winner](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f06ed78970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f06ed78970c.jpg)
+![Awards_winner](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ffddf96970b.jpg)            ![Awards_winner](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f06ed78970c.jpg)
 
 The day before they announced the winners they notified us and asked us to send an acceptance speech via video to the big party in San Francisco. We dropped everything and pulled together two videos which we hear were very popular that night and brought a few chuckles. We figured we would let the cutest one in the family do the speaking for us!
 

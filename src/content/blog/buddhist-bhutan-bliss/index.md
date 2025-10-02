@@ -17,13 +17,13 @@ tags:
   - "family-travel-bhutan"
 ---
 
- [![IMG_8227](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538eba1ded970b.jpg "IMG_8227")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538eba1ded970b.jpg) Buddhist Bhutan Bliss
+ ![IMG_8227](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538eba1ded970b.jpg) Buddhist Bhutan Bliss
 
 Bhutan is an extraordinary country  
 unlike anywhere else on the planet  
 and some of it is because of the
 
-<!--more--> [![Bhutan travel and Buddhism](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538eba1e52970b.jpg "Bhutan travel and Buddhism")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538eba1e52970b.jpg)
+<!--more--> ![Bhutan travel and Buddhism](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538eba1e52970b.jpg)
 
 [Bhutan](http://soultravelers3new.local/2011/05/travel-to-bhutan-.html "Bhutan travel") is an extraordinary country unlike anywhere else on the planet and some of it is because of the [people](http://soultravelers3new.local/2011/05/bhutan-travel-mother-and-child-photo.html "Bhutan travel culture") and the [Buddhist culture](http://www.bbc.co.uk/religion/religions/buddhism/ "Buddhist culture "). It is the only country in the world that puts [happiness at the core of public policy](http://www.grossnationalhappiness.com/ "gross nationial happiness bhutan") and it is integral to the nations cultural and political security and Bhutan's Buddhism appears to play a huge part in this.  
   
@@ -42,7 +42,7 @@ Most of the GNH policies find their roots in Buddhism.
   
 "Happiness is about one's outlook on life, and Buddhist values help people appreciate and focus on what they have instead of what they do not have. Values such as compassion and respect foster greater social interaction." Karma Tshiteem ( Bhutan's GNH secretary)  
   
-[![Bhutan Budda..enormous!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ec19d94970b.jpg "Bhutan Budda..enormous!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ec19d94970b.jpg)  
+![Bhutan Budda..enormous!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ec19d94970b.jpg)  
   
 [Family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "Family travel") is sometimes learning about other cultures and religions. Thank you Bhutan for teaching us more about Buddhism!  We're grateful and honored to have been the first family travel bloggers invited to visit Bhutan by the [Tourism Council of Bhutan](http://www.tourism.gov.bt/ "Tourism Bhutan") and will be writing much more about our captivating travels there.  
   

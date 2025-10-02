@@ -16,13 +16,13 @@ tags:
   - "travel-to-jordan"
 ---
 
-[![IMG_0606](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea2760f0970c.jpg "IMG_0606")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea2760f0970c.jpg)People of Jordan
+![IMG_0606](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea2760f0970c.jpg)People of Jordan
 
 One of the best things  
 about a trip to Jordan  
 are the warm, welcoming
 
-<!--more--> [![People of Jordan makes for outstanding hospitality](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea276181970c.jpg "People of Jordan makes for outstanding hospitality")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea276181970c.jpg)  
+<!--more--> ![People of Jordan makes for outstanding hospitality](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea276181970c.jpg)  
   
   
 One of the best things about a [trip to Jorda](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "trip to Jordan")n are the warm, welcoming people known to give travelers some of the most generous hospitality in the world. The majority of Jordan's 4.4 million people are of Arabic decent with most being of [Bedouin](http://soultravelers3new.local/2012/02/bedouins-in-jordan.html "Bedouin") origin and Muslim, but about 6% are Christian. There are other minorities as well from Russial, Armenia and Palestine.  

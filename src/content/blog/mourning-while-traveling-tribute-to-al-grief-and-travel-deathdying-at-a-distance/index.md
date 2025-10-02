@@ -14,7 +14,7 @@ tags:
   - "tribute-to-step-dad"
 ---
 
-[![150006_1660801676441_1129144454_31849316_5377156_n](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6684697970c.jpg "150006_1660801676441_1129144454_31849316_5377156_n")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6684697970c.jpg)Mourning While Traveling: Tragedy Back Home  
+![150006_1660801676441_1129144454_31849316_5377156_n](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6684697970c.jpg)Mourning While Traveling: Tragedy Back Home  
 November 6, 2010  
 
 "Death is not the end. Death can  
@@ -23,7 +23,7 @@ Life is the traveller. The Soul is the
 
 <!--more-->
 
-[![walking the Great Wall in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6684736970c.jpg "walking the Great Wall in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6684736970c.jpg)
+![walking the Great Wall in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6684736970c.jpg)
 
 "Death is not the end. Death can never be the end. Death is the road. Life is the traveller. The Soul is the Guide." Sri Chinmoy 
 
@@ -37,7 +37,7 @@ This is one of the hardest post I have ever written on this blog. I keep procrat
 
 "Thinking and talking about death need not be morbid; they may be quite the opposite. Ignorance and fear of death overshadow life, while knowing and accepting death erases this shadow" Lily Pincus
 
-[![step dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e06b5a01970b.jpg "step dad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e06b5a01970b.jpg)  
+![step dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e06b5a01970b.jpg)  
   
  I think I am still in shock to realize that our beloved Step Dad is no longer with us. Things will never be the same and we are in the midst of incredible change on many levels ( in a new place, learning a new language, the loss of our "rock" leaving us all on my side grieving and simultaneously forming new identities and ways). My mother is coming to visit us here in Penang this winter  and we will plan more ways to spend more time together this important upcoming year or two. Like my [paralyzed arm for 11 months](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html "paralyzed arm 11 months") last winter, this tragedy sets us back, slows us down and makes us reevaluate life and our goals.
 
@@ -49,7 +49,7 @@ Of all my wonderful aunts (four of them are nurses and one uncle is a dentist), 
 
 There is a saying about a mother being only as happy as her unhappiest child and I think  perhaps that relates to all close loved ones. If they suffer, it impacts you. It is especially hard on my mother as they were like teenagers in love until the very end. I can't even imagine such a loss. Or how one forms a new identity and way of being at 83. My dear sweet sister who lives close by, was also practically raised by Dad as she was only 10 when he came into their lives, while I, as a young adult, lived at a far distance in New York City, Europe and Boston. Financially, things are different as well and there are many bureaucratic hoops to jump through when two become one as my mother takes on the mantle of widow.
 
-[![Soulmates mom & step dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c674cf08970c.jpg "Soulmates mom & step dad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c674cf08970c.jpg)  
+![Soulmates mom & step dad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c674cf08970c.jpg)  
   
 Yet we must all go on and we will. Thankfully, it is easier today than ever to use free calls and webcam calls to stay in touch. Mourning is not an easy process at home or while traveling, but there is really no choice, but to just go through it the best one can. One of the keys to a happy long life is being able to process grief, mourning and adapting to change.
 
@@ -57,7 +57,7 @@ Yet we must all go on and we will. Thankfully, it is easier today than ever to u
 
 One of the greatest things we learn from death is that life is short and we must make the most of it. Our beloved Step Dad made the most of his life and set a great example for us all. He was a shy man in many ways, but he always had so many friends because he was so kind, giving and witty. He traveled to many places, had a rich life full of many unique experiences  and was an amazing husband & rock to all of his kids, including me. We miss him and there is a hole in our lives now. It will take time to heal, but we will never forget. Let me share a little about him from letters we wrote for his funeral. This is our little tribute to a great man.
 
-[![Mom & Step Dad in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e06bb50a970b.jpg "Mom & Step Dad in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e06bb50a970b.jpg)
+![Mom & Step Dad in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e06bb50a970b.jpg)
 
 **10 YEAR OLD MOZART'S** **EULOGY LETTER FOR HER GRANDPA**
 

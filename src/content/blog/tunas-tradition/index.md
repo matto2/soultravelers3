@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Img_2310](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2310.jpg "Img_2310")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2310.jpg) Tunas Tradition Tonight?  
+![Img_2310](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2310.jpg) Tunas Tradition Tonight?  
 Sept 12, 2008
 
 The joy of the colorful Tunas  singers  
@@ -19,11 +19,11 @@ we really wanted to see in Santiago and
 
 The joy of the colorful Tunas  singers filled the air!  This was one of the things we really wanted to see in Santiago and we were very pleased that we got to experience these unique troubadours. This vibrant tradition is found in all University towns in Spain, not just Santiago.
 
-[![Img_2309](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2309.jpg "Img_2309")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2309.jpg)
+![Img_2309](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2309.jpg)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2263.jpg)
 
-[![Img_2269](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2269.jpg "Img_2269")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2269.jpg)
+![Img_2269](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2269.jpg)
 
 My understanding is that this started in the 11th and 12th centuries, when the Universities began in Spain. It started as a means for poor students to support themselves. I was intrigued by these Tunas singers when [I first read Penelope Casas'](http://soultravelers3new.local/book_reviews/index.html) book [Discovering Spain: An Uncommon Guide](http://www.amazon.com/dp/0679765697?tag=soultravelers-20&camp=14573&creative=327641&linkCode=as1&creativeASIN=0679765697&adid=1FW9BYW3NG1V28X92S7J&). I think [This site](http://www.murcia.com/tunamedicina/i-historia.asp) (about a different Universities' Tunas group) explains the history quite well:
 
@@ -33,19 +33,19 @@ These students came to the university cities with scant economic resources and i
 
 [![Img_2282](http://soultravelers3new.local/images/2008/09/12/img_2282.jpg "Img_2282")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2282.jpg)
 
-[![Img_2290_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2290_2.jpg "Img_2290_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2290_2.jpg)
+![Img_2290_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2290_2.jpg)
 
   
 
 The lit up town and festive atmosphere makes Santiago de Compostela an exciting town to stroll in at night. Mozart always loves being out at night and this was no exception. We came across a few different Tunas groups, which you can see (and hear) them in our [video here](http://soultravelers3new.local/2008/08/santiago-de-com.html#more).
 
-[![Img_2296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2296.jpg "Img_2296")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2296.jpg)
+![Img_2296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2296.jpg)
 
   
   
 To add to the fun, there was a guy with a bunch of brand new puppies in a baby stroller. Mozart was thrilled when he let her hold each one! The Tunas also flirt with the crowd and engage the people who watch, often including them in the show. The costumes are colorful and so are the instruments, including bagpipes and a very large guitar.
 
-[![Img_2327](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2327.jpg "Img_2327")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2327.jpg)
+![Img_2327](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2327.jpg)
 
   
   
@@ -53,4 +53,4 @@ We do not do too many nights out because our idea of a fun night is cuddling up 
 
 [![Img_2320](http://soultravelers3new.local/images/2008/09/12/img_2320.jpg "Img_2320")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2320.jpg)
 
-[![Img_2285](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2285.jpg "Img_2285")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2285.jpg)
+![Img_2285](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/img_2285.jpg)

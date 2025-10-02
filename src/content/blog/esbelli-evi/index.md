@@ -15,7 +15,7 @@ Slowtravel and more all have ecstatic reviews.
 
 <!--more-->
 
-[![Img_1737](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1737.png "Img_1737")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1737.png)
+![Img_1737](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1737.png)
 
 I had heard raves about Esbelli Evi from many sources and that it sets the standard for cave dwellings in Cappadocia, Fodors, Frommers, Slowtravel and more all have ecstatic reviews. I was also told by many that it would be difficult to get into as it is one of the best boutique hotels in the world, (especially in the high season when we were going) if not booked far in advance. We can not book far ahead because we travel by whim, so have to book as we go. I decided to just take my chances and hope for the best.
 
@@ -42,26 +42,26 @@ We happily greeted them, checked out their cool, brand new and custom made, expe
 
 We had another day or two and then got one last picture of the great staff (Suhu was away at that moment) before they took us to the bus station and helped us get off on the right bus to Ankara for our sleeper train to Istanbul. We have been to so many wonderful places in Europe, but Esbelli Evi was one of the best and will always have a special place in our heart!
 
-[![Img_1673](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1673.png "Img_1673")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1673.png)
+![Img_1673](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1673.png)
 
-[![Img_1766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1766.png "Img_1766")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1766.png)
+![Img_1766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1766.png)
 
-[![Img_1725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1725.png "Img_1725")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1725.png)
+![Img_1725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1725.png)
 
-[![Img_1741](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1741.png "Img_1741")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1741.png)
+![Img_1741](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1741.png)
 
-[![Img_1537](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1537.png "Img_1537")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1537.png)
+![Img_1537](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1537.png)
 
-[![Img_1631](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1631.png "Img_1631")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1631.png)
+![Img_1631](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1631.png)
 
-[![Img_1622](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1622.png "Img_1622")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1622.png)
+![Img_1622](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1622.png)
 
-[![Img_1708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1708.png "Img_1708")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1708.png)
+![Img_1708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1708.png)
 
-[![Img_1721](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1721.png "Img_1721")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1721.png)
+![Img_1721](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1721.png)
 
-[![Img_1671](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1671.png "Img_1671")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1671.png)
+![Img_1671](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1671.png)
 
-[![Img_1732](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1732.png "Img_1732")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1732.png)
+![Img_1732](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1732.png)
 
-[![Img_1773](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1773.png "Img_1773")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1773.png)
+![Img_1773](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1773.png)

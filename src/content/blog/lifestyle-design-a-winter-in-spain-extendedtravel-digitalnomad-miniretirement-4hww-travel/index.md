@@ -16,7 +16,7 @@ tags:
   - "travel"
 ---
 
- [![IMG_0837](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6abf1ba970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6abf1ba970c.jpg) Lifestyle Design a Winter in Spain!  
+ ![IMG_0837](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6abf1ba970c.jpg) Lifestyle Design a Winter in Spain!  
 November 12, 2009
 
 "Lifestyle Design" has become a hot  
@@ -25,7 +25,7 @@ his #1 best selling book "The 4-Hour
 
 <!--more-->
 
-[![Spain sunset white village Andalusia Andalucia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6abf200970c.jpg "Spain sunset white village Andalusia Andalucia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6abf200970c.jpg)  
+![Spain sunset white village Andalusia Andalucia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6abf200970c.jpg)  
 
 "Lifestyle Design" has become a hot buzz word thanks to [Tim Ferriss](http://www.fourhourworkweek.com/) and his #1 best selling  book, "The 4- Hour Workweek" as well as his [hugely popular blog](http://www.fourhourworkweek.com/blog/). We love how he inspires, so were thrilled when we were contacted and told we were featured in the [new and expanded 4HWW edition](http://www.fourhourworkweek.com/blog/2009/10/16/tim-ferriss-4-hour-work-week/) coming out on December 15th!
 
@@ -33,7 +33,7 @@ We have become accidental [trail blazers in extended family travel](http://soult
 
 Can you imagine our excitement when I first got this email? "Out of more than 400 pages of submissions, Tim personally chose yours for the short-list for inclusion.  He loved it." I can't wait to get my review copy and will keep you posted!
 
-[![spain Andalusia landscape white village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875893ca9970c.jpg "spain Andalusia landscape white village")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875893ca9970c.jpg)  
+![spain Andalusia landscape white village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875893ca9970c.jpg)  
 
 I am loving how [new ways](http://today.msnbc.msn.com/id/33616972/ns/today-today_people/) of [being](http://www.freepursuits.com/), traveling, [educating](http://www.classroom20.com/) and [working](http://www.digitalnomads.com/) are exploding in the blogosphere as people invent their own versions of "lifestyle design." We were also recently interviewed by our online friend [Chris Guillebeau](http://chrisguillebeau.com/3x5/about-the-project/) for his new book. Being a life long non-conformist, I admire the inspiration and great work he is doing with his unconventional strategies.
 
@@ -43,7 +43,7 @@ What an exciting time for us and we're so grateful that we can demonstrate throu
 
 We are in beautiful Barcelona right now, gathering information for our fourth winter in sunny Andalusia which has the best winter weather in Europe. I am surprised that more people do not winter in southern Spain so will be posting more on this topic as soon as we settle in for our 4th winter this year.I get a lot of emails on this topic because we have more experience in this area as a digital nomad family, than anyone that I have seen online or in person.
 
-[![IMG_5344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128758aafc1970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128758aafc1970c.jpg)  
+![IMG_5344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128758aafc1970c.jpg)  
 
 Recently, I got a very interesting one from [Liz](http://www.corsicajourneys.com/) that she also posted as a comment in reply to some of mine at the [Location Independent](http://locationindependentprofessionals.com/) blog.
 
@@ -64,7 +64,7 @@ Places owned by Spaniards are even cheaper...but can be more dated/authentic. Ch
 
 We walk or take cheap mass transit to everything we need & live like simple locals. We even eat tons of avocados & citrus for free that kidlet picks off trees in campo! We shop local market ...& hyper market...which delivers! The weather is almost always sunny & T-shirt weather warm during day, but can get chilly at night inside places made for hot summers, so we bundle up then & use little heat.
 
-[![IMG_0354](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287591db87970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287591db87970c.jpg)  
+![IMG_0354](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287591db87970c.jpg)  
   
 The white villages are wonderful, so I started by getting to know them online here:  
   
@@ -80,7 +80,7 @@ For those with kids, we have found it very easy to enroll our child in the local
 
 Despite the cruise wear that tourists who visit wear, it is not a tropical climate in the winter, but a Mediterranean one. The locals usually dress more winter-y looking. A fireplace in winter is nice, as there is no central heating, although we have yet to get one.The pool water is not heated, but my daughter usually swims on hot days in November and starting again in March after school and on week ends.
 
-[![IMG_4975](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a690aeb1970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a690aeb1970b.jpg)  
+![IMG_4975](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a690aeb1970b.jpg)  
 
 There are two really nice parks in our small village of about 1000 people as well as a modern gym. There are after school classes like ceramics, rock climbing, flamenco and sports plus a pony club nearby. Andalucian's love very elaborate festivals and everyone in the village participates from the youngest to the oldest ( as I have written about before).
 
@@ -91,7 +91,7 @@ It gets too cold for us here late winter, but before we return to our village we
   
 I recommend staying in the village instead of countryside to become part of the community. Spaniards are Very accepting in our experience, especially  if you speak Spanish. You will be much more isolated in the "campo" (countryside)  & need a car. Returning every winter to same village makes it easier too. We just found ours blindly online, but now it is part of us forever & the sweet people too!! Within an hour of our return, every knows that we are back.
 
- [![IMG_8669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128759298e6970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128759298e6970c.jpg)   
+ ![IMG_8669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330128759298e6970c.jpg)   
 Andalusia is a huge area, so lots to pick from! If you have more questions please leave them here in the comments.
 
 [  

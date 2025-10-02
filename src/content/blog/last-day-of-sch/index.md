@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1460](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1460.png "Img_1460")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1460.png) Last Day of School  
+ ![Img_1460](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1460.png) Last Day of School  
 March 23, 2007
 
 Mozart gave a little concert to her class  
@@ -15,7 +15,7 @@ we gave a little going away party on her
 
 <!--more-->
 
-[![Img_1460_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1460_2.png "Img_1460_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1460_2.png)
+![Img_1460_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1460_2.png)
 
   
 Mozart gave a little concert to her class and they were mightily impressed and then we gave a little going away party on her last day. The teachers have been wanting her to play, so we thought we better do it now. Unlike her last school where almost everyone played violin, nobody here plays, so her friends were amazed. It was fun to see her giggle as she played as she was quite tickled to be surprising them.
@@ -44,24 +44,24 @@ Mozart was happy that her teacher even gave her next semesters book so she can k
 
 Mozart enjoyed her day in the sun and hugging all her friends goodbye and being able to have her parents in the classroom, but she was also glad it was her last day as she does much prefer to home school and the freedom that allows her. She says she wants to home school high school and college too. (Grin.)
 
-[![Img_1463](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1463.png "Img_1463")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1463.png)
+![Img_1463](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1463.png)
 
-[![Img_1465](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1465.png "Img_1465")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1465.png)
+![Img_1465](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1465.png)
 
-[![Img_1495](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1495.png "Img_1495")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1495.png)
+![Img_1495](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1495.png)
 
-[![Img_1549](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1549.png "Img_1549")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1549.png)
+![Img_1549](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1549.png)
 
-[![Img_1574](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1574.png "Img_1574")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1574.png)
+![Img_1574](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1574.png)
 
-[![Img_1575](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1575.png "Img_1575")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1575.png)
+![Img_1575](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1575.png)
 
-[![Img_1577](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1577.png "Img_1577")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1577.png)
+![Img_1577](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1577.png)
 
-[![Img_1585](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1585.png "Img_1585")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1585.png)
+![Img_1585](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1585.png)
 
-[![Img_1613](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1613.png "Img_1613")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1613.png)
+![Img_1613](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1613.png)
 
-[![Img_1614](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1614.png "Img_1614")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1614.png)
+![Img_1614](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1614.png)
 
-[![Img_1446](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1446.png "Img_1446")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1446.png)
+![Img_1446](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1446.png)

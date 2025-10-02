@@ -8,13 +8,13 @@ categories:
   - "health-and-travel"
 ---
 
-[![IMG_2548](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee68bfa54970d.jpg "IMG_2548")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee68bfa54970d.jpg)Happiness and Gratitude  
+![IMG_2548](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee68bfa54970d.jpg)Happiness and Gratitude  
   
 "The most important thing is  
 to enjoy your life -to be happy- 
 it's all that matters"
 
-<!--more--> [![Happiness sign in Mandarin in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee68c32b5970d.jpg "Happiness sign in Mandarin in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee68c32b5970d.jpg)  
+<!--more--> ![Happiness sign in Mandarin in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee68c32b5970d.jpg)  
   
 "The most important thing is to enjoy your life-to be happy- it's all that matters" Audrey Hepburn  
   

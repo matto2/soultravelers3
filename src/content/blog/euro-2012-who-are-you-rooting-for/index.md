@@ -18,13 +18,13 @@ tags:
   - "world-cup"
 ---
 
-[![IMG_5603](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067ed382970d.jpg "IMG_5603")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067ed382970d.jpg)Euro 2012 - Who Are You Rooting For?
+![IMG_5603](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067ed382970d.jpg)Euro 2012 - Who Are You Rooting For?
 
 Europeans are wild about  
 football, or what we Americans  
 call soccer, and it is also a huge
 
-<!--more--> [![Our Spanish speaking American kid roots for Spain for football's Euro 2012](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067ed43d970d.jpg "Our Spanish speaking American kid roots for Spain for football's Euro 2012")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067ed43d970d.jpg)
+<!--more--> ![Our Spanish speaking American kid roots for Spain for football's Euro 2012](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163067ed43d970d.jpg)
 
 Europeans are wild about football, or what we Americans call soccer, and it is also a huge sport here in Asia where the Euro 12 is hyped heavily even on our Mandarin TV station. It was pretty thrilling when we got to [watch Spain win the World Cup in Barcelona](http://soultravelers3new.local/2010/07/watching-spain-win-the-world-cup-in-barcelona-celebrations-fifa-football-fever-europe-travel-resort.html "spain win the world cup in Barcelona"), a memory we will always cherish.  
   

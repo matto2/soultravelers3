@@ -20,20 +20,20 @@ tags:
   - "travel-cheaply"
 ---
 
-[![IMG_6140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3718ba41970b.jpg "IMG_6140")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3718ba41970b.jpg)Minimalist Family,  Frugal   
+![IMG_6140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3718ba41970b.jpg)Minimalist Family,  Frugal   
 Tip - OMG!  
   
 Many are curious about our minimalist  
 family ways and how we live so  
 frugally as we travel the world
 
-<!--more--> [![Oh my gosh! Funny, but practical frugal tip!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4147f54f970c.jpg "Oh my gosh! Funny, but practical frugal tip!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4147f54f970c.jpg)  
+<!--more--> ![Oh my gosh! Funny, but practical frugal tip!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4147f54f970c.jpg)  
   
 Many are curious about our [minimalist family ways](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist family") and how we live cheaply and do super [frugal travel](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html "frugal travel ") as we have [traveled the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel the world") non-stop these last 7-plus years on only $23/day per person.  
   
 We took the calculated risk to [retire early](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retire early and travel") in 2005, so we could [world school](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school education ") our child and have [more freedom](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html "advice to college graduates") and [fun](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "family travel fun") together, thus we became experts on [traveling cheap](http://soultravelers3new.local/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "traveling cheap bora bora") even in expensive countries and [eating healthy and cheap in Europe](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "eating healthy and cheap in Europe") and [everywhere](http://soultravelers3new.local/food_and_drink/ "food and drink around the world"). We don't believe in debt and always live under our means.  
   
-[![Almost teen model in size 12 months shorts and T-shirt](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4147f629970c.jpg "Almost teen model in size 12 months shorts and T-shirt")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4147f629970c.jpg)  
+![Almost teen model in size 12 months shorts and T-shirt](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4147f629970c.jpg)  
   
 We've written before about our [best advice for RTW travel](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html "best advice for RTW travel"), [best packing tip for world travel](http://soultravelers3new.local/2012/08/best-packing-tip-for-world-travel.html "best packing tip"), [best tips for family travel](ww.soultravelers3.com/2010/02/15-best-tips-for-family-friendly-travel-airplanes-airports-vacation-roadtrips-long-term-family-trave.html "best tips for family travel"), [slow travel benefits](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel benefits") and much more, but some tips like this one, are practical, but also amusing.  
   

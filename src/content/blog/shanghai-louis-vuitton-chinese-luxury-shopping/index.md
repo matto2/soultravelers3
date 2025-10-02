@@ -15,14 +15,14 @@ tags:
   - "travel-to-china"
 ---
 
-[![IMG_0833](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f31409f970c.jpg "IMG_0833")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f31409f970c.jpg)Shanghai - Louis Vuitton - 
+![IMG_0833](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f31409f970c.jpg)Shanghai - Louis Vuitton - 
 Chinese Luxury Shopping  
   
 Shanghai is a very impressive city,  
 but some how we didn't expect  
 all the western style luxury and
 
-<!--more--> [![Luxury Shopping in China - Louis Vuitton in Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d7a1f28970b.jpg "Luxury Shopping in China - Louis Vuitton in Shanghai")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d7a1f28970b.jpg)  
+<!--more--> ![Luxury Shopping in China - Louis Vuitton in Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d7a1f28970b.jpg)  
   
 [Shanghai](http://soultravelers3new.local/2012/12/shanghai-skyline-worlds-best-.html "shanghai skyline") is a very impressive city, but some how we didn't expect all the western style luxury and shopping like this Louis Vuitton store. We should have known because [Shanghai](http://soultravelers3new.local/2012/11/shanghai-with-kids.html "shanghai with kids") has long been a haven of international shopping and [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel") is the world’s largest luxury market. Yet, it is not the typical image for [most of China](http://soultravelers3new.local/2012/11/life-in-china.html "life in china").  
   

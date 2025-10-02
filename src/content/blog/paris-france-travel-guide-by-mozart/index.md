@@ -22,13 +22,13 @@ tags:
   - "violin"
 ---
 
- [![IMG_2682](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3cea44d970b.jpg "IMG_2682")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3cea44d970b.jpg) Paris, France Travel Guide By Mozart
+ ![IMG_2682](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3cea44d970b.jpg) Paris, France Travel Guide By Mozart
 
 What's the best way to do  
 family travel in Paris? Let  
 your kids lead and they will
 
-<!--more--> [![Paris, France Travel Guide By Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60738336970c.jpg "Paris, France Travel Guide By Mozart")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60738336970c.jpg)  
+<!--more--> ![Paris, France Travel Guide By Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60738336970c.jpg)  
   
 What's the best way to do family travel in Paris? Let your kids lead and they will soon know their way around the Metro, buses, streets  and maps better than you! If you are going to Paris, France and planning your trip, let our tour guide Mozart guide  you to the [Louvre](http://soultravelers3new.local/2006/09/3-museums-in-a.html "Louvre with kids"), [Eiffel Tower](http://soultravelers3new.local/2010/10/celebrating-in-paris-eiffel-tower-family-travel-adventures-abroad-birthdays-weddings-and-anniversari.html "Eiffel Tower "), [Notre Dame](http://soultravelers3new.local/2006/09/notre-dame-left.html "notre dame"), [Arc de Triomphe](http://soultravelers3new.local/2006/09/sun-arc-de-triu.html "Arc de Triomphe") and [Sacre- Coeur](http://soultravelers3new.local/2006/10/sacre-coeur-mon.html "Sacre Coeur") as she [plays her violin](http://www.youtube.com/watch?v=wn9rDTZj-m4 "Plays her violin around the world") doing a famous French folk song called Gavotte!  
   

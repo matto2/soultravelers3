@@ -15,7 +15,7 @@ within walking distance to Ephesus, the antique Hotel Kalehan
 
 <!--more-->
 
-[![Img_2875](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2875.png "Img_2875")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2875.png)
+![Img_2875](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2875.png)
 
 Just below Selcuk’s 6th century castle and St. John’s Basilica, and within walking distance to Ephesus, the antique Hotel Kalehan ([www.kalehan.com](http://www.kalehan.com)) provides the fantasy of living in an Ottoman villa made with traditional materials and decorated in typical anatolian style.
 
@@ -37,26 +37,26 @@ We liked the Kalehan so much that we added more days than planned and it was har
 
 We enjoyed his mother as much as we did him and watching them play so happily together. They played with books, games, computers, had foosball challenges and a blast at the pool or running around the garden. They even had Nickelodeon on Big Screen TV in English, which became a kid magnet after dinner with desert, while the parents got to sip wine, watching them from a distance, having some adult conversation!
 
-[![Img_3733](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_3733.png "Img_3733")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3733.png)
+![Img_3733](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3733.png)
 
-[![Img_3738](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_3738.png "Img_3738")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3738.png)
+![Img_3738](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3738.png)
 
-[![Img_3103](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_3103.png "Img_3103")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3103.png)
+![Img_3103](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3103.png)
 
-[![Img_2898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2898.png "Img_2898")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2898.png)
+![Img_2898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2898.png)
 
-[![Img_2684](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2684.png "Img_2684")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2684.png)
+![Img_2684](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2684.png)
 
-[![Img_2880](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2880.png "Img_2880")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2880.png)
+![Img_2880](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2880.png)
 
-[![Img_2889](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2889.png "Img_2889")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2889.png)
+![Img_2889](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2889.png)
 
-[![Img_2670](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2670.png "Img_2670")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2670.png)
+![Img_2670](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2670.png)
 
-[![Img_2886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2886.png "Img_2886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2886.png)
+![Img_2886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2886.png)
 
-[![Img_2890](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2890.png "Img_2890")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2890.png)
+![Img_2890](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2890.png)
 
-[![Img_3090](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_3090.png "Img_3090")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3090.png)
+![Img_3090](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3090.png)
 
-[![Img_3725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_3725.png "Img_3725")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3725.png)
+![Img_3725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_3725.png)

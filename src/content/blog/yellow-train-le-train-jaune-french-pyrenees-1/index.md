@@ -14,13 +14,13 @@ tags:
   - "yellow-train-pyrenees"
 ---
 
-[![IMG_5714](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153906c4621970b.jpg "IMG_5714")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153906c4621970b.jpg) Yellow Train - Le Train Jaune - French Pyrenees
+![IMG_5714](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153906c4621970b.jpg) Yellow Train - Le Train Jaune - French Pyrenees
 
 What is the highest train  
 ride in France? The charming  
 Yellow Train in the French Pyrenees  
 
-<!--more--> [![yellow train in the French Pyrenees](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a5f7f47970d.jpg "yellow train in the French Pyrenees")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a5f7f47970d.jpg)
+<!--more--> ![yellow train in the French Pyrenees](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a5f7f47970d.jpg)
 
 What is the highest train ride in France? The charming [Yellow Train](http://www.countrycousins.co.uk/yelltren.htm "yellow train") in the French Pyrenees or "Le Train Jaune" as they say in French. The Yellow Train is  not just a tourist train, but a regular train that has been running for over 100 years.  
   

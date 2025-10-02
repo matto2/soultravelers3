@@ -17,14 +17,14 @@ tags:
   - "zen"
 ---
 
-[![IMG_1584](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676495d540970b.jpg "IMG_1584")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676495d540970b.jpg)The Beauty of  
+![IMG_1584](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676495d540970b.jpg)The Beauty of  
 Traditional Chinese Culture
 
 One of the joys of  
 taking the slow-travel  
 time to immerse in Mandarin
 
-<!--more--> [![Chinese culture style and beauty](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303a123ca970d.jpg "Chinese culture style and beauty")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303a123ca970d.jpg)  
+<!--more--> ![Chinese culture style and beauty](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303a123ca970d.jpg)  
   
   
 One of the joys of taking the [slow-trave](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel")l time to immerse in Mandarin in tropical Asia, is being able to experience the traditional Chinese culture in deeper ways. I love the aesthetics of it, even the writing that Mozart does every day with her homework from her Mandarin school.  

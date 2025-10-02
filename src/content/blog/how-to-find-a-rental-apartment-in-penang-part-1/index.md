@@ -14,14 +14,14 @@ tags:
   - "short-term-rental-penang"
 ---
 
-[![IMG_1525](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302347ec0970d.jpg "IMG_1525")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302347ec0970d.jpg)How to Find a Rental  
+![IMG_1525](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302347ec0970d.jpg)How to Find a Rental  
 Apartment in Penang - Part 1  
   
 How do you find a place to  
 rent in Penang? What are the  
 costs of short term rental
 
-<!--more--> [![Top tips for finding a rental home in Penang- start at the Hydro Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e82b5e42970c.jpg "Top tips for finding a rental home in Penang- start at the Hydro Hotel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e82b5e42970c.jpg)  
+<!--more--> ![Top tips for finding a rental home in Penang- start at the Hydro Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e82b5e42970c.jpg)  
   
 How do you find a place to rent in Penang? What are the costs of short term rental apartments in Penang? Can you live cheaply in Georgetown? What is it like to winter in SE Asia?  
   
@@ -33,7 +33,7 @@ It was several long flights and over 25 hours of travel from San Francisco to [o
   
 We flew from San Francisco to Hong Kong, then switched planes also on Cathay Pacific to Singapore, then changed planes again to an Air Asia flight to Penang. We hated both our long Cathay Pacific flights as their planes ( despite being red eye flights) do NOT go back at all nor do the arm rests go up and are packed in VERY tight. Needless to say, we got almost no sleep, although kidlet who could lay down with her head on one of our laps and her feet on the other, managed a little sleep.  
   
-[![Penang's tropical Asia beauty and charm](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632a3a50970b.jpg "Penang's tropical Asia beauty and charm")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632a3a50970b.jpg)  
+![Penang's tropical Asia beauty and charm](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632a3a50970b.jpg)  
   
 I have been having some [health problems](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") and mostly recovered, but not 100% yet, so I was concerned about the long flights in coach and stress of long distance travel, but I did amazingly well. I do wish I had worn some warmer clothes, despite leaving a warm, sunny Med climate and going to a hot tropical climate, I froze, as the airports and airplanes were way too cold for me, even though I had my warmest clothes on including a short sleeve shirt, long sleeve velour pullover sweater, garbardine pants and Smartwool socks ( my stock plane wearing "uniform"), plus several borrowed blankets from the plane.  
   
@@ -53,11 +53,11 @@ Expats and travelers come and go a lot, so many of our Penang friends are no lon
   
 Finding fluent, native Spanish speakers is almost impossible in Asia, so not only do the kids enjoy each other, but it is a great benefit that they can share their Spanish while immersing in other languages. ( They go to the private American International school here).  
   
-[![IMG_1635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632a48c1970b.jpg "IMG_1635")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632a48c1970b.jpg)  
+![IMG_1635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632a48c1970b.jpg)  
   
 Coming up will be lots of information about how to find a place to live in Penang, with lots of photos of the diverse possibilities and the beautiful place we picked this year with outstanding, panoramic ocean and city views from every room.  
   
-[![Ooh Pei Hoon of New Bob realty- best agent in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632ab5ea970b.jpg "Ooh Pei Hoon of New Bob realty- best agent in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632ab5ea970b.jpg)  
+![Ooh Pei Hoon of New Bob realty- best agent in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167632ab5ea970b.jpg)  
   
   
 We used several agents as well as friends and the manager at Miami Green, but we were most happy with [Ooh Pei Hoon](http://agent.newbob.com.my/about-experience.php?id=SA01301&n=Ooh.Pei.Hoon "Ooh Pei Hoon New Bob realty Penang") from New Bob Realty. She is bright, very hard working, on the ball and went out of her way to make sure we found what we wanted in the time we wanted and has become our friend in the process. Here she visits us in our new kitchen and she also eats organic so was a big help in sharing resources for that and other things.  

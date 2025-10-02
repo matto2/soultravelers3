@@ -17,14 +17,14 @@ tags:
   - "world-schooling"
 ---
 
-[![IMG_0959](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016761dc1da6970b.jpg "IMG_0959")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016761dc1da6970b.jpg)Travel Schooling - 
+![IMG_0959](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016761dc1da6970b.jpg)Travel Schooling - 
 Learning Through Travel
 
 Road schooling, World schooling,  
 homeschooling, unschooling...  
 no matter what you call it
 
-<!--more--> [![world school and karate](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300e6d6e2970d.jpg "world school and karate")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300e6d6e2970d.jpg)
+<!--more--> ![world school and karate](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300e6d6e2970d.jpg)
 
 Road schooling, World schooling, homeschooling, unschooling...no matter what you call it, I think our family has more experience at it than most on the planet since we've been traveling the world non-stop since our child was five and now she is eleven.  
   

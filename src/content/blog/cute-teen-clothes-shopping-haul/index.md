@@ -25,24 +25,24 @@ tags:
   - "teen-mall-shopping"
 ---
 
-[![IMG_5376](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f0dbf1970c.jpg "IMG_5376")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f0dbf1970c.jpg)Cute Teen Clothes Shopping Haul
+![IMG_5376](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f0dbf1970c.jpg)Cute Teen Clothes Shopping Haul
 
 How many teenage girls have done  
 shopping hauls in Paris,London,Sydney,  
 NYC, Shanghai,Italy,Spain,Jordan
 
 <!--more-->  
-[![Cute Teen Clothes Shopping Haul with Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc3e30970d.png "Cute Teen Clothes Shopping Haul with Mozart")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc3e30970d.png)  
+![Cute Teen Clothes Shopping Haul with Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc3e30970d.png)  
   
 How many teenage girls have done shopping hauls in [Paris](http://soultravelers3new.local/2011/08/paris-travel-with-kids.html "Paris with kids"), [London](http://soultravelers3new.local/2010/12/bbc-interviews-soultravelers3-on-social-media-and-travel.html "London bbc interview soultravelers3 social media"),[Sydney](http://soultravelers3new.local/2013/11/stunning-sydney-view.html "sydney best view"), [NYC](http://soultravelers3new.local/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "NYC travel"), [Shanghai](http://soultravelers3new.local/2013/06/shanghai-louis-vuitton-chinese-luxury-shopping.html "shanghai luxury shopping"), [Italy,](http://soultravelers3new.local/2008/02/romeo-juliet-in.html "Italy shopping") [Spain](http://soultravelers3new.local/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "Spain for the winter"), [Jordan](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "jordon"),[California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California travel") and more? Mozart has always been a world-traveling [fashionista](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html "fashionista kid Mozart travels the world") and loves clothes, malls and shopping, so feels blessed with all the places she has shopped [around the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "around the world travel"). She is ready to be a teen beauty guru!  
   
-[![Travel teen and beauty guru Mozart loving fashion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc406e970d.png "Travel teen and beauty guru Mozart loving fashion")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc406e970d.png)  
+![Travel teen and beauty guru Mozart loving fashion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc406e970d.png)  
   
 Despite us being a [minimalist family](http://soultravelers3new.local/2013/02/minimalist-family-frugal-tip-omg.html "minimalist family frugal tips") that travels the world with just carryon luggage and not into [overconsumerism](http://soultravelers3new.local/2011/08/reverse-culture-shock-usa-over-consumerism.html "over consumerism in usa - reverse cultural shock"), she has managed to always dress with a sense of style  on a tight budget.  
   
 I [modeled with Ford](http://models.fordmodels.com/ "Ford Models") in NYC when I was young and in many magazines including Vogue, so perhaps I had some influence, but Mozart seemed to have a fashion sense even as  a baby.  
   
-[![transformation Tuesday - travel kid Mozart in Bhutan and made up for singing gig as a teen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4092970d.png "transformation Tuesday - travel kid Mozart in Bhutan and made up for singing gig as a teen")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4092970d.png)  
+![transformation Tuesday - travel kid Mozart in Bhutan and made up for singing gig as a teen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4092970d.png)  
   
 Now that she is a teenager who is [singing](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html "singing Mozart pop star beauty") and [modeling](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "how to become a teen model "), she is even more into fashion and [learning about make up](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "teen learning about make up pop star look"), hair and [teen style](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html "teen style ").  
   
@@ -58,85 +58,85 @@ Mozart is a lot of fun, so this should be an interesting new chapter for us and 
   
   
   
-[![Mozart's shopping haul, making decisions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4187970d.png "Mozart's shopping haul, making decisions")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4187970d.png)  
+![Mozart's shopping haul, making decisions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4187970d.png)  
   
 It is exciting for me to watch her grow and blossom and transform from child to woman.  
   
   
-[![Teen beauty guru Mozart loving this shopping haul and dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4190970d.png "Teen beauty guru Mozart loving this shopping haul and dress")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4190970d.png)  
+![Teen beauty guru Mozart loving this shopping haul and dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4190970d.png)  
   
 Even just trying on clothes at the gigantic malls nearby in Dallas turns into a joyful outing for us .  
   
   
-[![Teen fashionista Mozart with a head full of curls during this shopping haul ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f10f69970c.png "Teen fashionista Mozart with a head full of curls during this shopping haul ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f10f69970c.png)  
+![Teen fashionista Mozart with a head full of curls during this shopping haul ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f10f69970c.png)  
   
   
 Mozarrt dances, strikes a pose, jokes and we laugh a lot as we explore the many options.  
   
   
-[![RTW travel teen Mozart dancing in the dressing room while shopping ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd414807970b.png "RTW travel teen Mozart dancing in the dressing room while shopping ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd414807970b.png)  
+![RTW travel teen Mozart dancing in the dressing room while shopping ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd414807970b.png)  
   
 I wonder if you can guess which ones of these outfits we bought?  
   
   
-[![Mozart's shopping haul - deciding on this cute white dress or not?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41487c970b.png "Mozart's shopping haul - deciding on this cute white dress or not?")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41487c970b.png)  
+![Mozart's shopping haul - deciding on this cute white dress or not?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41487c970b.png)  
   
   
 Half the fun is trying them on for her, even if we don't buy them.  
   
-[![Mozart's fashion haul included this peach flowered romper for summer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41488c970b.png "Mozart's fashion haul included this peach flowered romper for summer")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41488c970b.png)  
+![Mozart's fashion haul included this peach flowered romper for summer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41488c970b.png)  
   
   
 We always find more than we need.....  
   
-[![Mozart laughing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f10fe1970c.png "Mozart laughing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f10fe1970c.png)  
+![Mozart laughing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f10fe1970c.png)  
   
   
 ....and end up in giggles.  
   
-[![Mozart in another romper for summer fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41489d970b.png "Mozart in another romper for summer fun")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41489d970b.png)  
+![Mozart in another romper for summer fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd41489d970b.png)  
   
   
 Mozart is in that in between stage, so finding her size can be a challenge. She some day would like to make a line just for this stage and size!  
   
-[![Mozart is a mall shopping teen queen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc420c970d.png "Mozart is a mall shopping teen queen")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc420c970d.png)  
+![Mozart is a mall shopping teen queen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc420c970d.png)  
   
   
 But that never slows us down as it lets us explore both the adult and kids sections and when we have exhausted clothes, we can always move onto exploring make up!  
   
   
-[![teen beauty guru Mozart getting tip at Estee lauder make up in Neiman Marcus](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11004970c.png "teen beauty guru Mozart getting tip at Estee lauder make up in Neiman Marcus")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11004970c.png)  
+![teen beauty guru Mozart getting tip at Estee lauder make up in Neiman Marcus](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11004970c.png)  
   
   
 Mozart loves getting advice and trying things out at the various make up counters in stores like Nordstroms and Neiman Marcus and she dappled in Estee Lauder, Channel, Clinique, Shiseido, Mineral Fusion and more. Mozart plans to do a make up "give away" soon on Youtube and share a few secrets she has learned.   
   
-[![RTW travel teen checking out the make up and beauty products at clinique ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11018970c.png "RTW travel teen checking out the make up and beauty products at clinique ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11018970c.png)  
+![RTW travel teen checking out the make up and beauty products at clinique ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11018970c.png)  
   
 She learned lots of makeup tricks at various stores like MAC Cosmetics ( huge store here)...  
   
-[![Teen Beauty guru getting tips about Bare Essentials ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc425d970d.png "Teen Beauty guru getting tips about Bare Essentials ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc425d970d.png)  
+![Teen Beauty guru getting tips about Bare Essentials ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc425d970d.png)  
   
 ...and got a complete lesson at Trish McEvoy Cosmetics where they did half her face and she did the other half step by step.  
   
-[![Beauty guru teen Mozart getting make up tips and secrets to share](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f1103c970c.png "Beauty guru teen Mozart getting make up tips and secrets to share")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f1103c970c.png)  
+![Beauty guru teen Mozart getting make up tips and secrets to share](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f1103c970c.png)  
   
   
 There is a lot to learn for both every day makeup and performance make up for when she sings and the artist in her is dazzled by this craft.  
   
-[![Mozart planning a makeup super haul ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11049970c.png "Mozart planning a makeup super haul ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11049970c.png)  
+![Mozart planning a makeup super haul ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11049970c.png)  
   
   
 She usually doesn't wear make up and when she does she likes to keep it very natural looking.  
   
-[![Mozart's eye close up made up naturally](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11055970c.png "Mozart's eye close up made up naturally")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11055970c.png)  
+![Mozart's eye close up made up naturally](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11055970c.png)  
   
 Speaking of eyes, one can't shop with this kid and miss the Apple Store where she can drool over the latest tech toys she covets. She is lobbying for the latest i phone. ;)  
   
-[![RTW travel teen Mozart shopping at the Apple store for an iphone and ipad ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11060970c.png "RTW travel teen Mozart shopping at the Apple store for an iphone and ipad ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11060970c.png)  
+![RTW travel teen Mozart shopping at the Apple store for an iphone and ipad ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11060970c.png)  
   
 Yes, she got a haul of things she needed, ( quality things on sale), but mostly it was just a grand [mother-daughter bonding time](http://soultravelers3new.local/2012/09/mother-daughter-bonding-tips-for-tweens.html "mother daughter bonding tips") in this new phase of her life  
   
-[![teen Mozart shopping for a big haul of her dreams](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd414936970b.png "teen Mozart shopping for a big haul of her dreams")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd414936970b.png)  
+![teen Mozart shopping for a big haul of her dreams](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd414936970b.png)  
   
 I am not a shopper by nature, but since Mozart is ( and always has been), we find ways to make it a bonding time and teaching time and play time. Having been away from American shopping malls for eons and out of my teens for centuries, it's an exciting adventure to explore this new world with my daughter and through her eyes.  
   

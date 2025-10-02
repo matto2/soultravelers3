@@ -15,13 +15,13 @@ tags:
   - "travel-signs-to-make-you-chuckle"
 ---
 
-[![IMG_5709](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b7677970c.jpg "IMG_5709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b7677970c.jpg)Funny Travel Signs -Tropical Version
+![IMG_5709](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e59b7677970c.jpg)Funny Travel Signs -Tropical Version
 
 When you travel as  
 a lifestyle, you are going  
 to see lots of funny signs.
 
-<!--more--> [![funny travel sign falling coconuts](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167609aa534970b.jpg "funny travel sign falling coconuts")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167609aa534970b.jpg)  
+<!--more--> ![funny travel sign falling coconuts](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167609aa534970b.jpg)  
   
   
 When you [travel as a lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "travel as a lifestyle"), you are going to see lots of funny signs. We ran into this cute sign on our [Florida road trip](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "florida road trip") in [Key West](http://soultravelers3new.local/2012/02/key-west-vacation.html "key west vacation") at the [beautiful B&B, Seascape Tropical Inn](http://www.seascapetropicalinn.com/ "best b&B key west"). Yes, there actually were tiny coconuts that fell from this tree, but quite a lovely sound as one sat in the nearby Jacuzzi.  

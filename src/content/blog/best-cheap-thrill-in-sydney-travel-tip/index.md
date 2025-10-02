@@ -20,7 +20,7 @@ tags:
   - "travel-to-sydney"
 ---
 
-[![IMG_0073](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de2fd98970d.jpg "IMG_0073")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de2fd98970d.jpg)Best Cheap Thrill in Sydney  
+![IMG_0073](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de2fd98970d.jpg)Best Cheap Thrill in Sydney  
 \- Travel Tip  
   
 Planning a vacation or holiday  
@@ -29,7 +29,7 @@ enlightening tip, like the locals
 
 <!--more-->
 
-[![best cheap tip for Sydney travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd330dba970b.png "best cheap tip for Sydney travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd330dba970b.png)
+![best cheap tip for Sydney travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd330dba970b.png)
 
 Planning a vacation or holiday in [Sydney](http://soultravelers3new.local/2014/03/celebrating-13th-birthday-in-healthy-ways-at-four-seasons-hotel-sydney.html "sydney vacation")? Try this cheap, but exciting tip,( like the locals do) and take a ferry somewhere.  
   

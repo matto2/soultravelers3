@@ -21,14 +21,14 @@ tags:
   - "travel-and-limos"
 ---
 
-[![IMG_6350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7457f1a970d.jpg "IMG_6350")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7457f1a970d.jpg)First Limo Ride - a Teen  
+![IMG_6350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7457f1a970d.jpg)First Limo Ride - a Teen  
 Arrives in Style!  
   
 What young teen doesn't  
 dream about a limousine ride  
 and being a bit spoiled by
 
-<!--more--> [![Happy kid on first limo ride on RTW trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fd10bde970c.jpg "Happy kid on first limo ride on RTW trip")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fd10bde970c.jpg)  
+<!--more--> ![Happy kid on first limo ride on RTW trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fd10bde970c.jpg)  
   
 What young teen doesn't dream about a limousine ride and being a bit spoiled by first class luxuries? This is the kind of thing one reads about in books, or sees in movies, but don't really expect in life (certainly not a [travel lifestyle family](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html#more "world travel nomadic RTW family") that lives on $23/day per person around the world), so our just-turned-12 year old was euphoric to have this opportunity (thanks to the [Four Seasons Hotel in Beijing](http://www.fourseasons.com/beijing/ "four seasons hotel beijing") who sponsored us).  
   

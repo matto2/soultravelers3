@@ -18,13 +18,13 @@ tags:
   - "travel-and-halloween"
 ---
 
- [![IMG_2807](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079a7e0970b.jpg "IMG_2807")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079a7e0970b.jpg) Halloween Around The World
+ ![IMG_2807](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079a7e0970b.jpg) Halloween Around The World
 
 Have you ever wondered how  
 people around the world  
 celebrate Halloween? As a family
 
-<!--more--> [![halloween witches around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079a84a970b.jpg "halloween witches around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079a84a970b.jpg)  
+<!--more--> ![halloween witches around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539079a84a970b.jpg)  
   
   
 Have you ever wondered [how people around the world celebrate Halloween](http://en.wikipedia.org/wiki/Halloween_around_the_world "how people around the world celebrate halloween")? As a [family traveling the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "family traveling world") we have been lucky to [celebrate many holidays in many different countries](http://soultravelers3new.local/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "celebrating holidays abroad").  

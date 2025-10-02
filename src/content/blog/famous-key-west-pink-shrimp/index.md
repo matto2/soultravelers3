@@ -16,7 +16,7 @@ tags:
   - "yummy-food-key-west"
 ---
 
-[![IMG_5923](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617009cb7970c.jpg "IMG_5923")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617009cb7970c.jpg)Famous Key West Pink Shrimp
+![IMG_5923](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617009cb7970c.jpg)Famous Key West Pink Shrimp
 
  YUM! Did you know Key  
 West was famous for  
@@ -25,7 +25,7 @@ it's pink shrimp? I know,
   
   
 
-<!--more--> [![yummy pink shrimp in key west](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6f01f970d.jpg "yummy pink shrimp in key west")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6f01f970d.jpg)  
+<!--more--> ![yummy pink shrimp in key west](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6f01f970d.jpg)  
   
 YUM! Did you know Key West was famous for it's pink shrimp? I know, we've all heard about the famous sunset in Key West, it's a [perfect spot for a winter vacation](http://soultravelers3new.local/2012/02/key-west-vacation.html "Key west winter vacation spot"), and the southern most city in continental USA, but the shrimp was new to us and we loved it!  
   

@@ -15,13 +15,13 @@ tags:
   - "tropical-asia"
 ---
 
-[![IMG_1915_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302f2d677970d.jpg "IMG_1915_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302f2d677970d.jpg)Beautiful Tropical, Lush Green
+![IMG_1915_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302f2d677970d.jpg)Beautiful Tropical, Lush Green
 
 Love these beautiful  
 tropical greens! Are  
 you wearing your green
 
-<!--more--> [![Beautiful tropical green foliage and pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763e79956970b.jpg "Beautiful tropical green foliage and pool")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763e79956970b.jpg)  
+<!--more--> ![Beautiful tropical green foliage and pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763e79956970b.jpg)  
   
 Love these beautiful tropical greens! Are you wearing your green for St. Patrick's Day? As I lazed about in my jacuzzi [in tropical Asia](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "tropical asia penang") today, I thought that this doesn't feel a bit like St. Paddy's day. No one here seems to be celebrating, although there is an Irish bar a few blocks away and they probably have something going on.  
   

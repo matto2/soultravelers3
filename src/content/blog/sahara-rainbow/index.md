@@ -6,7 +6,7 @@ categories:
   - "morocco"
 ---
 
- [![Img_2742](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2742.png "Img_2742")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2742.png) Sahara Rainbow Camel Trek  
+ ![Img_2742](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2742.png) Sahara Rainbow Camel Trek  
 April 6, 2007
 
 As we entered the majestic golden dunes  
@@ -15,7 +15,7 @@ rainbow appeared which seemed to bless this
 
 <!--more-->
 
-[![Img_2742_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2742_2.png "Img_2742_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2742_2.png)
+![Img_2742_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2742_2.png)
 
 As we entered the majestic golden dunes of the world’s largest desert, a magnificent rainbow appeared which seemed to bless this extraordinary experience! It is a desert, so rainbows are extremely rare. I could hardly believe my eyes. It was a sunny day, the dunes alone are spectacular and God treats us with a magical rainbow entry!
 
@@ -62,26 +62,26 @@ Before we left we were all helped with putting on our nomad turbans which help f
 A line of loaded camels in the Sahara is a magical image that must be in all of us from things like  
 “Lawrence of Arabia” or the other many movies filmed here. As I waited at our Berber camp I watched some meander by, each one taking my breath away. Finally my “babies” had arrived and I was so happy to see them  and they looked the most mystical, as if some strange alchemy of the Sahara had turned them into an Arabian Knight and Princess perfectly at home on their dromedary. They looked like they were straight out of a story book. My heros! Our mysterious night in the Sahara was off to a fantastic start. (Art by Mozart).
 
-[![Img_2944](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2944.png "Img_2944")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2944.png)
+![Img_2944](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2944.png)
 
-[![Imgretouch_2732](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/imgretouch_2732.png "Imgretouch_2732")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/imgretouch_2732.png)
+![Imgretouch_2732](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/imgretouch_2732.png)
 
-[![Img_2710](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2710.png "Img_2710")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2710.png)
+![Img_2710](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2710.png)
 
-[![Img_2713](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2713.png "Img_2713")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2713.png)
+![Img_2713](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2713.png)
 
-[![Img_2698](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2698.png "Img_2698")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2698.png)
+![Img_2698](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2698.png)
 
-[![Img_2717](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2717.png "Img_2717")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2717.png)
+![Img_2717](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2717.png)
 
-[![Img_2724](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2724.png "Img_2724")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2724.png)
+![Img_2724](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2724.png)
 
-[![Img_2734](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2734.png "Img_2734")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2734.png)
+![Img_2734](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2734.png)
 
-[![Img_2763](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2763.png "Img_2763")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2763.png)
+![Img_2763](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2763.png)
 
-[![Img_2765](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2765.png "Img_2765")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2765.png)
+![Img_2765](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2765.png)
 
-[![Img_2934](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_2934.png "Img_2934")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2934.png)
+![Img_2934](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_2934.png)
 
-[![Img_4481](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/26/img_4481.png "Img_4481")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_4481.png)
+![Img_4481](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/26/img_4481.png)

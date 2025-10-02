@@ -16,14 +16,14 @@ tags:
   - "visiting-summer-palace-beijing"
 ---
 
-[![IMG_7315](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33aca546970b.jpg "IMG_7315")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33aca546970b.jpg) Summer Palace Sunset  
+![IMG_7315](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33aca546970b.jpg) Summer Palace Sunset  
 in Beijing, China  
   
 Ancient temple buildings,  
 old Chinese willow trees,  
 Asian pagoda, oriental bridges,
 
-<!--more--> [![Stunning sunset at the Summer Palace in Beijing, China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ddb2429970c.jpg "Stunning sunset at the Summer Palace in Beijing, China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ddb2429970c.jpg)  
+<!--more--> ![Stunning sunset at the Summer Palace in Beijing, China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ddb2429970c.jpg)  
   
 Ancient temple buildings, old Chinese willow trees, Asian pagoda, oriental bridges, plus colorful dragon boats on the huge, misty lake with an orange sunset reflected in the still water, makes strolling the 290-acre Summer Palace grounds a magical, relaxing and invigorating experience.  
   

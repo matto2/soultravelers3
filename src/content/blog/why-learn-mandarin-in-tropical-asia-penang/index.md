@@ -15,7 +15,7 @@ tags:
   - "why-penang-chinese-school"
 ---
 
-[![IMG_2833](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac695ae970c.jpg "IMG_2833")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac695ae970c.jpg)Why Learn Mandarin  
+![IMG_2833](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac695ae970c.jpg)Why Learn Mandarin  
 in Tropical Asia - Penang
 
 Some people have asked  
@@ -24,7 +24,7 @@ Malaysia as a place to immerse
 
 <!--more-->
 
-[![Mandarin Chinese education at a 5 star school in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac69cbd970c.jpg "Mandarin Chinese education at a 5 star school in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac69cbd970c.jpg)  
+![Mandarin Chinese education at a 5 star school in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac69cbd970c.jpg)  
   
   
 Some people have asked why we choose [tropical Penang, Malaysia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical Penang, Malaysia") as a place to [immerse our child in Mandarin in Asia](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "American kid immersed in Mandarin in Asia Chinese school") rather than China. There are many reasons and advantages in doing this.  
@@ -45,7 +45,7 @@ Some think it's strange and have criticized us, but so did they when we [sold ou
   
 I had never heard of [Billionaire Jim Rogers](http://www.thedailybeast.com/newsweek/2011/07/17/american-kids-immersed-in-chinese-asian-education.html "jim rogers and mandarin education") when I was raising my baby as a [trilingual in Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in mandarin"), Spanish and English in 2000 when she was born. He thinks we all need to [learn Mandarin](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "learn Mandarin in Asia"). Is he raising his [global kids](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "raising global kids") (who are learning to read, write and [speak fluent Mandarin](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "speak fluent Mandarin")) in China?  Nope! He is raising them in English-speaking Singapore and sending them to Chinese schools there. The five star Mandarin schools in Penang are just as good BUT living costs and school costs are MUCH less.  
   
-[![Learning Mandarin with friends in Asian Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7b48a970c.jpg "Learning Mandarin with friends in Asian Chinese school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7b48a970c.jpg)  
+![Learning Mandarin with friends in Asian Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7b48a970c.jpg)  
   
 **WHY PENANG FOR LEARNING MANDARIN?**  
   
@@ -59,7 +59,7 @@ Just like in her [school in Spain](http://soultravelers3new.local/2010/07/school
 
   
   
-[![IMG_2140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c563ad970b.jpg "IMG_2140")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c563ad970b.jpg)  
+![IMG_2140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c563ad970b.jpg)  
   
   
 **DIFFERENCES BETWEEN PLACE-BASED CONVERSATIONAL SKILLS AND SCHOOL-BASED MANDARIN LITERACY**  
@@ -72,7 +72,7 @@ Our whole purpose of being in Asia is to immerse deeply in Mandarin and [Chinese
   
 It worked wonderfully in [Spain with Spanish](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html "learning Spanish in Spain"), so she is working hard now to increase her Mandarin reading and writing. I really don't see the point in [family long term travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family long term travel") without the kids learning languages deeply ( in childhood when it is easy). You can't really know another culture without knowing the language. Plus having different "homes" around the world, gives her stability. If this is the Asian century, it's a great thing for her to know Asia and Asians well and Penang is a fabulous base for that ( as well as understanding Islamic life in deeper ways).  
   
-[![view from our luxury home in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304d25839970d.jpg "view from our luxury home in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304d25839970d.jpg)  
+![view from our luxury home in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304d25839970d.jpg)  
   
 **PICKING THE BEST LONG-STAY PLACE FOR LEARNING MANDARIN**  
   
@@ -82,7 +82,7 @@ Of course, we will [spend time in Mandarin- speaking China](http://soultravelers
   
   
   
-[![working at home on a school project with kids from her Mandarin school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c5a4a2970b.jpg "working at home on a school project with kids from her Mandarin school in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c5a4a2970b.jpg)  
+![working at home on a school project with kids from her Mandarin school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c5a4a2970b.jpg)  
   
 **PENANG CHINESE CULTURE AND MANDARIN**  
   
@@ -94,7 +94,7 @@ The malls and areas that we go to, one sees about 98% Chinese or Asian. The larg
   
 Friends who have lived in China and here, tell me there is a MUCH larger selection of books in Mandarin Chinese ( for kids and adults) here than any where they saw in China. The Chinese community in Penang, is VERY motivated in teaching their kids to be fluent in Mandarin and English ( as well as Malay). Many do also speak the Hokkien dialect ( similar to Taiwanese) or Cantonese ( like in Hong Kong), but all seem to speak or read and write in Mandarin because it is favored ( and Hokkien has no written language).  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063ea697970d.jpg)[![A Mandarin doodle in kidlet's notebook means LOVE in Chinese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063ea697970d.jpg "A Mandarin doodle in kidlet's notebook means LOVE in Chinese")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063ea697970d.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063ea697970d.jpg)![A Mandarin doodle in kidlet's notebook means LOVE in Chinese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063ea697970d.jpg)  
   
 The government says Malay is the dominant language, but the reality is different in our experience here in Georgetown as English seems dominant (and it was a  British colony until 1957). There is certainly MUCH more English here than we ever saw in Europe ( which is a bit of culture shock for us now after so many years touring Europe). Most signage is in English as well as Malay and Mandarin. This makes things like shopping and going to movies VERY easy here, so much easier than most of our [European travels](http://soultravelers3new.local/2010/06/grand-tour-europe-iv-family-travel-extended-vacation-road-trip-summer-holiday-abroad.html "European travels grand tour").  
   
@@ -104,7 +104,7 @@ Also from wikipedia:
   
 "90% of Chinese children in Malaysia enroll into Mandarin-medium primary schools and Many Chinese educated Malaysian Chinese families have taken to speaking Mandarin with their children due to the notion that ot her Chinese dialects are growing increasingly redundant in an era where Mandarin is increasing in importance. This has led to the emergence of a community of young Chinese who are fluent in Mandarin but unable to speak their native Chinese dialect, understand but do not speak it, or prefer not to speak it in public.”  
   
-[![America kid enjoying  a Chinese school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59696970b.jpg "America kid enjoying  a Chinese school in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59696970b.jpg)  
+![America kid enjoying  a Chinese school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59696970b.jpg)  
   
 **PROS AND CONS**  
   
@@ -142,7 +142,7 @@ We were very nervous on her first day at school here at 10 as we were for her [f
   
   
   
-[![Global kids trilingual  fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7efaa970c.jpg "Global kids trilingual  fun!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7efaa970c.jpg)  
+![Global kids trilingual  fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7efaa970c.jpg)  
   
 **MULTICULTURAL, MULTILINGUAL FRIENDS AND ADVANTAGES**
 
@@ -152,7 +152,7 @@ One of the advantages of school for a [traveling kid is long term friendships](h
   
 She does have friends in our building that she plays with daily after school and friends from our building last year, but because of the day to day interactions, she is closer to her school mates most of all. This is a [big advantage that traveling](big%20advantage that traveling "big advantage traveling long term kids") unschool kids do not get, [long term friends](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html "long term friends") , and perhaps is one of the reasons she prefers to school here rather than just doing Mandarin with tutors.  
   
-[![friends in Asia mixing school friends and building friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063eb3d1970d.jpg "friends in Asia mixing school friends and building friends")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063eb3d1970d.jpg)  
+![friends in Asia mixing school friends and building friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163063eb3d1970d.jpg)  
   
 **MANDARIN AT HOME AND AROUND TOWN**  
   
@@ -161,7 +161,7 @@ We don’t watch much TV, but there is a  Mandarin station  & it is just anoth
   
 There are also many Mandarin after-school programs and Chinese tutors that come to our home or at school for very little money that add to her immersion. We are bonding with other Chinese families through the school environment and our home environment here,  thus learn more about the culture first hand  
   
-[![Drawing friends at school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59b97970b.jpg "Drawing friends at school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59b97970b.jpg)  
+![Drawing friends at school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59b97970b.jpg)  
   
   
 **DEEP FLUENCY AND OTHER BENEFITS**  
@@ -170,7 +170,7 @@ She is fluent already by some definitions and has spoken Mandarin from birth, bu
   
 We think it is an advantage for her that she knows what different schools are like on 3 continents as well as homeschooling when we travel the world. She is building a network of deep friendships around the world while learning firsthand about life on our earth and hopefully adding value to the people she befriends as well.  
   
-[![Mandarin Chinese school in Penang, Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59ed0970b.jpg "Mandarin Chinese school in Penang, Malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59ed0970b.jpg)  
+![Mandarin Chinese school in Penang, Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765c59ed0970b.jpg)  
   
 **ENJOYING MALAYSIA AND WHY FEW WILL DO THIS**  
   
@@ -183,7 +183,7 @@ Still, I take time to write this so it is a resource for others as well as a rec
   
   
   
-[![boys walking the outdoor halls of our Penang Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304d26967970d.jpg "boys walking the outdoor halls of our Penang Chinese school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304d26967970d.jpg)  
+![boys walking the outdoor halls of our Penang Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304d26967970d.jpg)  
   
 **RAISING A MULTILINGUAL CHILD WHEN THE PARENTS ARE MONOLINGUAL**  
   
@@ -195,6 +195,6 @@ We have been working on [raising a multilingual child](http://soultravelers3new.
   
   
   
-[![Passionate Principal at Penang Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7f8a0970c.jpg "Passionate Principal at Penang Chinese school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7f8a0970c.jpg)  
+![Passionate Principal at Penang Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eac7f8a0970c.jpg)  
   
 Would you consider a Mandarin school abroad? Have you ever gone to a foreign school in another language or sent your kids? Is it crazy? Any questions for us?

@@ -18,7 +18,7 @@ tags:
   - "under-the-tuscan-sun"
 ---
 
- [![IMG_3118](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480578edf970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480578edf970c.jpg) Travel Book Review:  
+ ![IMG_3118](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480578edf970c.jpg) Travel Book Review:  
 Every Day in Tuscany by Mayes  
 May 3, 2010
 
@@ -28,20 +28,20 @@ and books, but now that I'm writing
 
 <!--more-->
 
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.a/6a00e5502a950788330134804556c7970c-pi)[![girl in pool reading book, summer reading, Every Day in Tuscany by Mayes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480578f49970c.jpg "girl in pool reading book, summer reading, Every Day in Tuscany by Mayes")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480578f49970c.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.a/6a00e5502a950788330134804556c7970c-pi)![girl in pool reading book, summer reading, Every Day in Tuscany by Mayes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480578f49970c.jpg)  
  
 
 You already know that we at [Soultravelers3 are passionate about travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) and [books,](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html) but now that [I'm writing a book](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html), I'm looking more deeply than ever at travel books. I thought it was amazing timing when I was recently sent a copy of _Every Day in Tuscany: Seasons of an Italian Life_  by Frances Mayes to review.
 
 Perhaps the most famous of all expats or travel writers who have escaped the rat race to discover their life's passion, Frances Mayes has started a whole cottage industry around her 1996 best-selling book _Under The Tuscan Sun: At Home in Italy._ Over the last twenty years, she has sold everything from furniture to olive oil to calendars and  photo books about her story and  this popular region. There have been others in this travelogue memoir sub-genre like Peter Mayle’s _A Year in Provence_, or the more recent Elizabeth Gilbert’s _Eat, Pray, Love_ and all three have been adapted to the silver screen.
 
-[![Every Day in Tuscany soultravelers3 Book review](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348056ef73970c.jpg "Every Day in Tuscany soultravelers3 Book review")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348056ef73970c.jpg)  
+![Every Day in Tuscany soultravelers3 Book review](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348056ef73970c.jpg)  
 
 [Our book](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html) has already been mostly compared to those three and recently someone wrote to us about movie rights about our story which has given me a whole different perspective on our journey. I haven't read any of them, but now they are all high on my list. I was delighted at the opportunity to sink into this one by  a brilliant writer about a country I lived in long ago and we [visit regularly on our open ended world tour.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/italy/index.html)
 
 Mayes was a well known published poet and professor of creative writing before she wrote her first mega hit memoir, so it is no wonder that they call her "The Bard of Tuscany " as this is her third hit book on the topic. Her prose has a very lyrical style with detailed poetic descriptions and she is a master at personalizing her life in Italy...the shopping, eating, gardening, meal preparation and people... in a way that enchants and delights.
 
-[![Tuscany wine field, Italy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480579a8b970c.jpg "Tuscany wine field, Italy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480579a8b970c.jpg)  
+![Tuscany wine field, Italy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480579a8b970c.jpg)  
 _A photo of Tuscany that we took this past  fall._
 
 Library Journal says, _“The woman who single-handedly started the travel\-memoir craze returns with more on her life in Tuscany, including her purchase and renovation of a new house in a 13th-century village…can’t miss.”_
@@ -50,7 +50,7 @@ I especially enjoyed her evocative thoughts about her home ( which reminded me o
 
 _"At Bramasole, I learned to iron with my hands. Fold and smooth, fold then smooth, fold,smooth;the blue top sheet, lifted from the rack, smells of warm light. Flounces on the pillowcases yield to my flat hand; my yellow nightgown softens."_
 
-[![stunning sunset, lion fountain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ed16d734970b.png "stunning sunset, lion fountain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ed16d734970b.png)  
+![stunning sunset, lion fountain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ed16d734970b.png)  
 
 _"We'd go back to the United States and see the dreary "Children's menu": Chicken tenders, hamburgers, pizza, grilled cheese, hot dogs, corn dogs, and of course fries. Fries fries, fries--the horrifying predominance of the French fry in our diet explains a lot. In moderation ,a crisp little pile, yes. But everything comes with fries. Insane!_
 

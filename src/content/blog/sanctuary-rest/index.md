@@ -17,7 +17,7 @@ fast this year and Santiago was the
 
 <!--more-->
 
-[![Img_1088_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1088_3.jpg "Img_1088_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1088_3.jpg)
+![Img_1088_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1088_3.jpg)
 
   
 
@@ -35,19 +35,19 @@ We are lucky and grateful to not have to pack and unpack suitcases as we roam, b
 
 Santiago was the perfect place to take some extra time and we could have easily stayed in Galicia for a month. We also lucked out with good weather, which just added to the joy here. Mozart had plenty of time to ride her bike ( we don't usually take it down on quick stops), play and catch up with piano lessons and homeschool. We ate lots of healthy meals, barbequed and even broke out a bottle of wine that we bought  while visiting a vineyard last year in Santorini. It is good to have a little vacation from your vacation!
 
-[![Img_1908](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1908.jpg "Img_1908")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1908.jpg)
+![Img_1908](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1908.jpg)
 
-[![Img_1246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1246.jpg "Img_1246")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1246.jpg)
+![Img_1246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1246.jpg)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2370.jpg)
 
-[![Img_1907](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1907.jpg "Img_1907")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1907.jpg)
+![Img_1907](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1907.jpg)
 
   
 
-[![Img_2056_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2056_2.jpg "Img_2056_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2056_2.jpg)
+![Img_2056_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2056_2.jpg)
 
 [![Img_2387](http://soultravelers3new.local/images/2008/08/30/img_2387.jpg "Img_2387")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2387.jpg)  
   
 
-[![Img_2386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2386.jpg "Img_2386")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2386.jpg)
+![Img_2386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2386.jpg)

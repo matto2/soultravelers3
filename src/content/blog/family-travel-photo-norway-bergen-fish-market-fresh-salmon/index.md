@@ -7,7 +7,7 @@ categories:
   - "norway"
 ---
 
-[![IMG_7544](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a4ccec93970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a4ccec93970b.jpg) Family Travel Photo - Norway  
+![IMG_7544](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a4ccec93970b.jpg) Family Travel Photo - Norway  
 August 26, 2009
 
 Have you ever tried smoked whale?  
@@ -16,7 +16,7 @@ trying new foods in exciting places
 
 <!--more-->
 
-[![Family Travel Photo - Norway Bergen Fish Market Fresh Salmon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5243e99970c.jpg "Family Travel Photo - Norway Bergen Fish Market Fresh Salmon")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5243e99970c.jpg)
+![Family Travel Photo - Norway Bergen Fish Market Fresh Salmon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5243e99970c.jpg)
 
 Have you ever tried smoked whale? Family travel is sometimes about trying new foods in exciting places and the [colorful fish marke](http://www.bergen-guide.com/40.htm)t in [Bergen, Norway](http://en.wikipedia.org/wiki/Bergen) did not disappoint! We splurged on some scrumptious natural smoked salmon and tasted the whale, but decided a taste was more than enough for us.
 

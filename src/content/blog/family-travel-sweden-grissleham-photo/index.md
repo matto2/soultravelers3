@@ -15,7 +15,7 @@ tags:
   - "visiting-finland-from-sweden"
 ---
 
-[![IMG_6163](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e203f54970b.jpg "IMG_6163")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e203f54970b.jpg) Family Travel Sweden: Grisslehamn Photo
+![IMG_6163](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e203f54970b.jpg) Family Travel Sweden: Grisslehamn Photo
 
 What a charming area  
 for a family vacation!  
@@ -24,7 +24,7 @@ Grisslehamn, Sweden is
 
 <!--more-->
 
-[![Family Travel Sweden: Grisslehamn Photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431f36ec9970c.jpg "Family Travel Sweden: Grisslehamn Photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431f36ec9970c.jpg)  
+![Family Travel Sweden: Grisslehamn Photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431f36ec9970c.jpg)  
   
 
 What a charming area, perfect for a family vacation! Grisslehamn, Sweden is a very popular spot in the summer time, but the summer season ends in Sweden on August 15th when people go back to work. Thus, we were very lucky to have this [lovely campsite](http://www.grisslehamnsmarina.se/ "grisslehamn sweden campsite") all to ourselves and right on the water's edge.  

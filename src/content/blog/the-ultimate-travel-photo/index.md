@@ -20,13 +20,13 @@ tags:
   - "travel-photography"
 ---
 
-[![IMG_9407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cf76f970c.jpg "IMG_9407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cf76f970c.jpg)The Ultimate Travel Photo  
+![IMG_9407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cf76f970c.jpg)The Ultimate Travel Photo  
   
 Can one photo capture 7 years  
 of world travel and digital nomad,  
 location independent  living?
 
-<!--more--> [![The ultimate travel photo- capturing travelers exploring in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cf803970c.jpg "The ultimate travel photo- capturing travelers exploring in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cf803970c.jpg)  
+<!--more--> ![The ultimate travel photo- capturing travelers exploring in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4cf803970c.jpg)  
   
   
 Can one photo capture 7 years of [world travel](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "world travel") and [digital nomad](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "how to be a digital nomad"), or [location independent living](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html "location independent living")? I am not sure, but I like this one taken in our 45th country ( on 5 continents) and some how it conveys that for me. [Our travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "our travel lifestyle") in a nutshell.  

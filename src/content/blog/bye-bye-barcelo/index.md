@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4771](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4771.png "Img_4771")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4771.png) Bye Bye Barcelona  
+ ![Img_4771](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4771.png) Bye Bye Barcelona  
 May 5, 2007
 
 I was a little disappointed when I first saw  
@@ -15,7 +15,7 @@ raves about it and it just seemed huge,
 
 <!--more-->
 
-[![Img_4771](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4771.png "Img_4771")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4771.png)
+![Img_4771](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4771.png)
 
 I was a little disappointed when I first saw the city of Barcelona as I had heard so many raves about it and it just seemed huge, crowded with tourists and non spectacular. Now that I have been here three weeks, I am won over and have found many of it’s charms worth while. Gaudi is what I think makes this city special as it would be much less so without his incredibly unique work here.He sets the tone for this enchanting, artistic, European metropolis.
 
@@ -31,26 +31,26 @@ We were glad to watch circles of people doing the regional dance of Catalunya ca
 
 I really wanted to see the Picasso Museum, Miro foundation, Aquarium, more Dali houses (we loved the museum in nearby Figureo that we saw last fall) and more of the Costa Brava. Those things and more will just have to wait until this fall or the next time we are in this area.
 
-[![Img_4759](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4759.png "Img_4759")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4759.png)
+![Img_4759](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4759.png)
 
-[![Img_5153](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5153.png "Img_5153")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5153.png)
+![Img_5153](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5153.png)
 
-[![Img_4797](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4797.png "Img_4797")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4797.png)
+![Img_4797](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4797.png)
 
-[![Img_4805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4805.png "Img_4805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4805.png)
+![Img_4805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4805.png)
 
-[![Img_4835](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4835.png "Img_4835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4835.png)
+![Img_4835](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4835.png)
 
-[![Img_4844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4844.png "Img_4844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4844.png)
+![Img_4844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4844.png)
 
-[![Img_4893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4893.png "Img_4893")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4893.png)
+![Img_4893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4893.png)
 
-[![Img_4863](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4863.png "Img_4863")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4863.png)
+![Img_4863](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4863.png)
 
-[![Img_4735](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4735.png "Img_4735")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4735.png)
+![Img_4735](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4735.png)
 
-[![Img_5160](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5160.png "Img_5160")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5160.png)
+![Img_5160](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5160.png)
 
-[![Img_4896](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_4896.png "Img_4896")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4896.png)
+![Img_4896](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_4896.png)
 
-[![Img_5185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5185.png "Img_5185")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5185.png)
+![Img_5185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5185.png)

@@ -24,7 +24,7 @@ tags:
   - "make-your-own-halloween-costume"
 ---
 
-[![IMG_9286](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b007f8b31970d.jpg "IMG_9286")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b007f8b31970d.jpg)Easy, Cute, Cheap DIY Halloween Costume  
+![IMG_9286](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b007f8b31970d.jpg)Easy, Cute, Cheap DIY Halloween Costume  
   
 Do you need a last minute idea  
 for a Halloween costume that you  

@@ -28,7 +28,7 @@ tags:
   - "youtuber"
 ---
 
-[![IMG_5017 copy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cfea1c970b.jpg "IMG_5017 copy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cfea1c970b.jpg)Mozart's 1st Vlog - Teen Beauty Guru,  
+![IMG_5017 copy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cfea1c970b.jpg)Mozart's 1st Vlog - Teen Beauty Guru,  
 Fashion & Bargaining in China in Mandarin  
   
 13 year old Mozart is a fashionista  
@@ -36,7 +36,7 @@ teen or junior "Beauty Guru" with
 a passion for fashion, music,
 
 <!--more-->  
-[![Mozart's 1st Vlog - Teen Beauty Guru, Fashion & Bargaining in China in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511fa5dfa970c.png "Mozart's 1st Vlog - Teen Beauty Guru, Fashion & Bargaining in China in Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511fa5dfa970c.png)  
+![Mozart's 1st Vlog - Teen Beauty Guru, Fashion & Bargaining in China in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511fa5dfa970c.png)  
   
 13 year old trilingual Mozart is a [fashionista](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html "fashionista world traveling kid") [teen model](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "teen model ") or junior ["Beauty Guru](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "Beauty guru teen singer Mozart pop star")" with a passion for fashion, music, makeup, travel, cooking, languages, art, DIY projects, books, science, teen lifestyle issues and more.She loves people and wants to connect and change the world, so has started to vlog weekly!  
   
@@ -47,30 +47,30 @@ a passion for fashion, music,
   
 This is her 1st vlog where she announces this new direction ( that she has been wanting to do for some time ...and you have been asking for it) plus shares the thrill of shopping in China ( huge haul) and bargaining in Mandarin.  
   
-[![China travel bargains](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511fa5e08970c.png "China travel bargains")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511fa5e08970c.png)  
+![China travel bargains](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511fa5e08970c.png)  
   
   
 Please [subscribe to our channel](http://www.youtube.com/user/soultravelers3 "soultravelers3 youtube"), so you don't miss any of them and help support her new entertaining  adventure! It's free, easy and will be greatly appreciated.  
   
   
-[![Teen travels to China and loves to shop the flea markets for major hauls](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff00a970b.png "Teen travels to China and loves to shop the flea markets for major hauls")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff00a970b.png)  
+![Teen travels to China and loves to shop the flea markets for major hauls](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff00a970b.png)  
   
 We need YOUR help in guiding us about what you want to hear and see as the feedback will help us greatly in buidling her Youtube channel to be the best it can be.  
   
-[![China travel bargains](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73e05b378970d.png "China travel bargains")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73e05b378970d.png)  
+![China travel bargains](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73e05b378970d.png)  
   
 It is especially helpful to leave comments on her videos, subscribe and pass it on to anyone who you know that might be interested.  
   
-[![Mozart finds beauty everywhere](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73e05b37d970d.png "Mozart finds beauty everywhere")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73e05b37d970d.png)  
+![Mozart finds beauty everywhere](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73e05b37d970d.png)  
   
 In our shrinking world, we think this is another opportunity to connect, inspire, rejoice and learn about one another and all that we have in common and share the beauty everywhere.  
   
-[![old shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff02f970b.png "old shanghai")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff02f970b.png)  
+![old shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff02f970b.png)  
   
   
 You are an important element to this, so please help us grow it into something you want to watch!  
   
-[![trilingual teen Mozart ready for more adventures in travel and fashion and music!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff063970b.png "trilingual teen Mozart ready for more adventures in travel and fashion and music!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff063970b.png)  
+![trilingual teen Mozart ready for more adventures in travel and fashion and music!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6cff063970b.png)  
   
 Stay tuned! Because of this first video vlog, Mozart was just  invited to NYC Fashion Week in early September and to go backstage as a junior reporter for her channel and interview some leaders in the fashion industry!  
   

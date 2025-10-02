@@ -15,7 +15,7 @@ tags:
   - "workshifting"
 ---
 
- [![Lifestyle design, 4 Hour workweek, location indepent global digital nomads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484cc4afa970c.jpg "Lifestyle design, 4 Hour workweek, location indepent global digital nomads")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484cc4afa970c.jpg) Location Independent, Lifestyle Design, Digital Nomad #FF  
+ ![Lifestyle design, 4 Hour workweek, location indepent global digital nomads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484cc4afa970c.jpg) Location Independent, Lifestyle Design, Digital Nomad #FF  
 June 25, 2010
 
 There are so many ways to  
@@ -24,7 +24,7 @@ trend of workshifting, 4-Hour Workweek,
 
 <!--more-->
 
-[![4HWW location independent digital nomad workshifting at pool in France = lifestyle design](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484cc4bd9970c.jpg "4HWW location independent digital nomad workshifting at pool in France = lifestyle design")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484cc4bd9970c.jpg) 
+![4HWW location independent digital nomad workshifting at pool in France = lifestyle design](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013484cc4bd9970c.jpg) 
 
   
 There are so many ways to describe the [new 21st century trend](http://soultravelers3new.local/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html) of [workshifting](http://www.workshifting.com/), [4-Hour Workweek](http://soultravelers3new.local/2010/03/the-4hour-workweek-review-by-world-traveling-family-rich-global-digital-lifestyle-design.html), [location independent](http://www.ehow.com/how_4618895_be-financially-location-independent.html), [global nomads](http://en.wikipedia.org/wiki/Global_nomad) living a [digital nomad lifestyle](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) of [extended travel](http://soultravelers3new.local/2008/06/how-to-do-exten.html) , ultra mobility and greater freedom. Perhaps no term describes it completely as there are so many ways to do it. Last week we started this [Twitter #FollowFriday](http://soultravelers3new.local/2010/06/travel-blogger-love-followfriday-on-twitter-social-media-best-in-travel.html#more) with [Travel Bloggers and Travel Writers](http://soultravelers3new.local/2010/06/travel-blogger-love-followfriday-on-twitter-social-media-best-in-travel.html#more).  It turned out to be a lot more fun than I expected. That is part of the joy with [Twitter and travel](http://soultravelers3new.local/2009/02/twitter-travel-20.html) as you just never know what will happen next.

@@ -5,7 +5,7 @@ categories:
   - "videos"
 ---
 
- [![Pno_rec5_ca06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/14/pno_rec5_ca06.png "Pno_rec5_ca06")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/pno_rec5_ca06.png) Piano Solo at Five  
+ ![Pno_rec5_ca06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/pno_rec5_ca06.png) Piano Solo at Five  
 April 13, 2008
 
 Mozart doing a little recital at the fun class  

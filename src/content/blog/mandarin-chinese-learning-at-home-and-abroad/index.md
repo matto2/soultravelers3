@@ -17,14 +17,14 @@ tags:
   - "trilingual"
 ---
 
-[![IMG_1320](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630134390d970d.jpg "IMG_1320")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630134390d970d.jpg)Mandarin Chinese - 
+![IMG_1320](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630134390d970d.jpg)Mandarin Chinese - 
 Learning at Home and Abroad 
 
 One of the fabulous  
 things about education  
 today, is we can do it  
 
-<!--more--> [![American kid writing in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e72b1d92970c.jpg "American kid writing in Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e72b1d92970c.jpg)  
+<!--more--> ![American kid writing in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e72b1d92970c.jpg)  
   
 One of the fabulous things about [education today,](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "education today") is we can do it almost any where, which allows us lots of freedom as [we roam the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "we roam the world"). This photo is our daughter doing her Mandarin Chinese in her pajamas in California as she does every morning since we arrived from Germany in October.  
   
@@ -52,7 +52,7 @@ Her Dean of Studies at her Mandarin school in Penang has been a huge help via Sk
   
 That said, there is no better way to learn a language than to immerse in an all Mandarin environment like at her school in [tropical Asia](http://soultravelers3new.local/2011/04/saying-goodbye-to-tropical-asia-penang.html "tropical asia"). And since [languages are much easier to learn when you are a kid](http://www.forbes.com/2005/10/19/chomsky-noam-language-learning-comm05-cx_de_1024chomsky.html "languages easier to learn as a kid"), we have decided to spend this whole school year in Asia just to increase her Mandarin and Chinese cultural immersion. ( The school goes from Jan to Nov but we got delayed due to my health issues and my mother's, so moved our scheduled Jan 3rd flight to this week ).  
   
-[![Working on Mandarin in RV in Spain with teacher in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e72ba148970c.jpg "Working on Mandarin in RV in Spain with teacher in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e72ba148970c.jpg)  
+![Working on Mandarin in RV in Spain with teacher in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e72ba148970c.jpg)  
   
 She is excited to get back to see her friends there soon and we will also tour many places in Asia this year including China as they get lots of school holidays. We find World Heritage Site [Georgetown, Penang](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "georgetown penang how to rent a place") to be one of the best places in the world to immerse in Mandarin and Chinese culture as well as being a very cheap but luxurious base.  
   

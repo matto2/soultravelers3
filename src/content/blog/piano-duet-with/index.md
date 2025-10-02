@@ -5,7 +5,7 @@ categories:
   - "videos"
 ---
 
- [![Pno_duet5_ca06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/14/pno_duet5_ca06.png "Pno_duet5_ca06")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/pno_duet5_ca06.png) Piano Duet with Daddy  
+ ![Pno_duet5_ca06](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/pno_duet5_ca06.png) Piano Duet with Daddy  
 March 8, 2007
 
 Mozart and DaVinci last spring doing  

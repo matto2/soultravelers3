@@ -15,7 +15,7 @@ Krumluv, one of the prettiest towns in the Czech Republic
 
 <!--more-->
 
-[![Img_2569](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2569.png "Img_2569")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2569.png)
+![Img_2569](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2569.png)
 
 Peeking out a famous castle window at lovely, authentic Cesky Krumluv, one of the prettiest towns in the Czech Republic (and another Unesco World Heritage Site), added fun for Mozart in our long climb to the formal gardens on top of the hill. It is very close to the Austrian border, but because we spent extra time  
 in Hallstatt, we only spent a day here since the weather was pushing us at a faster pace than our usual slower style. We are feeling the restrictions more like most tourists with a two week holiday and do not care for the limitations, but such is life.
@@ -36,26 +36,26 @@ I was in Eastern Europe in 1988 on a trip with a peace group to the former USSR 
 
   
 
-[![Img_2520_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2520_2.png "Img_2520_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2520_2.png)
+![Img_2520_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2520_2.png)
 
-[![Img_2588](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2588.png "Img_2588")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2588.png)
+![Img_2588](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2588.png)
 
-[![Img_2451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2451.png "Img_2451")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2451.png)
+![Img_2451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2451.png)
 
-[![Img_2462_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2462_2.png "Img_2462_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2462_2.png)
+![Img_2462_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2462_2.png)
 
-[![Img_2469](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2469.png "Img_2469")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2469.png)
+![Img_2469](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2469.png)
 
-[![Img_2485](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2485.png "Img_2485")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2485.png)
+![Img_2485](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2485.png)
 
-[![Img_2493](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2493.png "Img_2493")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2493.png)
+![Img_2493](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2493.png)
 
-[![Img_2524](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2524.png "Img_2524")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2524.png)
+![Img_2524](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2524.png)
 
-[![Img_2595](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2595.png "Img_2595")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2595.png)
+![Img_2595](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2595.png)
 
-[![Img_2532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2532.png "Img_2532")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2532.png)
+![Img_2532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2532.png)
 
-[![Img_2629](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2629.png "Img_2629")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2629.png)
+![Img_2629](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2629.png)
 
-[![Img_2621](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2621.png "Img_2621")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2621.png)
+![Img_2621](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2621.png)

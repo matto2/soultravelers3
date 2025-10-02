@@ -6,7 +6,7 @@ categories:
   - "czech-republic"
 ---
 
- [![Img_2932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/06/img_2932.png "Img_2932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_2932.png) Prague At Night  
+ ![Img_2932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_2932.png) Prague At Night  
 November 3, 2007
 
 Clop, clop, clopping horse hooves and  
@@ -15,7 +15,7 @@ cobbled streets of romantic Prague.
 
 <!--more-->
 
-[![Img_2932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2932.png "Img_2932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2932.png)
+![Img_2932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2932.png)
 
 Clop, clop, clopping horse hooves and carriages seem right at home on the cobbled streets of romantic Prague. It is as exciting and beautiful at night as it is in the day with everything all lit up. We saw more of Prague at night than other places, partly I suppose, because it now gets dark earlier, but also because music is a specialty here that is well priced. We became experts on the Soviet looking old  subway and trams, that have a charm of their own and felt perfectly safe walking around in the city and going home to our suburban digs in the dark.
 
@@ -39,26 +39,26 @@ I felt fine, but was completely flummoxed by this sight, my mind racing out of m
 
 I rarely drink and had not had anything to drink that night, so it seemed surreal to think that I just slept thru a bloody nose in the middle of the night. It was a little discombobulating, but soon we were all laughing about it and we went on with our day as I felt perfectly fine. You just never know what life is going to hand you and little did I know then, that there would be more to this story.
 
-[![Img_3124](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3124.png "Img_3124")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3124.png)
+![Img_3124](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3124.png)
 
-[![Img_2940](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2940.png "Img_2940")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2940.png)
+![Img_2940](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2940.png)
 
-[![Img_3125](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3125.png "Img_3125")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3125.png)
+![Img_3125](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3125.png)
 
-[![Img_3140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3140.png "Img_3140")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3140.png)
+![Img_3140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3140.png)
 
-[![Img_3794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3794.png "Img_3794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3794.png)
+![Img_3794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3794.png)
 
-[![Img_3827](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3827.png "Img_3827")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3827.png)
+![Img_3827](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3827.png)
 
-[![Img_3818](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3818.png "Img_3818")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3818.png)
+![Img_3818](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3818.png)
 
-[![Img_3842](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3842.png "Img_3842")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3842.png)
+![Img_3842](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3842.png)
 
-[![Img_3865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3865.png "Img_3865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3865.png)
+![Img_3865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3865.png)
 
-[![Img_3115](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3115.png "Img_3115")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3115.png)
+![Img_3115](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3115.png)
 
-[![Img_3483](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3483.png "Img_3483")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3483.png)
+![Img_3483](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3483.png)
 
-[![Img_2947](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2947.png "Img_2947")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2947.png)
+![Img_2947](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2947.png)

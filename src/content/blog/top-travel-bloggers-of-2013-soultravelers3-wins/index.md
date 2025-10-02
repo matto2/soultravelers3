@@ -23,7 +23,7 @@ tags:
   - "travel-bloggers-win"
 ---
 
-[![IMG_2120_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35423f78970b.jpg "IMG_2120_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35423f78970b.jpg)Top Travel Bloggers of  
+![IMG_2120_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35423f78970b.jpg)Top Travel Bloggers of  
 2013? Soultravelers3 Wins!  
   
 We Soultravelers3 were voted  
@@ -31,7 +31,7 @@ one of the Top Travel Bloggers
 of 2013. Wow! How cool is
 
 <!--more-->  
-[![jumping for joy in Paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35423e94970b.jpg "jumping for joy in Paris")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35423e94970b.jpg)  
+![jumping for joy in Paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35423e94970b.jpg)  
   
  We Soultravelers3 were voted one of the [Top Travel Bloggers of 2013](http://soultravelers3new.local/2012/11/yea-soultravelers3-nominated-for-favorite-travel-blogger.html "top travel bloggers of 2013"). Wow! How cool is that? We are super honored and appreciate all the people who nominated and voted for us!! You rock!  
   

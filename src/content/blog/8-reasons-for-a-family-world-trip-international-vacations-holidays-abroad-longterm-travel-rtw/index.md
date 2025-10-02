@@ -17,7 +17,7 @@ tags:
   - "rtw-family-travel"
 ---
 
-[![8 reasons for a family world trip why go around the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f42250ec970b.jpg "8 reasons for a family world trip why go around the world ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f42250ec970b.jpg)8 Reasons For a Family World Trip  
+![8 reasons for a family world trip why go around the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f42250ec970b.jpg)8 Reasons For a Family World Trip  
 September 14, 2010
 
 To celebrate Soultravelers3  
@@ -26,7 +26,7 @@ non-stop, open-ended world travel 
 
 <!--more-->
 
-[![8 reasons for a taking a family world trip- a hands on world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348742992b970c.jpg "8 reasons for a taking a family world trip- a hands on world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348742992b970c.jpg)
+![8 reasons for a taking a family world trip- a hands on world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348742992b970c.jpg)
 
 To celebrate Soultravelers3 entering our fifth year of non-stop, open ended world travel as a family and blogging. [Twittering](http://twitter.com/soultravelers3), [Facebooking](http://www.facebook.com/group.php?gid=23138026952#%21/pages/Soultravelers3com-Around-the-World-Family-Travel-Education-Adventure/185105005187?ref=mf) ,[YouTubing](http://www.youtube.com/user/soultravelers3)  our travel experiences  (and [book writing](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html))  as we go, I thought I'd make one of those infamous "lists" posts about **WHY** we do this and **LOVE** it so much.
 
@@ -50,7 +50,7 @@ You will find yourselves doing remarkable things in exotic places that you would
   
 You will need to work together like you have never done before & will soon find yourselves like a well oiled team as you take [planes](http://soultravelers3new.local/2006/08/the-long-flight.html), cargo ships, [overnight trans-county ferries](http://soultravelers3new.local/2007/08/greece-italy-cr.html), [trains](http://soultravelers3new.local/2007/03/long-day-into-a.html), [buses](http://soultravelers3new.local/2007/07/bus-on-ferry-to.html) on many continents and learn to handle [mass transit in umpteen world cities](http://soultravelers3new.local/2006/09/brussels-mini-e.html#more). You will realize like you have never known before, just how valuable each member of your team is and how each one, even the youngest, can sometimes lead or know the answer first. 
 
-[![family picnic in Paris at the Eiffel Tower celebrating during travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f4246feb970b.jpg "family picnic in Paris at the Eiffel Tower celebrating during travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f4246feb970b.jpg)  
+![family picnic in Paris at the Eiffel Tower celebrating during travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f4246feb970b.jpg)  
 _Celebrating our 19th Wedding Anniversary in Paris at the Eiffel Tower in August 2010_
 
   

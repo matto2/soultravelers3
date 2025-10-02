@@ -19,14 +19,14 @@ tags:
   - "quick-fix-lacto-fermented-mayonnaise"
 ---
 
-[![IMG_4425_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36af6bf8970b.jpg "IMG_4425_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36af6bf8970b.jpg)How to Make Homemade  
+![IMG_4425_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36af6bf8970b.jpg)How to Make Homemade  
 Lacto-Fermented Mayonnaise  
   
 Do you know what the secret  
 is to making super healthy,  
 delicious, easy, fermented mayonnaise?
 
-<!--more--> [![how to make lacto-fermented mayonnaise ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee852c037970d.jpg "how to make lacto-fermented mayonnaise ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee852c037970d.jpg)  
+<!--more--> ![how to make lacto-fermented mayonnaise ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee852c037970d.jpg)  
   
 Do you know what the secret is to making super healthy, delicious, easy, fermented mayonnaise? Start with the most nutritious [raw eggs](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html "raw eggs"). Of all the fermented foods I make like [kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "kefir how to make goatsmilk and coconut kefir"), kefir [goat cheese](http://soultravelers3new.local/2013/02/how-to-make-diy-goat-cheese-with-kefir.html "how to make goat cheese with kefir"), [salsa](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "how to make fermented salsa"), [chutney](http://soultravelers3new.local/2012/08/how-to-make-healthy-lacto-fermented-mango-papaya-chutney.html "chutney fermented") and more, this mayo is a HUGE hit with the family.  
   
@@ -34,7 +34,7 @@ The other big secret is just making sure all the ingredients are at room tempera
   
 Most of the recipies for homemade mayo call for olive oil, but we hated the taste of that as you can't find the mild flavored kind in [Asia](http://soultravelers3new.local/2012/08/where-to-buy-organic-food-in-penang.html "organic food in Penang and Asia") where I am. No one mentions Flax oil, but it's super healthy and works great combined with coconut oil.  
   
-[![ingredients for making lactofermented mayo- flax oil, mustard and lemon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36f6c4e5970b.jpg "ingredients for making lactofermented mayo- flax oil, mustard and lemon")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36f6c4e5970b.jpg)  
+![ingredients for making lactofermented mayo- flax oil, mustard and lemon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36f6c4e5970b.jpg)  
   
   
 **WHAT YOU NEED:**  
@@ -49,7 +49,7 @@ Most of the recipies for homemade mayo call for olive oil, but we hated the tast
 1/2  tsp mustard  
 celtic sea salt, raw unheated honey, crushed garlic, and paprika to taste  
   
-[![YUM! Delicious lacto-fermented mayo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d412619cd970c.jpg "YUM! Delicious lacto-fermented mayo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d412619cd970c.jpg)  
+![YUM! Delicious lacto-fermented mayo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d412619cd970c.jpg)  
   
   
 **LACTOFERMENTED MAYO RECIPE:**  
@@ -68,7 +68,7 @@ Put in a jar and leave out for a few hours, ( optional)  then refrigerate
   
 This recipe will be more yellow than store bought mayo because the pastured eggs tend to have VERY orange yolks and the Flax oil is also very yellow.  
   
-[![freshly made DIY lacto-fermented mayonnaise - super healthy and tasty!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36f6e2dc970b.jpg "freshly made DIY lacto-fermented mayonnaise - super healthy and tasty!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36f6e2dc970b.jpg)  
+![freshly made DIY lacto-fermented mayonnaise - super healthy and tasty!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36f6e2dc970b.jpg)  
   
   
 **QUICK FIX IF DIY MAYO IS TOO RUNNY**  

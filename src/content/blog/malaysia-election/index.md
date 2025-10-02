@@ -11,17 +11,17 @@ tags:
   - "malaysia-election"
 ---
 
-[![IMG_7050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d38192970c.jpg "IMG_7050")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d38192970c.jpg)Malaysia Election  
+![IMG_7050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d38192970c.jpg)Malaysia Election  
   
 As an outsider looking in, this  
 Sunday's election in Malaysia  
 seems to be colorful and full
 
-<!--more--> [![Malaysia elections](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d381d2970c.jpg "Malaysia elections")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d381d2970c.jpg)  
+<!--more--> ![Malaysia elections](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d381d2970c.jpg)  
   
 As an outsider looking in, this Sunday's [election](http://en.wikipedia.org/wiki/Malaysian_general_election,_2013 "Malaysia election") in [Malaysia](http://soultravelers3new.local/2012/07/typical-malaysia-local-style.html "malaysia ") seems to be [colorful](http://soultravelers3new.local/2012/08/exploring-colorful-asia.html "colorful Asia") and full of passion and conflict. I can't really say I know what is going on as there are as many different views to this election as there are in America, but it is interesting reading about it and talking to locals. Flags are every where you go...these photos don't really do justice to just how many, but gives you a taste.  
   
-[![Malaysia elections](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d3825d970c.jpg "Malaysia elections")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d3825d970c.jpg)  
+![Malaysia elections](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019101d3825d970c.jpg)  
   
 It is often fascinating to observe the politics in a new country ( and how similar the process is in many ways whether it is [USA](http://soultravelers3new.local/2011/08/reverse-culture-shock-usa-over-consumerism.html "usa consumerism"), [China](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "china beijing best"), [Spain](http://soultravelers3new.local/2011/05/best-southern-spain-holiday.html "Spain "), [Turkey](http://soultravelers3new.local/2007/07/topaki-palace-b.html "Turkey travel"), [Malaysia](http://soultravelers3new.local/malaysia/ "Malaysia travel tips") or where ever).  
   
@@ -31,7 +31,7 @@ Much of the [press](http://www.reuters.com/article/2013/05/02/us-malaysia-politi
   
 "Malaysia has the third-highest level of income inequality in Southeast Asia after [Thailand](http://www.reuters.com/places/thailand "Full coverage of Thailand") and Singapore. Data from the government's statistics department shows the mean household income gap widened between the top 20 percent of the households and the bottom 40 percent from 2009 to 2012." Reuters  
   
-[![Malaysia elections](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bdd8892970b.jpg "Malaysia elections")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bdd8892970b.jpg)  
+![Malaysia elections](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bdd8892970b.jpg)  
   
 I don't really know what is true and what is hype. The party in power did give 2.6 billion in government handouts to pooer voters and this is their 13th straight election won, which is impressive. There was a record turn out of voters and both the Malaysia stock market and currency hit record highs after the vote.  
   
@@ -39,7 +39,7 @@ We've grown very fond of the [people of Malaysia](http://soultravelers3new.local
   
   
   
-[![Malaysia elections flags penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bdd890f970b.jpg "Malaysia elections flags penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bdd890f970b.jpg)  
+![Malaysia elections flags penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bdd890f970b.jpg)  
   
 We have perfect faith that they will find a way!  
   

@@ -15,7 +15,7 @@ tags:
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f4f6b2970c.jpg)
 
- [![dealing with family death of parent while traveling, dad, grandpa and newborn](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f4f6b2970c.jpg "dealing with family death of parent while traveling, dad, grandpa and newborn")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f4f6b2970c.jpg)Good Bye Dad & Grandpa! Dealing with Death on the Road  
+ ![dealing with family death of parent while traveling, dad, grandpa and newborn](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f4f6b2970c.jpg)Good Bye Dad & Grandpa! Dealing with Death on the Road  
 June 14, 2010
 
 A family member dying at a distance  
@@ -24,7 +24,7 @@ of many people's biggest fear and 
 
 <!--more-->
 
- [![Dealing with death while traveling. Dad, Grandpa and new born Mozart, 3 generations soultravelers home in santa cruz](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0ca5866970b.jpg "Dealing with death while traveling. Dad, Grandpa and new born Mozart, 3 generations soultravelers home in santa cruz")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0ca5866970b.jpg)
+ ![Dealing with death while traveling. Dad, Grandpa and new born Mozart, 3 generations soultravelers home in santa cruz](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0ca5866970b.jpg)
 
 "It's only when we truly know and understand that we have a limited time on earth - and that we have no way of knowing when our time is up, we will then begin to live each day to the fullest, as if it was the only one we had." Elizabeth Kubler-Ross
 
@@ -34,13 +34,13 @@ We were so happy to be starting our fourth Grand Tour of Europe and were two-day
 
 "Bereavement is the deepest initiation into the mysteries of human life, an initiation more searching and profound than even happy love" Inge
 
-[![Grandpa & grandaughter Mozart in Spain celebrating his 80th birthday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0ca68a7970b.jpg "Grandpa & grandaughter Mozart in Spain celebrating his 80th birthday")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0ca68a7970b.jpg)  
+![Grandpa & grandaughter Mozart in Spain celebrating his 80th birthday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0ca68a7970b.jpg)  
 
 At La Fuenta in [this rural area, they have healing spa water to soak in](http://soultravelers3new.local/2009/11/family-travel-photo-spain-thermal-roman-baths-fortuna-spa-camping-hotel-costa-blanca.html) that are as old as Roman times, so one of our favorite places to replenish during long driving days and I especially needed it because of my recovering [injured arm](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html). I stayed a little longer to soak in that healing mineral water and do the hydrotherapy, while DaVinci and Mozart returned to get a bite to eat,  but as I returned, I knew something was terribly wrong as soon as I saw my husband's eyes.
 
 "Sit down" he said and I felt as if someone punched me in the belly. I didn't really want to hear the answer because I knew I would not like this news. In an instant, I lost the natural high from the water and my heart ached and I suddenly found it a little hard to breathe. I didn't see my nine year old daughter,  so my first thoughts were for her safety and then my mothers or my step father's as he has been dealing with stage four cancer since about a year after we left. I was stunned when he told me that it was his father who had died as he has been in good health, so it was very unexpected. We had recently talked to him on his birthday and he seemed happy and quite content.
 
-[![Davinci and his dad in Spain celebrating his 80th birthday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f52c97970c.jpg "Davinci and his dad in Spain celebrating his 80th birthday")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f52c97970c.jpg) 
+![Davinci and his dad in Spain celebrating his 80th birthday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f52c97970c.jpg) 
 
   
 
@@ -50,7 +50,7 @@ Mozart,  our nine year old, was the one who checked the email first, and was st
 
 There really is [no good time to travel long term](http://chrisguillebeau.com/3x5/why-you-should-quit-your-job-and-travel-around-the-world/) because there are [always reasons not to travel](http://www.ridiculouslyextraordinary.com/how-to-make-things-happen/). At our age, [one of the reasons not to go was older parents](http://soultravelers3new.local/2006/08/home-and-hous-1.html). His dad was 83 and very healthy. As much as we love our parents, we felt our greater duty was to our young child and the unparalleled opportunities that come with world travel. Luckily, we both have siblings without young children that live nearby and if there was a long- term, serious problem, we've always known that we might have to return home to help handle that for a period of time. Life is always filled with choices and we do not regret ours and we're grateful that the internet allows us to remain closer today than ever before while traveling.In many ways we stay closer by traveling the world via webcam calls  than when we lived closer and appreciate each other more.
 
-[![Heavenly jess_mom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0cae1e0970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0cae1e0970b.jpg) 
+![Heavenly jess_mom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0cae1e0970b.jpg) 
 
 "Death is simply a shedding of the physical body like the butterfly shedding its cocoon. it is a transition to a higher state of consciousness where you continue to perceive, to understand, to laugh, and to be able to grow" - Elizabeth Kubler-Ross
 
@@ -60,16 +60,16 @@ I think my mother understands because she too needed to move away from her aging
 
 Even DaVinci's sister who lives near his dad, was many miles away in southern California when she got the news. There is no way that you can be with anyone 24 hours a day.There is no way that you can keep bad things from happening to those that you love. DaVinci's first thought was to go home, but there were many things to consider and hard to make choices when in a state of shock. We were planning to go home in October already for a visit, but wondered if we should re-work that whole plan quickly and go home now instead. We have important things that must be accomplished while there, like getting a new passport for Mozart and it made our minds spin to try to re-work out a plan that would serve our tight budget and needs. To add to the challenge we're taking a ton of vitamins, homeopathic and herbal pills now and I'm on an extremely rigid and limited diet to cure and clear up some health concerns, so not compatible with fast travel done with no time to plan. All this with very limited and slow internet access. 
 
-  [![IMG_9555](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f57f09970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f57f09970c.jpg)  
+  ![IMG_9555](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f57f09970c.jpg)  
   
 
 His father wanted to be buried, not cremated, so there was a time element that needed to happen fast and we were two-days-long-drive by RV from a decent airport. We are insured everywhere in the world, but the US, so would have to figure that out as one can not travel there without health insurance. We have no dress clothes because we never use things like suits, jackets or dresses and heels. I let DaVinci make the decision because it was his and tried to support him and his sister in California in every way that we could. This was the second parent that he lost suddenly and at a distance, ( as well as my brother who died young suddenly and unexpected while traveling) so we had been down this road before, but it doesn't make it any easier. Fresh grief often brings up all of ones grief from the past for a chance for deeper healing.  Had it happened while we were in our village, it  would have made it easier, but we had just transitioned to European motorhome life which is a very different lifestyle, especially this year [due to my recovery](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html). 
 
-[![IMG_9689](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f5812f970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f5812f970c.jpg)  
+![IMG_9689](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f5812f970c.jpg)  
 
 We thought about getting us to Barcelona and DaVinci going on his own which would be easier than the three of us. His big concern was leaving us alone as I am still recovering with [my arm](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html) that leaves me quite vulnerable and handicapped. Just getting in and out of the RV or in and out of the high loft bed, are risky feats for me now. DaVinci does all the driving and most of the shopping and lots of cooking these days because of my limitations ( both my [injured arm that still has numbness, weakness](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html) and my bad knee all on the right side that impacts everything and makes me slow as a snail with a fast kid) and he is much more fluent in Spanish. He was afraid that if something severe happened to either one of us, that we would indeed be in big trouble without our third prong. Also as other relatives mentioned, we could also see that he really would not be of much help by the time he got home to central California from Spain, possibly not even making it to the funeral, then he would have to leave immediately,  also not being able to help with the secondary chore of dealing with his father's belongings. 
 
-[![3 generations visiting the Alhambra together in Granada Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0cadab3970b.jpg "3 generations visiting the Alhambra together in Granada Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0cadab3970b.jpg) 
+![3 generations visiting the Alhambra together in Granada Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f0cadab3970b.jpg) 
 
 "To live in hearts we leave behind is not to die" - Campbell
 
@@ -77,7 +77,7 @@ The hardest part was making the decision, he certainly wanted to honor his fathe
 
 Each family and every death in a family is different. In my family, not attending a funeral of a close relative is not uncommon, despite deep loving. When my brother died suddenly at 40, we were all devastated, but thought nothing about my dad, sister, and brother not coming to the funeral from out of state, nor other relatives who lived in California. We all honor this transition in different ways and we respect that. I really never understood the importance of funerals as a way for some to heal before my brother's death as I mostly avoided them before that. Funeral attendance is very important in DaVinci's family, but sometimes circumstances and distance make for exceptions.
 
-[![IMG_3684](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f5982b970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f5982b970c.jpg)  
+![IMG_3684](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013483f5982b970c.jpg)  
 
 We mourned and cried together here in Spain and sent our prayers to a beloved father and DaVinci's family back in California. We each wrote a eulogy/ good bye letter and read them aloud to each other and sent them to his sister to read at the funeral. We looked at pictures of our fun times together and sent them to be used in a collage at the funeral. Dad was a renaissance man with many talents. He went off to war at just 16 and saw horrors in the Pacific that he didn't talk about much. It always seemed odd to me that this very gentle man had been a champion Navy boxer. He was a great dancer and could make anything out of nothing. One of my favorite pictures of him, he is very young and proudly holding his only-a-few-months old baby son standing him up in one hand, balancing him somehow. Our happy memories comfort us now.
 

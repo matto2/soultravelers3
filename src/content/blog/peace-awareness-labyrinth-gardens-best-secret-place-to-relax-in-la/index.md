@@ -34,7 +34,7 @@ tags:
   - "zen-peace-in-los-angeles"
 ---
 
-[![Unnamed-2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8234bf0970b.jpg "Unnamed-2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8234bf0970b.jpg)Peace Awareness Labyrinth & Gardens - 
+![Unnamed-2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8234bf0970b.jpg)Peace Awareness Labyrinth & Gardens - 
 Best Secret Place to Relax in LA!   
   
 Looking for the most peaceful spot  
@@ -43,21 +43,21 @@ meditation. calm, gardens, tranquility,
 
 <!--more-->  
   
-[![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8234bfb970b.png "Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8234bfb970b.png)  
+![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8234bfb970b.png)  
   
 Looking for the most peaceful spot in Los Angeles? Relaxation, peace, beauty, meditation. calm, gardens, tranquility, quiet stillness, contemplation, serenity, sacred - all words that describe the gorgeous Guasti Villa/Busby Berkeley Mansion which is now the best spiritual oasis in Los Angeles and called the [Peace Awareness Labyrinth and Gardens](http://www.peacelabyrinth.org/ "Peace Awareness Labyrinth and Gardens").  
   
-[![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5a98c970c.png "Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5a98c970c.png)  
+![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5a98c970c.png)  
   
 It's amazing that this awe-inspiring, secret sanctuary is free and open to the public, making it a perfect retreat from the frenzied pace of LA. [The Peace Awareness Labyrinth and Gardens](https://www.youtube.com/watch?v=KeBwSHmbsYU "Peace Awareness Labyrinth and Gardens in LA") is a place of peace, just minutes from hectic Hollywood and downtown Los Angeles.   
   
   
-[![Peace Awareness Labyrinth & Gardens - Relax Spa day  in Los Angeles!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5a9b0970c.png "Peace Awareness Labyrinth & Gardens - Relax Spa day  in Los Angeles!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5a9b0970c.png)  
+![Peace Awareness Labyrinth & Gardens - Relax Spa day  in Los Angeles!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5a9b0970c.png)  
   
 The outdoor stone labyrinth is the exact design as the one at the Chartres Cathedral in France ( which was built around 1200 AD and the largest ever built in France). Walking a labyrinth is an ancient practice ( dating back to Greece 2500 - 2000 BC where the labyrinth in [Knossos](http://soultravelers3new.local/2007/07/the-palace-of-k.html "visiting knossos palace") we visited in Crete is part of Greek mythology ) and found in many cultures from Hindu to Hopi.   
   
   
-[![Peace Awareness Labyrinth & Gardens - beautiful Los Angeles mansion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08cfcfb9970d.png "Peace Awareness Labyrinth & Gardens - beautiful Los Angeles mansion")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08cfcfb9970d.png)  
+![Peace Awareness Labyrinth & Gardens - beautiful Los Angeles mansion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08cfcfb9970d.png)  
   
 Walking a labyrinth is a method for spiritual centering, contemplation or prayer that some call a "walking meditation" and no matter what the religion, it clears the mind, gives insight and brings calm. This video shows more about the experience:   
   
@@ -69,19 +69,19 @@ Walking a labyrinth is a method for spiritual centering, contemplation or prayer
 We visited in late January and we were all very touched by the beauty and peace of this environment. Things were just beginning to bloom for spring and some trees were bare but it was sunny and felt lush and magical, which made me excited to look forward to seeing it again in different seasons even though they are just subtle seasonal changes in LA.   
   
   
-[![Peace Awareness Labyrinth & Gardens - Gorgeous secret mansion with free spa days!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d009be970d.png "Peace Awareness Labyrinth & Gardens - Gorgeous secret mansion with free spa days!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d009be970d.png)  
+![Peace Awareness Labyrinth & Gardens - Gorgeous secret mansion with free spa days!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d009be970d.png)  
   
 There are many layers to the garden with surprise delights around each corner and down each step. I loved the architectural details of the turn-of-the-century Italian Renaissance mansion and palm trees against bright blue clear sky...  
   
-[![Peace Awareness Labyrinth & Gardens - Best Secret zen garden & pool in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b3265970b.png "Peace Awareness Labyrinth & Gardens - Best Secret zen garden & pool in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b3265970b.png)  
+![Peace Awareness Labyrinth & Gardens - Best Secret zen garden & pool in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b3265970b.png)  
   
 ...the exquisite zen koi pond in shade with it's mesmerizing, meditative feel that brought back memories of our time in Asia,   
   
-[![Peace Awareness Labyrinth & Gardens - Best peaceful free gardens in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5aa2e970c.png "Peace Awareness Labyrinth & Gardens - Best peaceful free gardens in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5aa2e970c.png)  
+![Peace Awareness Labyrinth & Gardens - Best peaceful free gardens in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5aa2e970c.png)  
   
 ... and the many formal fountains and water features that add visual and auditory pleasure.   
   
-[![Peace Awareness Labyrinth & Gardens - gorgeous mansion in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d009db970d.png "Peace Awareness Labyrinth & Gardens - gorgeous mansion in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d009db970d.png)  
+![Peace Awareness Labyrinth & Gardens - gorgeous mansion in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d009db970d.png)  
   
 The authentic Guasti Villa/Busby Berkeley Mansion is beautiful inside as well as outside. We felt really honored to be able to film [Mozart's Offical Music Video for her song "Dear Heart"](http://soultravelers3new.local/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html#more "Singer Mozart's song \"Dear Heart\" ") in such a magnificent location. You can see more of the interior, labyrinth and gardens in her video:   
   
@@ -93,23 +93,23 @@ The authentic Guasti Villa/Busby Berkeley Mansion is beautiful inside as well a
 All the shots where she is in the black dress were filmed at this luxurious, historical and healing location where the energy is so sweet and the people so helpful.   
   
   
-[![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6b24970b.png "Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6b24970b.png)  
+![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6b24970b.png)  
   
 Sometimes we felt as if we were filming in Europe, like when near this gigantic, c lassic Mediterranean arch bordered with bougainvilleas and  cypress trees....  
   
-[![Peace Awareness Labyrinth & Gardens - Best Secret Zen Garden to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6b58970b.png "Peace Awareness Labyrinth & Gardens - Best Secret Zen Garden to Relax in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6b58970b.png)  
+![Peace Awareness Labyrinth & Gardens - Best Secret Zen Garden to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6b58970b.png)  
   
 ...sometimes in the  Asian garden areas we felt as if we were by ourselves deep in the woods with a convenient chair to meditate and take all of nature in next to the sounds of splashing water.   
   
-[![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d00a71970d.png "Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d00a71970d.png)  
+![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d00a71970d.png)  
   
 From this photo view of the pools, fountains, garden and labyrinth taken from the sacred solarium ...  
   
-[![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! Angel artwork on ceiling in the Guasti Villa/Busby Berkeley Mansion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6bc2970b.png "Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! Angel artwork on ceiling in the Guasti Villa/Busby Berkeley Mansion")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6bc2970b.png)  
+![Peace Awareness Labyrinth & Gardens - Best Secret Place to Relax in LA! Angel artwork on ceiling in the Guasti Villa/Busby Berkeley Mansion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c82b6bc2970b.png)  
   
 ...to the angels dancing on the ceiling inside...  
   
-[![Mozart enjoying exploring the Peace Awareness Labyrinth and Gardens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d00b2d970d.png "Mozart enjoying exploring the Peace Awareness Labyrinth and Gardens")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d00b2d970d.png)  
+![Mozart enjoying exploring the Peace Awareness Labyrinth and Gardens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d00b2d970d.png)  
   
 ...this is a secret special place that you just don't want to miss! It's free and they have volunteer docents to show you around the mansion and gardens if you'd like to know more. Put it on your list!   
   

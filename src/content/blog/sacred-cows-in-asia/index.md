@@ -19,7 +19,7 @@ tags:
   - "third-world-mysteries"
 ---
 
-[![IMG_4860_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443ad7a7970d.jpg "IMG_4860_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443ad7a7970d.jpg)Sacred Cows in Asia  
+![IMG_4860_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443ad7a7970d.jpg)Sacred Cows in Asia  
   
 How many cities with the  
 population of 800,000 people  
@@ -27,7 +27,7 @@ do you know that have cows
 
 <!--more-->
 
-[![mysterious sacred cows in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617544410970c.jpg "mysterious sacred cows in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617544410970c.jpg)
+![mysterious sacred cows in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617544410970c.jpg)
 
 How many cities with the population of 800,000 people do you know that have cows wondering about on little patches of land or empty lots in a booming urban area? Some how, only in [weird Asia](http://soultravelers3new.local/2012/08/weird-asia.html "weird strange Asia") do you find unlikely contrasts like this pastoral scene smack in the middle of massive urban glut. So [typical Asia](http://soultravelers3new.local/2012/05/living-in-asia.html "typical Asia").  
   

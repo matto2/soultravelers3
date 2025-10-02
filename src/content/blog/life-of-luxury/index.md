@@ -19,7 +19,7 @@ tags:
   - "teen-luxury-and-glamour"
 ---
 
-[![IMG_0860](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5108d1678970c.jpg "IMG_0860")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5108d1678970c.jpg)Life of Luxury  
+![IMG_0860](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5108d1678970c.jpg)Life of Luxury  
   
 Who doesn't love classic  
 Hollywood glamour, luxury and  
@@ -28,7 +28,7 @@ being a fashionista in the winter sun?
 <!--more-->  
   
   
-[![Beautiful Mozart - fashionista luxuriating in the sun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5108d4603970c.png "Beautiful Mozart - fashionista luxuriating in the sun")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5108d4603970c.png)  
+![Beautiful Mozart - fashionista luxuriating in the sun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5108d4603970c.png)  
   
 Who doesn't love classic Hollywood glamour, luxury and being a [globetrotting fashionista](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html "globetrotting fashionista") in the [winter sun](http://soultravelers3new.local/2012/10/endless-summer-joy-of-tropical-winter-travel.html "winter sun travel")? Being a [trilingual global kid](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "trilingual global teen"), Mozart's life might look very pampered and exotic, but she works hard [teaching](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "Mozart - teen teaching languages around the world"), [homeschooling around the world](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "homeschooling around the world - travel education resources"), [fundraising](http://soultravelers3new.local/2013/12/happy-holidays-double-your-impact-.html "trilingual Mozart fundraising for pencils of Promise"), [singing, songwriting](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html "beautiful young talented teen singer songwriter"), playing [violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "Mozart - kid playing violin around the world") and [piano](http://www.youtube.com/watch?v=0Ar90wOnWnM "Mozart playing piano around the world"), writing as well as her share of cleaning, cooking and trip planning.  
   

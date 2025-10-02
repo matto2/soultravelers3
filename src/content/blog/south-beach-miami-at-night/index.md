@@ -14,13 +14,13 @@ tags:
 ---
 
   
-[![IMG_6437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525b522970b.jpg "IMG_6437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525b522970b.jpg)South Beach, Miami at Night  
+![IMG_6437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525b522970b.jpg)South Beach, Miami at Night  
   
 As the sun sets on the  
 beautiful Art Deco historic  
 district, the famous Ocean
 
-<!--more--> [![South Beach at night](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525b55f970b.jpg "South Beach at night")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525b55f970b.jpg)
+<!--more--> ![South Beach at night](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525b55f970b.jpg)
 
 As the sun sets on the beautiful Art Deco historic district, the famous Ocean Drive heats up with the luxurious Latin beat of Miami Beach's famous South Beach stroll with cool tropical breezes, glamorously dressed people, exotic cars and neon lights.  
   

@@ -34,7 +34,7 @@ tags:
   - "world-music"
 ---
 
-[![Soultravelers3 in Asia for Chinese New Year temple ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df866a200d.jpg "Soultravelers3 in Asia for Chinese New Year temple ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df866a200d.jpg)Chinese New Year 2020!  
+![Soultravelers3 in Asia for Chinese New Year temple ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df866a200d.jpg)Chinese New Year 2020!  
 Kpop & Mandarin pop
 
 Once you experience Lunar  
@@ -42,11 +42,11 @@ New Year or Chinese New
 Year in Asia, you will always
 
 <!--more-->  
-[![Soultravelers3 in Asia for Chinese New Year temple ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8671200d.jpg "Soultravelers3 in Asia for Chinese New Year temple ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8671200d.jpg)  
+![Soultravelers3 in Asia for Chinese New Year temple ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8671200d.jpg)  
   
 Once you experience [Lunar New Year](http://soultravelers3new.local/2019/02/exploring-china-town-los-angeles-chinese-new-year-.html "Lunar New Year celebrations & travel") or [Chinese New Year in Asia,](http://soultravelers3new.local/2013/02/chinese-new-year-in-asia.html "Chinese New Year in Asia ") you will always remember it and what a big and special holiday it is in Asia. One of the funny things about [family travel](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "round the world family travel ") is where it takes you long after your trip or visit to a country.   
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a50f9d0e200b.jpg)[![Heavenly Reyna in Shanghai  China with Soultravelers3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8c90200d.jpg "Heavenly Reyna in Shanghai  China with Soultravelers3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8c90200d-300x215-1.jpg)[  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a50f9d0e200b.jpg)![Heavenly Reyna in Shanghai  China with Soultravelers3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8c90200d-300x215-1.jpg)[  
   
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a50f9d0e200b.jpg)Case in point, is our daughter [Heavenly](https://www.linkedin.com/in/heavenlyreyna/ "Heavenly Reyna - singer, songwriter, actress")   who is now a [teen singer, songwriter](https://open.spotify.com/artist/0ILz0xaqEGwJhjvZsgr48G "Heavenly teen singer and songwriter") and SAG actress. Since she is fluent and literate in Mandarin and Spanish and knows the world cultures well by growing up global, currently she is writing and singing songs, not only in English, but also Latin songs in Spanish and kpop and Mandarin Pop songs for a global market. Now she has a blog on her [Heavenly Reyna](https://www.heavenlyreyna.com "Heavenly Reyna ") website, so I will share her latest post here and let her explain:  
   
@@ -55,7 +55,7 @@ Once you experience [Lunar New Year](http://soultravelers3new.local/2019/02/expl
 
 # Happy Chinese New Year! Trilingual Tales!
 
-[![](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4b66476200c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4b66476200c.jpg)
+![](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4b66476200c.jpg)
 
 Since I'm fluent in Mandarin and lived in Asia for three years and went to local Chinese schools in Beijing & Penang, I really love Chinese New Year or Lunar New Year which is a MAJOR holiday in Asia. It brings back a lot of happy memories.
 

@@ -18,13 +18,13 @@ tags:
   - "using-karaoke-as-a-learning-tool"
 ---
 
-[![IMG_3963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bcd04970d.jpg "IMG_3963")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bcd04970d.jpg)Singing Karaoke in Asia
+![IMG_3963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bcd04970d.jpg)Singing Karaoke in Asia
 
 Have you heard that Asia is  
 obsessed with Karaoke  
 singing? It is very popular
 
-<!--more--> [![Having a ball singing Karaoke in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bce5b970d.jpg "Having a ball singing Karaoke in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bce5b970d.jpg)  
+<!--more--> ![Having a ball singing Karaoke in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bce5b970d.jpg)  
   
 Have you heard that Asia is obsessed with Karaoke singing? It is very popular entertainment all over Asia and my daughter's teen and tween friends like to get together to sing. 11 year old Mozart has a passion for singing, so this is right up her alley.  
   
@@ -33,6 +33,6 @@ Who knew this would be a great addition to her [Mandarin school in Asia](http://
 Sometimes just she and I ( or one friend) go to a place at the mall nearby which has sound proof rooms. She loves songs like "I will always love you" or anything by Selena Gomez, Adele or Lady Gaga,( she even knows a few Korean pop songs), but our agreement is that she will sing mostly Mandarin Pop songs.  
   
   
-[![My blond cutie singing Karaoke in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bfd49970d.jpg "My blond cutie singing Karaoke in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bfd49970d.jpg)  
+![My blond cutie singing Karaoke in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177431bfd49970d.jpg)  
   
 Have you ever done Karaoke in Asia? Have you ever used it or songs as a learning tool?

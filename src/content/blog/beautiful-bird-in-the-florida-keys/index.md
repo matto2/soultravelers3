@@ -14,13 +14,13 @@ tags:
   - "nature-and-travel"
 ---
 
-[![IMG_6344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525af47970b.jpg "IMG_6344")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525af47970b.jpg)Beautiful Bird in the Florida Keys  
+![IMG_6344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676525af47970b.jpg)Beautiful Bird in the Florida Keys  
   
 Wow, I loved this beautiful bird  
 that was just sitting at the dock  
 as I walked by in Key Largo,
 
-<!--more--> [![beatiful bird in Florida Keys](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630431a09f970d.jpg "beatiful bird in Florida Keys")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630431a09f970d.jpg)  
+<!--more--> ![beatiful bird in Florida Keys](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630431a09f970d.jpg)  
   
   
 Wow, I loved this beautiful bird that was just sitting at the dock as I walked by in Key Largo, Florida when we stopped there to swim with dolphins. [Bird watching is a popular activity in the Florida Keys](http://www.floridakeysbest.com/audubon/birding_florida_keys.htm "bird watching florida keys") as it is one of the top destinations in the world for bird fans and we can see why.  

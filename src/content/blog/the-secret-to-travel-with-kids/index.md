@@ -32,7 +32,7 @@ tags:
   - "why-travel-with-kids"
 ---
 
-[![IMG_8295](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c8e02e970c.jpg "IMG_8295")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c8e02e970c.jpg)The Secret to Travel with Kids!  
+![IMG_8295](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c8e02e970c.jpg)The Secret to Travel with Kids!  
   
 We've been traveling the world with  
 Mozart for ages, so people always ask  
@@ -40,7 +40,7 @@ what is the secret to travel with kids
 
 <!--more-->  
   
-[![The Secret to Travel with Kids!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c74052df970b.png "The Secret to Travel with Kids!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c74052df970b.png)  
+![The Secret to Travel with Kids!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c74052df970b.png)  
   
   
 We've been [traveling the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family traveling around the world -soultravelers3") with [Mozar](http://soultravelers3new.local/2015/01/buy-mozarts-song-youre-not-alone-on-itunes-googleplay-or-amazon-.html "MOZART'S SONG \"YOU'RE NOT ALONE\"")t for ages, so people always ask what is the [secret to travel with kids](http://soultravelers3new.local/2010/01/our-3-best-kept-family-travel-secrets-adventure-4-years-on-the-road-meme-family-travel-around-the-wo.html "SECRETS TO FAMILY TRAVEL WITH KIDS"). I've [traveled the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world travel") as a single, a couple, in groups, but I think the [best travel](http://soultravelers3new.local/2010/02/15-best-tips-for-family-friendly-travel-airplanes-airports-vacation-roadtrips-long-term-family-trave.html "best tips for family travel") is [family travel](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "family travel around the world") as seeing the world through your child's eyes is magical.  
@@ -52,7 +52,7 @@ We've been [traveling the world](http://soultravelers3new.local/2012/12/around-t
   
 There are many [secrets to traveling](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html "secrets for permanent vacation travel ") with kids that make it easier and more rewarding for all.The basic keys/tips are; [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel") so you don't succumb to [travel burn out](http://soultravelers3new.local/2011/08/how-to-prevent-travel-burnout.html "how to prevent travel burn out") or come home more exhausted, mostly travel in great weather, [pack light](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html "packing tips"), and do [educational travel](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html "benefits of educational travel") before, during and after a trip.  
   
-[![The Secret to Travel with Kids!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c9e04a970c.png "The Secret to Travel with Kids!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c9e04a970c.png)  
+![The Secret to Travel with Kids!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c9e04a970c.png)  
   
   
 **"DOING ORDINARY THINGS IN EXTRAORDINARY PLACES**" **~ JEANNE DEE**  
@@ -67,27 +67,27 @@ My best quote about traveling with kids is that "family travel is all about doin
 Eating breakfast of croissants and mango jam in [Bora Bora](http://soultravelers3new.local/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "Bora Bora dream vacation for cheap") while couchsurfing, shopping for souvenirs in [Petra Jordan](http://soultravelers3new.local/2011/06/family-vacation-petra-wow-.html "Petra Jordan travel"), eating [Peking duck](http://soultravelers3new.local/2012/11/peking-duck-in-beijing.html "Peking duck in Beijing") with chopsticks [in Beijing](http://soultravelers3new.local/2012/11/yum-loving-the-food-in-beijing.html "food in beijing"), picking [wild strawberries](http://soultravelers3new.local/2012/09/bhutans-bountiful-nature.html "Bhutan vacation") in [Bhutan](http://soultravelers3new.local/2013/05/bhutan-travel.html "Bhutan travel"), buying ice cream from an ice cream truck in [rural Sweden](http://soultravelers3new.local/2009/09/family-travel-photo-sweden-pets-cats-children-travel-photography.html "rural sweden travel stay")...these are the ordinary/extraordinary moments of family travel that make a [global citizen](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html "global citizen mozart - travel kid expert speech") who understands our world better based on first-hand experiences.  
   
   
-[![travel to Sweden and Scandinavia means red houses](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7405312970b.png "travel to Sweden and Scandinavia means red houses")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7405312970b.png)  
+![travel to Sweden and Scandinavia means red houses](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7405312970b.png)  
   
 A perfect example is the idyllic August and September we spent in [Sweden](http://soultravelers3new.local/2009/02/family-travel-photo-absolut-ice-bar-in-stockholm-sweden.html "family travel photo sweden ice bar in Stockholm"). Much of that time was spent in a lovely cottage on a family farm with a dear friend that I met on the internet long before our children were born.  
   
-[![travel with kids to Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e40947970d.png "travel with kids to Sweden")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e40947970d.png)  
+![travel with kids to Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e40947970d.png)  
   
 We explored the local sights in nearby Linkoping and even miraculously stayed the night in a Safari tent at the zoo where my friend was working! Much of the fun was just sharing the ordinary life of the family, grandparents, cooking together, learning about mushroom foraging, [reindeer meat](http://soultravelers3new.local/2009/05/family-travel-photo-sweden-reindeer-meat-in-kota-traditional-sami-lapland.html "eating reindeer meat while traveling sweden"), crayfish and so much more about Swedish culture and family life.  
   
-[![Mozart buying ice cream from an ice cream truck in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c740532b970b.png "Mozart buying ice cream from an ice cream truck in Sweden")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c740532b970b.png)  
+![Mozart buying ice cream from an ice cream truck in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c740532b970b.png)  
   
 Besides fun things like feeding the chickens & playing with the boys, one happy memory for Mozart was waiting for the ice cream truck and buying one.  
   
-[![Ice cream truck in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e4096d970d.png)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e4096d970d.png)  
+![Ice cream truck in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e4096d970d.png)  
   
 A very ordinary moment in many children's every day life, but when you add the fact that it was in a foreign country, in a foreign language and treats she had never seen before, suddenly it becomes magical.  
   
-[![ordinary extraordinary beauty in family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c9e0a1970c.png "ordinary extraordinary beauty in family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c9e0a1970c.png)  
+![ordinary extraordinary beauty in family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c9e0a1970c.png)  
   
 Ordinary becomes extraordinary because of the location!  
   
-[![Beautiful green scene](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c740537c970b.png "Beautiful green scene")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c740537c970b.png)  
+![Beautiful green scene](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c740537c970b.png)  
   
 Remembering that truck and it's distinctive "calling" song will be in Mozart's memory banks forever, just like her friends there and the opportunity to hear the unique Swedish Happy Birthday song sung to her by famous characters at the Pippi Longstocking museum in Stockholm where she celebrated her 8th!  
   

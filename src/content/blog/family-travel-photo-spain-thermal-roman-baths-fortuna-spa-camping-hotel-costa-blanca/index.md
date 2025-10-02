@@ -17,7 +17,7 @@ tags:
   - "thermal-baths"
 ---
 
- [![IMG_5897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875b1a8d0970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875b1a8d0970c.jpg) Family Travel Photo - Spain  
+ ![IMG_5897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875b1a8d0970c.jpg) Family Travel Photo - Spain  
 November 18, 2009
 
 Do you love thermal healing water to  
@@ -26,7 +26,7 @@ been "into" them since long before
 
 <!--more-->
 
-[![thermal hot springs near costa blanca spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6af626a970b.jpg "thermal hot springs near costa blanca spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6af626a970b.jpg) 
+![thermal hot springs near costa blanca spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6af626a970b.jpg) 
 
 Do you love thermal healing water to soak in? Our world traveling family has been into them since long before our child was born, taking regular trips to our beloved [Esalen](http://www.esalen.org/) in [Big Sur](http://www.youtube.com/watch?v=ZNrDSxJ6h7I&feature=related) as well as [Harper Hot Springs](http://www.harbin.org/) north of San Francisco. Mozart started swimming in our Jacuzzi at four days old, so she took to it all like the proverbial duck to water. When ever we can, we [enjoy finding](http://soultravelers3new.local/2007/04/lalla-mira-hamm.html) good [soaks](http://soultravelers3new.local/2007/08/pamukkale-and-h.html#more) on our [world travels](http://twitpic.com/25xg8)!
 

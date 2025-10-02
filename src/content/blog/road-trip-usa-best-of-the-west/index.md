@@ -17,7 +17,7 @@ tags:
   - "ultimate-road-trip"
 ---
 
-[![IMG_0610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fbc5cb33970b.jpg "IMG_0610")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fbc5cb33970b.jpg)Road Trip USA - Best of the West  
+![IMG_0610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fbc5cb33970b.jpg)Road Trip USA - Best of the West  
   
 We are off and running in this  
 new year and have been going  
@@ -25,7 +25,7 @@ at a pretty fast travel pace since
 
 <!--more-->  
   
-[![Off and running on the beach, starting our year right with a road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b045b0e6e970d.png "Off and running on the beach, starting our year right with a road trip")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b045b0e6e970d.png)  
+![Off and running on the beach, starting our year right with a road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b045b0e6e970d.png)  
   
 We are off and running in this new year and have been going at a pretty fast travel pace since we left [Asia](http://soultravelers3new.local/asia/ "Asia travel tips") suddently just before Christmas after our recent [trip to Australia](http://soultravelers3new.local/australia/ "Australia travel tips").  
   

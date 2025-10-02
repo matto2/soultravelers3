@@ -17,13 +17,13 @@ tags:
   - "winter-get-away"
 ---
 
-[![IMG_9400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616603856970c.jpg "IMG_9400")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616603856970c.jpg)Beautiful Sunset in Pensacola, Florida  
+![IMG_9400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616603856970c.jpg)Beautiful Sunset in Pensacola, Florida  
   
 What's better than a  
 walk on a pristine white  
 sand beach at sunset with
 
-<!--more--> [![Stunning sunset in Florida](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177434660f8970d.jpg "Stunning sunset in Florida")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177434660f8970d.jpg)
+<!--more--> ![Stunning sunset in Florida](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177434660f8970d.jpg)
 
 What's better than a walk on a pristine white sand beach at sunset with sea gulls over head and cool ocean breezes? This was taken on our [Florida road trip](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "Florida road trip"), in Pensacola at the [Pensacola Beach Hilton](http://www1.hilton.com/en_US/hi/hotel/PNSPEHF-Hilton-Pensacola-Beach-Gulf-Front-Florida/index.do "pensacola hilton beach ").  
   

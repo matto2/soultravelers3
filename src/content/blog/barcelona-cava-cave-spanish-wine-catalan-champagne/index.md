@@ -13,13 +13,13 @@ tags:
   - "spanish-wine-in-barcelona"
 ---
 
-[![IMG_5071](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b605e27970d.jpg "IMG_5071")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b605e27970d.jpg) Best Barcelona Cava Cave!  
+![IMG_5071](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b605e27970d.jpg) Best Barcelona Cava Cave!  
   
 Traveling to Barcelona  
 and Costa Brava? Don't  
 miss the amazing Catalan
 
-<!--more--> [![Best Barcelona Cava Cave](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153916cc4a2970b.jpg "Best Barcelona Cava Cave")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153916cc4a2970b.jpg)  
+<!--more--> ![Best Barcelona Cava Cave](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153916cc4a2970b.jpg)  
   
   
 Traveling to [Barcelona](http://soultravelers3new.local/2007/05/bye-bye-barcelo.html "Barcelona") and [Costa Brava](http://soultravelers3new.local/2011/07/costa-brava-and-barcelona.html "Costa Brava")? Don't miss the amazing Catalan food and delicious cava which is [sparkling Spanish wine](http://soultravelers3new.local/2009/12/happy-new-year-nochevieja-from-spain-soultravelers3-review-traditions-grapes-cava-.html "cava sparking spanish wine"). Cava was invented in 1872 in the Penedez region near Barcelona and we find it especially delicious! We've been to some amazing [wine caves in Europe](http://soultravelers3new.local/2008/04/the-heart-of--1.html "wine caves in Europe"), including [many in France](http://soultravelers3new.local/2006/10/route-des-grand.html "wine cellars France") , [Italy](http://soultravelers3new.local/2008/03/ahhhumbria.html "Italy wine") and one on [Santorini](http://soultravelers3new.local/2007/06/santorini-wine.html "Santorini wine"), but this had special meaning to us because of the company.  

@@ -19,14 +19,14 @@ tags:
   - "world-peace-begins-with-inner-peace"
 ---
 
-[![IMG_4448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35384d25970b.jpg "IMG_4448")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35384d25970b.jpg)Hello 2013! More Peace,  
+![IMG_4448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35384d25970b.jpg)Hello 2013! More Peace,  
 Love, Abundance, Joy!!  
   
 What are your dreams for  
 the new year? Who doesn't want  
 more peace love joy and abundance?
 
-<!--more--> [![dazzling new year, new you and shift for planet peace and love](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6dba276970d.jpg "dazzling new year, new you and shift for planet peace and love")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6dba276970d.jpg)  
+<!--more--> ![dazzling new year, new you and shift for planet peace and love](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6dba276970d.jpg)  
   
 What are your [dreams](http://soultravelers3new.local/2008/12/sahara-dream.html "Sahara Dreams") for the new year? Who doesn't want more [peace love](http://soultravelers3new.local/2012/10/world-peace-love-and-happiness.html "world peace, love and happiness") joy and abundance? We have had such amazing healing, blessings and miracles of late, I am thinking [this shift](http://theshiftnetwork.com/main "love shift for planet earth") many have been [talking about](http://www.sfgate.com/business/prweb/article/Three-Days-of-Love-A-Global-Celebration-of-Love-4128776.php "global love celebration") has truly brought some special new energy to our planet which we all need.  
   

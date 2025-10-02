@@ -24,7 +24,7 @@ tags:
   - "vagabonding-with-kids"
 ---
 
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8641c530970d-300x225-1.jpg)[![IMG_6148](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e865b5b03970d.jpg "IMG_6148")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e865b5b03970d.jpg) Kids, Friends, Travel on  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8641c530970d-300x225-1.jpg)![IMG_6148](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e865b5b03970d.jpg) Kids, Friends, Travel on  
 The Ultimate Family Adventure
 
 "What about my kids friends?"  
@@ -33,7 +33,7 @@ family adventure, family world trip,
 
 <!--more-->
 
-  [![Kids, Friends, Travel on The Ultimate Family Adventure in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e0791970d.jpg "Kids, Friends, Travel on The Ultimate Family Adventure in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e0791970d.jpg)
+  ![Kids, Friends, Travel on The Ultimate Family Adventure in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e0791970d.jpg)
 
 **GLOBAL FRIENDS ON THE TRAVEL ROAD**
 
@@ -41,7 +41,7 @@ family adventure, family world trip,
 
 I wrote about it on [Can Globe Trotting Location Independent Kids Have Friends](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html "can globetrotting location independent kids have friends") which has been a very popular article. I've gotten so many more questions that I thought I'd give more details on how we prepare and plan our family travel so that it is advantageous for long term friendships, socialization and deep relationships as well as [amazing educational](http://soultravelers3new.local/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html "amazing education") and multi-cultural opportunities.
 
-[![Two trilingual friends for 5 years on two continents hugging in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cea7a3970b.jpg "Two trilingual friends for 5 years on two continents hugging in London")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cea7a3970b.jpg)
+![Two trilingual friends for 5 years on two continents hugging in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cea7a3970b.jpg)
 
 **TRAVELING THE WORLD AS A FAMILY WITH SCHOOL AGE KIDS**  
   
@@ -53,7 +53,7 @@ There is no one right way to do this, but relationships are important to us as w
 
 I love this quote because it descibes our [global lifestyle](http://soultravelers3new.local/2009/06/questions-answers-about-soultravelers3-family-travel.html "global lifestyle"). Here are a few things that we have found worked best for us as far as keeping deep friendship connections while living a "home in motion" kind of life. With a single female child who loves people, we find this essential, although we also cherish all the many friends that we meet just once or twice along the way. One can find "roots" in a serial way by having more than one place as "home". The world is our home.
 
-[![sweet old friends having fun at the beach at "home"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f7402bb970c.jpg "sweet old friends having fun at the beach at "home"")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f7402bb970c.jpg)  
+![sweet old friends having fun at the beach at "home"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f7402bb970c.jpg)  
   
   
 
@@ -67,11 +67,11 @@ We DO make it a priority to spend quality time with friends when we are home. On
 
 **PICK A VILLAGE - IMMERSE IN LANGUAGE VIA A LOCAL SCHOOL FOR A BIT - RETURN REGULARLY**
 
-[![Spain village. After a summer away traveling, kids enjoy reconnecting & time to catch up](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cefe67970b.jpg "Spain village. After a summer away traveling, kids enjoy reconnecting & time to catch up")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cefe67970b.jpg)
+![Spain village. After a summer away traveling, kids enjoy reconnecting & time to catch up](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cefe67970b.jpg)
 
-[![playing with Spanish friends at local school last day in May 2010](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e6afc970d.jpg "playing with Spanish friends at local school last day in May 2010")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e6afc970d.jpg)
+![playing with Spanish friends at local school last day in May 2010](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e6afc970d.jpg)
 
-[![visiting friends in spain in fall 2010 before leaving for a tropical winter in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e6fa1970d.jpg "visiting friends in spain in fall 2010 before leaving for a tropical winter in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e6fa1970d.jpg)
+![visiting friends in spain in fall 2010 before leaving for a tropical winter in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e6fa1970d.jpg)
 
 One of our "homes" is a tiny [white village in Andalusia, Spain](http://soultravelers3new.local/2006/11/we-are-living-i.html "white village in andalusia, spain") near the sea and [we picked it randomly off the internet before arriving in 2006.](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to pick a winter rental in spain")  From our [first day of school in Spain](http://soultravelers3new.local/2006/11/first-day-of-sc.html "first day of school in spain") until our l[ast day of school](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "last day of school in spain second language immersion") we not only got amazing language benefits that allows our child to speak, read and write Spanish like a native, but a wonderful opportunity to immerse deeply in the culture and make many dear life long friends ( primarily all from this village, but also a few expats from many countries).
 
@@ -79,13 +79,13 @@ We are [eclectic unschoolers](http://soultravelers3new.local/2010/04/family-trav
 
 **WHERE EVER YOU FIND ANGELS EMBRACE AND CHERISH THEM**
 
-[![cute trilingual girls having fun in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e86a0970d.jpg "cute trilingual girls having fun in London")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e86a0970d.jpg)
+![cute trilingual girls having fun in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e86a0970d.jpg)
 
-[![3 girls playing in 2 countries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e87c0970d.jpg "3 girls playing in 2 countries")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e87c0970d.jpg)
+![3 girls playing in 2 countries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e87c0970d.jpg)
 
-[![tea time in london with angels](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e8887970d.jpg "tea time in london with angels")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e8887970d.jpg)
+![tea time in london with angels](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864e8887970d.jpg)
 
-  [![girlfriends having fun in london](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f743a96970c.jpg "girlfriends having fun in london")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f743a96970c.jpg)
+  ![girlfriends having fun in london](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f743a96970c.jpg)
 
 **CLOSE AS COUSINS SINCE 2006**
 
@@ -105,19 +105,19 @@ Their youngest was in diapers when we first met, but every winter we enjoyed spe
 
 These tri-lingual well-traveled best friends who connect through Spanish, [demonstrate rock, scissors, paper in Barcelona](http://www.youtube.com/watch?v=eAY1KsX-eHs "rock paper scissors game in Barcelona spain")**[.](http://www.youtube.com/watch?v=eAY1KsX-eHs "rock paper scissors game in Barcelona spain")** Kids can connect to a culture through games and play and time.
 
-[![bring photo books of past and share](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf4dbd970b.jpg "bring photo books of past and share")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf4dbd970b.jpg)
+![bring photo books of past and share](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf4dbd970b.jpg)
 
-[![tree climbing explorations in barcelona resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf4f48970b.jpg "tree climbing explorations in barcelona resort")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf4f48970b.jpg)
+![tree climbing explorations in barcelona resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf4f48970b.jpg)
 
-[![long stay means kids tent for private fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864ec21e970d.jpg "long stay means kids tent for private fun")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864ec21e970d.jpg)
-
-  
-[![touring barcelona with best friend](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf5223970b.jpg "touring barcelona with best friend")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf5223970b.jpg)
+![long stay means kids tent for private fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864ec21e970d.jpg)
 
   
-[![tween friends making nutella and fresh baked croissant breakfast](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864ec4fb970d.jpg "tween friends making nutella and fresh baked croissant breakfast")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864ec4fb970d.jpg)
+![touring barcelona with best friend](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf5223970b.jpg)
 
-[![always lots of kids, but one best friend](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf54a8970b.jpg "always lots of kids, but one best friend")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf54a8970b.jpg)
+  
+![tween friends making nutella and fresh baked croissant breakfast](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864ec4fb970d.jpg)
+
+![always lots of kids, but one best friend](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf54a8970b.jpg)
 
 **GO SLOW - GET TO KNOW THE LOCALS - RETURN REGULARLY - GRAVITATE TO GOLDEN PEOPLE**
 
@@ -129,18 +129,18 @@ This resort is a perfect place for tweens because they can have a lot of freedom
 
 **FIND A NEW PLACE - ADAPT- IMMERSE IN A NEW LANGUAGE AND CULTURE - MAKE NEW FRIENDS**
 
-[![playing marco polo in pool at our Penang resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf8956970b.jpg "playing marco polo in pool at our Penang resort")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf8956970b.jpg)
+![playing marco polo in pool at our Penang resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf8956970b.jpg)
 
   
-[![Introducing visiting grandma to her play posse at new home in asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f74afa3970c.jpg "Introducing visiting grandma to her play posse at new home in asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f74afa3970c.jpg)
+![Introducing visiting grandma to her play posse at new home in asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f74afa3970c.jpg)
 
-[![making good friends via a Mandarin school in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf9526970b.jpg "making good friends via a Mandarin school in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf9526970b.jpg)  
+![making good friends via a Mandarin school in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2cf9526970b.jpg)  
   
   
 
-[![taking time to swim and play every day in tropical asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864efd9e970d.jpg "taking time to swim and play every day in tropical asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864efd9e970d.jpg)
+![taking time to swim and play every day in tropical asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e864efd9e970d.jpg)
 
-[![making good friends at our resort home in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f74b182970c.jpg "making good friends at our resort home in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f74b182970c.jpg)
+![making good friends at our resort home in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5f74b182970c.jpg)
 
 We came to [Asia in November](http://soultravelers3new.local/2010/11/first-thanksgiving-in-asia.html "asia in november thanksgiving") primarily to [immerse our child in Mandarin through a local school](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "immerse in mandarin chinese through local school in asia") here in [Penang.](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html?cid=6a00e5502a950788330147e178ae0c970b "penang how and where to live") So far it is working wonderfully on every level including friendships. The resort we happened to land in is perfect for families and our child already has a posse of wonderful friends here that she plays with daily. The variety is quite unusual and rich..a Hungarian, a Chinese-Canadian/ Australian , a Korean/Chinese Canadian, an Indian/Chinese/Malay, a Spanish speaking bilingual American from New Mexico and more. The kids go to many different various schools or homeschool.
 

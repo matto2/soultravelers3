@@ -18,14 +18,14 @@ tags:
   - "travel-to-tahiti"
 ---
 
-[![185407262](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177445bff45970d.jpg "185407262")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177445bff45970d.jpg)The Ultimate Tahiti Vacation  
+![185407262](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177445bff45970d.jpg)The Ultimate Tahiti Vacation  
 on a Backpacker Low Budget  
   
 Who wouldn't want to hang  
 out on a hammock in gorgeous  
 Tahiti at one of their top
 
-<!--more--> [![gorgeous Tahiti from hammock -tips on low budget French Polynesia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617757fba970c.jpg "gorgeous Tahiti from hammock -tips on low budget French Polynesia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617757fba970c.jpg)  
+<!--more--> ![gorgeous Tahiti from hammock -tips on low budget French Polynesia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617757fba970c.jpg)  
   
 Who wouldn't want to hang out on a hammock in gorgeous Tahiti at one of their top hotel resorts? We were very pleased that we managed to have a fantastic time in Tahiti while still staying on our $23 a day per person budget that we have been [traveling the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "how to traveling the world") on these last seven years. Still amazed that it was so cheap!  
   

@@ -16,7 +16,7 @@ tags:
   - "value-of-transition"
 ---
 
-[![IMG_0815](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630136dbc2970d.jpg "IMG_0815")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630136dbc2970d.jpg)Travel Means Goodbyes  
+![IMG_0815](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630136dbc2970d.jpg)Travel Means Goodbyes  
   
 Just as travel means  
 "hello" to new and  
@@ -24,7 +24,7 @@ exciting adventures, it
 
 <!--more-->
 
-[![grandma and her baby -saying goodbye again](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167622c0b98970b.jpg "grandma and her baby -saying goodbye again")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167622c0b98970b.jpg)  
+![grandma and her baby -saying goodbye again](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167622c0b98970b.jpg)  
   
 Just as travel means "hello" to new and [exciting adventures](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "exciting adventures"), it also means lots of saying "good bye" to dear ones we leave behind. Thankfully, we can keep up with family and friends as we [explore the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "explore the world") via Skype webcam talks and our very flexible [travel lifestyle](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "travel lifestyle") allows us to return regularly to the places and people we love.  
   

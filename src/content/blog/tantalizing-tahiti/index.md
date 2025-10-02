@@ -19,13 +19,13 @@ tags:
   - "visiting-tahiti-on-a-low-budget"
 ---
 
-[![185405154](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf88d23970c.jpg "185405154")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf88d23970c.jpg)Tantalizing Tahiti  
+![185405154](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf88d23970c.jpg)Tantalizing Tahiti  
   
 When you think Tahiti  
 what comes to mind?  
 Swaying palms, aquamarine
 
-<!--more--> [![beautiful life in French Polynesia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32ca096b970b.jpg "beautiful life in French Polynesia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32ca096b970b.jpg)  
+<!--more--> ![beautiful life in French Polynesia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32ca096b970b.jpg)  
   
 When you think Tahiti what comes to mind?  
   

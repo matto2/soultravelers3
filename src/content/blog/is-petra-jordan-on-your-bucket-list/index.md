@@ -17,13 +17,13 @@ tags:
   - "trip-to-petra"
 ---
 
-[![IMG_1907](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ce5ac03970b.jpg "IMG_1907")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ce5ac03970b.jpg)Is Petra, Jordan on Your Bucket List?  
+![IMG_1907](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ce5ac03970b.jpg)Is Petra, Jordan on Your Bucket List?  
   
 If you don't have Petra on  
 your bucket list, you should!  
 No photo of spectacular Petra can
 
-<!--more--> [![Trip to Petra Jordan - colorful camels, beauty and awesome history](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aaa4085e970d.jpg "Trip to Petra Jordan - colorful camels, beauty and awesome history")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aaa4085e970d.jpg)  
+<!--more--> ![Trip to Petra Jordan - colorful camels, beauty and awesome history](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aaa4085e970d.jpg)  
   
 If you don't have Petra on your bucket list, you should! No photo of spectacular [Petra](http://soultravelers3new.local/2011/08/sand-art-in-jordan.html "Petra") can capture the magic of this place as it will truly take your breath away. One of our favorite [world travel](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "world travel with kids")  memories after almost 8 years of non-stop travel was our [family vacation in Petra](http://soultravelers3new.local/2011/06/family-vacation-petra-wow-.html "family vacation petra jordan") where my 10 year old daughter rode one of these camels and even played her violin while on it at the iconic red sandstone Treasury that was carved by the Nabataieans over 2000 years ago.  
   

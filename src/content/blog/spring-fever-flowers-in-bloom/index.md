@@ -17,13 +17,13 @@ tags:
   - "weather-and-travel"
 ---
 
-[![IMG_1501](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c8802e970b.jpg "IMG_1501")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c8802e970b.jpg)Spring Fever = Flowers in Bloom
+![IMG_1501](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c8802e970b.jpg)Spring Fever = Flowers in Bloom
 
 Do you have spring fever?  
 We were recently in California  
 and flowers were in bloom
 
-<!--more--> [![IMG_1501](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d3b3f6970d.jpg "IMG_1501")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d3b3f6970d.jpg)  
+<!--more--> ![IMG_1501](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d3b3f6970d.jpg)  
   
 Do you have spring fever? We were [recently in California](http://soultravelers3new.local/2012/01/california-beach-new-years-day.html "travel to California") and flowers were in bloom every where. Gorgeous trees like this, blue skies and yellow daffodils made my heart sing and want to take photos every where I go. ( Making my kid call me a tourist).  
   

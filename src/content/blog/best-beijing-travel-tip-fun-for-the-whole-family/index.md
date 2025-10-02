@@ -15,14 +15,14 @@ tags:
   - "travel-to-beijing"
 ---
 
-[![IMG_9100](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aafe942f970d.jpg "IMG_9100")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aafe942f970d.jpg)Best Beijing Travel Tip- 
+![IMG_9100](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aafe942f970d.jpg)Best Beijing Travel Tip- 
 Fun for the Whole Family  
   
 China is an amazing place  
 for a family vacation and our  
 best Beijing kid-friendly tip is
 
-<!--more--> [![Take the family to China - our best tips!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103364c68970c.jpg "Take the family to China - our best tips!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103364c68970c.jpg)  
+<!--more--> ![Take the family to China - our best tips!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103364c68970c.jpg)  
 [China is an amazing place](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel and vacation") for a [family vacation](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html "China family vacation tips") and our [best Beijing](http://soultravelers3new.local/2013/01/best-things-to-do-in-beijing-china-.html "best things to do in Beijing") [kid-friendly tip](http://soultravelers3new.local/2010/02/15-best-tips-for-family-friendly-travel-airplanes-airports-vacation-roadtrips-long-term-family-trave.html "family travel best tips") is to [dress up](http://soultravelers3new.local/2012/12/terracotta-army.html "terra cotta army dress up") Emperor style and fly around the top attractions!  
   
 
@@ -32,11 +32,11 @@ best Beijing kid-friendly tip is
   
 We so enjoyed our [month in China](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "visiting China") for [Mandarin immersion](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "mandarin immersion")  and [cultural adventures](http://soultravelers3new.local/2012/12/random-acts-of-kindness-in-travel.html "random acts of kindness and travel") to add more [Mandarin fluency](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in Mandarin") for our [multilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "multilingual child - how to raise one").  What a thrill to [visit China for the first time](http://soultravelers3new.local/2013/02/china-travel-20-interviews-soultravelers3-part-1.html "visit china tips") with a fluent [trilingual kid](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html "trilingual kid and multilingual reading") who could lead the way ( and [surprised many locals](http://soultravelers3new.local/2012/12/china-travel-shopping-and-markets-rtw.html "china travel shopping and markets")).  
   
-[![best of Beijing --feeling like an Empress in the Forbidden City](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103369e8b970c.jpg "best of Beijing --feeling like an Empress in the Forbidden City")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103369e8b970c.jpg)  
+![best of Beijing --feeling like an Empress in the Forbidden City](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103369e8b970c.jpg)  
   
 We loved the [Chinese school](http://soultravelers3new.local/2012/11/chinese-school-fun.html "Chinese school fun") in [Beijing](http://soultravelers3new.local/2012/11/beijing-blonde-and-pink-electic-bike.html "Beijing electric bike") where she was immersing by living there 24/7 while we did a [homestay](http://soultravelers3new.local/2013/01/best-homestay-living-with-a-family-in-china.html "Homestay in China") nearby.  We went with this [best school in Beijing](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html "Best school in Beijing for learning Chinese")  ( and our friend [Winser Zhau](http://www.chinatravel20.com/2012/05/21/winser-zhaothe-taiji-quan-master-in-beijing/ "winser Zhao")) on a kid's field trip, deep into the [Forbidden City](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "Forbidden city")  and accidentally stumbled upon this tourist concession.  
   
-[![best tip for families traveling to Beijing - dress up like an Emperor and fly to the top attractions!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aafee8c9970d.jpg "best tip for families traveling to Beijing - dress up like an Emperor and fly to the top attractions!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aafee8c9970d.jpg)  
+![best tip for families traveling to Beijing - dress up like an Emperor and fly to the top attractions!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aafee8c9970d.jpg)  
   
 As a [travel blogger](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html "top travel blogger soultravelers3") and a mom who knows the [importance of educational travel](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html "educational travel benefits") and the v[alue of living history](http://soultravelers3new.local/2011/09/learning-vacations-educational-trips-that-teach-kids.html "educational travel that teach kids") things like [dressing up in traditional clothes](http://soultravelers3new.local/2007/03/ancient-princes.html "dressing up in traditional clothes for kids travel") for kids to make a [lasting travel memory](http://soultravelers3new.local/2008/09/pint-sized-pilg.html "lasting travel memory like pilgrim in Santiago"), I was ready to immediately jump at this, but my two beloveds were more hesitant and thought it was a bit too touristy.  
   

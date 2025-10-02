@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_2221_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2221_4.jpg "Img_2221_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2221_4.jpg) Discover Stunning Santiago!  
+ ![Img_2221_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2221_4.jpg) Discover Stunning Santiago!  
 August 26, 2008
 
 Internationally bestselling author Paulo  
@@ -17,7 +17,7 @@ pilgrimage to Santiago de Compostela
 
 <!--more-->
 
-[![Img_2221_5](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2221_5.jpg "Img_2221_5")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2221_5.jpg)
+![Img_2221_5](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2221_5.jpg)
 
 Internationally bestselling author Paulo Coelho said:
 
@@ -62,7 +62,7 @@ I have entered this post into a contest and group writing project  at [Problogg
 
 [![Img_1226](http://soultravelers3new.local/images/2008/08/26/img_1226.jpg "Img_1226")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1226.jpg)
 
-[![Img_2057](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2057.jpg "Img_2057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2057.jpg)
+![Img_2057](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2057.jpg)
 
 [![Img_1229](http://soultravelers3new.local/images/2008/08/26/img_1229.jpg "Img_1229")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1229.jpg)
 
@@ -78,6 +78,6 @@ I have entered this post into a contest and group writing project  at [Problogg
 
 [![Img_2115](http://soultravelers3new.local/images/2008/08/26/img_2115.jpg "Img_2115")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2115.jpg)
 
-[![Img_2219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2219.jpg "Img_2219")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2219.jpg)
+![Img_2219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2219.jpg)
 
 [![Img_1938](http://soultravelers3new.local/images/2008/08/26/img_1938.jpg "Img_1938")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1938.jpg)

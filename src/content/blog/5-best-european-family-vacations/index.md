@@ -17,7 +17,7 @@ tags:
   - "take-your-kids-to-europe"
 ---
 
-[![IMG_3319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300d18580970d.jpg "IMG_3319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300d18580970d.jpg)5 Best European Family Vacations  
+![IMG_3319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300d18580970d.jpg)5 Best European Family Vacations  
   
 Don't you think every  
 kid should know the  
@@ -25,7 +25,7 @@ joy of a family trip to Europe?
 
 <!--more-->
 
-[![IMG_3319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300d18626970d.jpg "IMG_3319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300d18626970d.jpg)  
+![IMG_3319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016300d18626970d.jpg)  
   
 Don't you think every kid should know the joy of a family trip to Europe? There are so many amazing family friendly destinations in Europe it is often hard to decide where to go. We've spent 5 years exploring Europe as a family on just $23/day per person, on our extended [European road trip](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html "European road trip"), thus we can guide you with some tips to keep expenses down and have fantastic fun for every family member.  
   
@@ -124,7 +124,7 @@ Venice for Kids](http://soultravelers3new.local/2007/05/kids-lit-itiner.html#mor
   
 [Michelangelo’s Magnificent David](http://soultravelers3new.local/2008/02/david-davinci-m.html#more "Michelangelo’s magnificent David")  
   
-[![341989](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167623bedf4970b.jpg "341989")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167623bedf4970b.jpg)  
+![341989](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167623bedf4970b.jpg)  
   
   
 **UK and IRELAND**  
@@ -183,7 +183,7 @@ Ice Bar Family Fun](http://soultravelers3new.local/2009/02/family-travel-photo-a
   
 [Finland Food](http://soultravelers3new.local/2009/07/family-travel-photo-finland-aland-islands-pancakes.html "finland food")  
   
-[![380715](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016762fb647d970b.jpg "380715")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016762fb647d970b.jpg)  
+![380715](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016762fb647d970b.jpg)  
   
   
   

@@ -14,14 +14,14 @@ tags:
   - "uk"
 ---
 
- [![IMG_0284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d927bb970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d927bb970b.jpg) Family Travel Photo - England  
+ ![IMG_0284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d927bb970b.jpg) Family Travel Photo - England  
 October 13, 2009
 
 Tapestries and a knight in shining  
 armor...what could capture the joys  
 of family travel in England any better?
 
-<!--more--> [![cute girls with knight in armor & tapestries/ Cliveden. UK](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d93d2d970b.jpg "cute girls with knight in armor & tapestries/ Cliveden. UK")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d93d2d970b.jpg)  
+<!--more--> ![cute girls with knight in armor & tapestries/ Cliveden. UK](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d93d2d970b.jpg)  
 
 Tapestries and a knight in shining armor...what could capture the joys of family travel in England any better? We just  had a fantastic week [in London](http://soultravelers3new.local/2009/10/-roomorama-short-term-rentals-usa-london-budget-hotel-apartments-.html#more) from October 1st through 8th, our [second time](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html) there on our [world tour](http://www.youtube.com/watch?v=wn9rDTZj-m4) and took a train to the countryside to join friends from around the world for a high tea at the posh [Cliveden House](http://en.wikipedia.org/wiki/Cliveden).
 

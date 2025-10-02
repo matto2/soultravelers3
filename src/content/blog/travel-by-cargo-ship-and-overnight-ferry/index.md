@@ -13,13 +13,13 @@ tags:
   - "travel-by-freighter-ship"
 ---
 
-[![IMG_3113_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615fbf939970c.jpg "IMG_3113_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615fbf939970c.jpg)Travel By Cargo Ship and Overnight Ferry
+![IMG_3113_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017615fbf939970c.jpg)Travel By Cargo Ship and Overnight Ferry
 
 Who knew that travel by  
 freighter, cargo ship or ferry  
 can be one of the best ways to travel?
 
-<!--more--> [![travel by cargo ship or freighter for adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676806f85b970b.jpg "travel by cargo ship or freighter for adventure")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676806f85b970b.jpg)  
+<!--more--> ![travel by cargo ship or freighter for adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676806f85b970b.jpg)  
   
 Who knew that travel by freighter, cargo ship or ferry can be one of the best ways to travel? We've done a lot of it on our [family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world tour") in the last 7 years, but we probably never would have thought about it as a travel option before doing extensive [road trips in Europe](http://soultravelers3new.local/2011/06/road-trip-europe-plan-then-improvise.html "road trips Europe").  
   

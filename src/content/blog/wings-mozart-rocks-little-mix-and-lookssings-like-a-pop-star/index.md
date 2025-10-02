@@ -10,7 +10,7 @@ categories:
   - "videos"
 ---
 
-[![IMG_6217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd1e4f4970d.jpg "IMG_6217")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd1e4f4970d.jpg)Wings! Mozart Rocks Little Mix  
+![IMG_6217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd1e4f4970d.jpg)Wings! Mozart Rocks Little Mix  
 and Looks/Sings Like a Pop Star!  
   
 "Amazing performance. She has the  
@@ -18,7 +18,7 @@ whole package" they remarked as
 singer Mozart left the huge stage of
 
 <!--more-->  
-[![travel teen Mozart sings like a Pop star!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd3253b970d.png "travel teen Mozart sings like a Pop star!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd3253b970d.png)  
+![travel teen Mozart sings like a Pop star!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd3253b970d.png)  
   
 "Amazing performance. She has the whole package" they remarked as [singer Mozart](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "singer mozart") left the huge stage of the [famous Gas Monkey,](http://gasmonkeybarngrill.com/ "gas monkey bar n grill stage") one of the hottest venues in Dallas, Texas where stars like Willie Nelson play nightly.  
   
@@ -47,7 +47,7 @@ This is only her third time on a professional stage and she had to put this toge
   
 I've got a whole story coming about the make up, done by the best in Dallas, the amazing [Terri Tomlinson.](http://territomlinson.com/ "terri tomlinson make up")  
   
-[![Travel teen singer mozart sings at the Gas Monkey Bar n Grill in Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd32571970d.png "Travel teen singer mozart sings at the Gas Monkey Bar n Grill in Dallas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd32571970d.png)  
+![Travel teen singer mozart sings at the Gas Monkey Bar n Grill in Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd32571970d.png)  
   
 **CHILDHOOD MELTS INTO TEEN YEARS**  
   
@@ -57,7 +57,7 @@ One reader told me she felt some melancholy in watching this video because she w
   
 Though I think when she runs up to get the trophy in the end ...you can see that she is still mostly kid. She weighs all of 78 pounds and still wearing little girl size 8 and 10, though growing like a weed now.  
   
-[![Mozart travel teen sings, plays piano and violin and guitar ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186c64970b.png "Mozart travel teen sings, plays piano and violin and guitar ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186c64970b.png)  
+![Mozart travel teen sings, plays piano and violin and guitar ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186c64970b.png)  
   
   
 **WOMAN IS EMERGING**  
@@ -113,7 +113,7 @@ Mozart has always had a passion for music, really from birth. She even did a pla
   
 She asked for opera at just a year old and probably has seen more opera and Shakespeare than any toddler/preschooler on record, all because we followed her lead. She begged for violin lessons ( because all the kids in our country neighborhood studied with Yale grad and [amazing teache](http://soultravelers3new.local/2006/09/more-chocolate.html.%20 "chocolate violin ")r [Lisa Barca-Hall](http://barcahall.com/violin/ "lisa barca-hall")) and we got permission to start at just 21 months old because she was ready, an exception as most can't start until three.  
   
-[![Mozart at 2 playing violin performance - eyes intent on teachers instructions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c7e0d9970c.png "Mozart at 2 playing violin performance - eyes intent on teachers instructions")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c7e0d9970c.png)  
+![Mozart at 2 playing violin performance - eyes intent on teachers instructions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c7e0d9970c.png)  
   
 **PERFORMING AT TWO, MUSCIAL PRECOCITY**  
   
@@ -122,7 +122,7 @@ She was performing on stage at 2 with violin and absolutely loved it. We have a 
 So her musical precocity and interest should not be a surprise, but some how it is, because we have been more focused on langauge learning and travel, so didn't expect her passion for pop music. I did get a big "heads up" when she decided to j[oin the choir](http://www.youtube.com/watch?v=CyLHEuhdo2k "Mozart singing at 10 in Asia ") in her Chinese school in Asia and was asked to sing a solo in front of thousands at ten years old and when she was a singing competion finalist there at 12. 
   
   
-[![Travel teen singer Mozart learning guitar ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186cba970b.png "Travel teen singer Mozart learning guitar ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186cba970b.png)  
+![Travel teen singer Mozart learning guitar ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186cba970b.png)  
   
 **TRILINGUAL ADVANTAGES**  
   
@@ -131,7 +131,7 @@ Mozart  will likely be the first singer who can communicate to most of the plan
 It is quite fascinating how many [Latino celebrities don't speak espanol](http://www.latinpost.com/articles/6842/20140204/naya-rivera-says-she-cant-speak-spanish-top-10-latino-celebrities-who-dont-speak-spanish.htm "latin celebrities don't speak spanish"), even those on the Latin Billboard charts like Jlo, Selena Gomez, Christina Aguilera, and how much more advantageous that would be for the singers to deeply connect.  
   
   
-[![Travel teen singer Mozart playing piano and original song](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186cdc970b.png "Travel teen singer Mozart playing piano and original song")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186cdc970b.png)  
+![Travel teen singer Mozart playing piano and original song](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186cdc970b.png)  
   
 **ATTACHMENT PARENTING AND GROWING TEEN BRAIN**  
   
@@ -139,7 +139,7 @@ We've long been passionate about Attachment parenting and think that principal i
   
 “the work of adolescence—the testing of boundaries, the passion to explore what is unknown and exciting—can set the stage for the development of core character traits that will enable adolescents to go on to lead great lives of adventure and purpose.” Daniel Siegel  
   
-[![Mozart a talented singer, songwriter with star power](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186d03970b.png "Mozart a talented singer, songwriter with star power")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186d03970b.png)  
+![Mozart a talented singer, songwriter with star power](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd186d03970b.png)  
   
 **TEEN AS TEACHER, SPEAKER, SINGER AND ENTREPRENEUR**  
   
@@ -156,7 +156,7 @@ Singing is an early peak kind of career ( especially for girls..if one is not si
 We think it is very important to support a teens dreams as an artist and prepare for the real world.  
   
   
-[![Mozart singing with all her heart to her fans](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg00e5502a9507883301a3fd186d20970b-800wi "Mozart singing with all her heart to her fans")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg
+![Mozart singing with all her heart to her fans](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg
 00e5502a9507883301a3fd186d20970b-pi)  
   
 **MOZART'S WORK ETHIC**  
@@ -167,7 +167,7 @@ Mozart has always been a hard working kid with a good work ethic. Our travel lif
   
   
   
-[![Mozart - my beautiful girl with her guitar ready to rock the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg00e5502a9507883301a73dd32663970d-800wi "Mozart - my beautiful girl with her guitar ready to rock the world ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg00e5502a9507883301a73dd32663970d-pi)  
+![Mozart - my beautiful girl with her guitar ready to rock the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg00e5502a9507883301a73dd32663970d-pi)  
   
 Many of us on planet earth have been going through lots of changes since last December and that is certainly true for us. The TV show has moved us into a whole new realm. We so appreciate your support and caring. I will leave you will these encouraging quotes from readers on Facebook where I posted the new video. So healing to have support when one is learning new things and taking new risks.  
   
@@ -180,7 +180,7 @@ Ohhhh Yeahhhh!!! Hang on Mom & Dad, you're in for a ride That girl has the talen
  She's so talented! It's always so great when a person finds their talent within themselves and takes that and does everything they can with it. And for her to have such supportive parents makes all the difference. I'm so excited for you all! - A.S.  
   
   
-[![Mozart - a joyful, talented, singing travel musician with guitar ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg00e5502a9507883301a511c7e15f970c-800wi "Mozart - a joyful, talented, singing travel musician with guitar ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg00e5502a9507883301a511c7e15f970c-pi)  
+![Mozart - a joyful, talented, singing travel musician with guitar ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg00e5502a9507883301a511c7e15f970c-pi)  
   
 How have you been supported in your talents? Do you think teens should take risks and follow their passions? Have you found raising a teen is a whole new paradigm in parenting?
 

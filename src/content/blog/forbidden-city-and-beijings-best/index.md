@@ -22,14 +22,14 @@ tags:
   - "visiting-the-forbidden-city"
 ---
 
-[![IMG_6865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c334c8a57970b.jpg "IMG_6865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c334c8a57970b.jpg)Forbidden City  
+![IMG_6865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c334c8a57970b.jpg)Forbidden City  
 and Beijing's Best  
   
 We didn't expect to love  
 Beijing so much and be totally  
 charmed by the beautiful hearts
 
-<!--more--> [![Enjoying the Forbidden City and the best of Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d7b21b1970c.jpg "Enjoying the Forbidden City and the best of Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d7b21b1970c.jpg)  
+<!--more--> ![Enjoying the Forbidden City and the best of Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d7b21b1970c.jpg)  
   
 We didn't expect to love Beijing so much and be totally charmed by the beauiful hearts of the Chinese people. You can never really know what a place is like or how it will affect you until you arrive somewhere, spend some time and get to know the people and place.  
   

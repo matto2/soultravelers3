@@ -45,7 +45,7 @@ Mozart ordered a yummy dessert that was some chocolate wonder and she could not 
 
 After we ate, I took Mozart out on the promenade to run off a little steam as we had been driving for a few hours and had more to go, after lunch. She ran around, climbed a tree and practiced her cartwheels, so typical of a seven year old. We were glad to enjoy this space and watch other people swim.
 
-[![Img_3137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3137.jpg "Img_3137")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/04/img_3137.jpg)
+![Img_3137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/04/img_3137.jpg)
 
 [![Img_3161](http://soultravelers3new.local/images/2008/10/04/img_3161.jpg "Img_3161")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/04/img_3161.jpg)
 
@@ -53,6 +53,6 @@ After we ate, I took Mozart out on the promenade to run off a little steam as we
 
 Cedeira was one of those magical places and moments in time, so it will always have a special place in our hearts and collective memories.
 
-[![Img_3230](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3230.jpg "Img_3230")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/04/img_3230.jpg)
+![Img_3230](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/04/img_3230.jpg)
 
-[![Img_3194](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3194.jpg "Img_3194")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/04/img_3194.jpg)
+![Img_3194](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/04/img_3194.jpg)

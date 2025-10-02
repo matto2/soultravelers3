@@ -17,7 +17,7 @@ interesting folks on our journey.
 
 <!--more-->
 
-[![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8788.png "日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8788.png)
+![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8788.png)
 
   
 
@@ -62,26 +62,26 @@ We found the Tintoretti paintings at the cathedral and enjoyed all the sights in
 
 I love it that they even had delicious Marco Polo ice cream with napkins that give a little history and explained that he brought back the secrets of ice cream making from China to Europe. What a fun and memorable history lesson for a kid!
 
-[![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8792.png "日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8792.png)
+![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8792.png)
 
-[![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8797.png "日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8797.png)
+![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8797.png)
 
-[![Img_8799](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8799.png "Img_8799")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8799.png)
+![Img_8799](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8799.png)
 
-[![Img_8841](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8841.png "Img_8841")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8841.png)
+![Img_8841](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8841.png)
 
-[![Img_8840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8840.png "Img_8840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8840.png)
+![Img_8840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8840.png)
 
-[![Img_8939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8939.png "Img_8939")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8939.png)
+![Img_8939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8939.png)
 
-[![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8954.png "日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8954.png)
+![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8954.png)
 
-[![Img_9179](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9179.png "Img_9179")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9179.png)
+![Img_9179](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9179.png)
 
-[![Img_9025](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9025.png "Img_9025")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9025.png)
+![Img_9025](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9025.png)
 
-[![Img_9033](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9033.png "Img_9033")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9033.png)
+![Img_9033](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9033.png)
 
-[![Img_9137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9137.png "Img_9137")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9137.png)
+![Img_9137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9137.png)
 
-[![Img_9089](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9089.png "Img_9089")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9089.png)
+![Img_9089](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9089.png)

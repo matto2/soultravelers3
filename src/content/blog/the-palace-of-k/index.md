@@ -15,7 +15,7 @@ Daedalus, Icaris and Thesius, we knew we could not miss
 
 <!--more-->
 
-[![Img_9786](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9786.png "Img_9786")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9786.png)
+![Img_9786](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9786.png)
 
 Inhabited since 7000 B.C. and home of King Minos, famed Minotaur, Labyrinth and related Greek myths (which Mozart loves) including Daedalus, Icaris and Thesius, we knew we could not miss the Palace of Knossos before leaving Crete. It is also one of the best restored ancient sites available, so we got a little book for drawings for Mozart (pictured above with the Knossos on the cover) and looked for a private tour guide to make the most of the experience.
 
@@ -31,26 +31,26 @@ Our guide was very knowledgeable so we learned lots of interesting details about
 
 Mozart got to play in the oldest theatre in Greece there before we left and was happy to meet a little girl named Athena with her new puppy, before we began which added fond memories. She was quite busy drawing lots of pictures as we toured and the guide went into great detail. You never quite know what a six year old is picking up. I got a kick out of her “Greek Ruins” and “Minautor” pictures when I looked at it later as she had come up with them all on her own.
 
-[![Img_9584](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9584.png "Img_9584")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9584.png)
+![Img_9584](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9584.png)
 
-[![Img_9546](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9546.png "Img_9546")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9546.png)
+![Img_9546](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9546.png)
 
-[![Img_9576](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9576.png "Img_9576")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9576.png)
+![Img_9576](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9576.png)
 
-[![Img_9575](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9575.png "Img_9575")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9575.png)
+![Img_9575](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9575.png)
 
-[![Img_9522](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9522.png "Img_9522")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9522.png)
+![Img_9522](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9522.png)
 
-[![Img_9589](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9589.png "Img_9589")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9589.png)
+![Img_9589](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9589.png)
 
-[![Img_9532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9532.png "Img_9532")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9532.png)
+![Img_9532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9532.png)
 
-[![Img_9556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9556.png "Img_9556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9556.png)
+![Img_9556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9556.png)
 
-[![Img_9785](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9785.png "Img_9785")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9785.png)
+![Img_9785](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9785.png)
 
-[![Img_9564](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9564.png "Img_9564")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9564.png)
+![Img_9564](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9564.png)
 
-[![Img_9577](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9577.png "Img_9577")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9577.png)
+![Img_9577](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9577.png)
 
-[![Img_9790](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9790.png "Img_9790")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9790.png)
+![Img_9790](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9790.png)

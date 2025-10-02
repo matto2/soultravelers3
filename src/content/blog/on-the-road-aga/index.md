@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1663](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1663.png "Img_1663")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1663.png) On the Road Again  
+ ![Img_1663](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1663.png) On the Road Again  
 March 25, 2007
 
 “Head ‘em up, move them out!” that old  
@@ -15,7 +15,7 @@ comes to mind along with that Willie Nelson
 
 <!--more-->
 
-[![Img_1663_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1663_2.png "Img_1663_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1663_2.png)
+![Img_1663_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1663_2.png)
 
   
 “Head ‘em up, move them out!” that old refrain from a long ago TV show “Rawhide” comes to mind along with that Willie Nelson song “On the road again”. It is such a joy to be back on the road again and we were entertained by the sights on the way to Seville as we took a new road that we had not been on before. Spring has sprung here and everything was green and in bloom and it was nice to see more of Andalusia. We made better time than we expected, arriving in about four hours with just one quick stop.
@@ -87,20 +87,20 @@ On pure impulse, I entered some blog carnivals basically to learn more about the
 
 That should give you more than enough to read until we get back to blogging regularly later in the month!
 
-[![Img_1669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1669.png "Img_1669")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1669.png)
+![Img_1669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1669.png)
 
-[![Img_1690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1690.png "Img_1690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1690.png)
+![Img_1690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1690.png)
 
-[![Img_1701](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1701.png "Img_1701")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1701.png)
+![Img_1701](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1701.png)
 
-[![Img_1725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1725.png "Img_1725")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1725.png)
+![Img_1725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1725.png)
 
-[![Img_1709](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1709.png "Img_1709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1709.png)
+![Img_1709](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1709.png)
 
-[![Img_1719](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1719.png "Img_1719")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1719.png)
+![Img_1719](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1719.png)
 
-[![Img_1714](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1714.png "Img_1714")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1714.png)
+![Img_1714](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1714.png)
 
-[![Img_1738](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1738.png "Img_1738")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1738.png)
+![Img_1738](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1738.png)
 
-[![Img_1687](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1687.png "Img_1687")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1687.png)
+![Img_1687](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1687.png)

@@ -17,14 +17,14 @@ tags:
   - "oldest-beach-in-california"
 ---
 
-[![IMG_1345](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167616b948e970b.jpg "IMG_1345")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167616b948e970b.jpg)Beautiful Capitola - 
+![IMG_1345](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167616b948e970b.jpg)Beautiful Capitola - 
 California's Oldest Beach
 
 One of the most charming  
 and family friendly  
 beaches in California
 
-<!--more--> [![beautiful beach - Capitola, California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167616b9530970b.jpg "beautiful beach - Capitola, California")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167616b9530970b.jpg)  
+<!--more--> ![beautiful beach - Capitola, California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167616b9530970b.jpg)  
   
 One of the most charming and family friendly beaches in California is also the oldest beach in the state and one of our fave places on the planet...Capitola! You can see the colorful and  iconic [Venetian Court](http://en.wikipedia.org/wiki/Venetian_Court "Venetian court") built in 1924 along with the wharf in this photo of Capitola beach. It was voted by [Sunset Magazine](http://www.sunset.com/travel/ocean-towns-00400000040124/ "capitola beach in sunset magazine") as one of the best beach locations on the California coast. It's popular with the elites of Silicon Valley as a weekend getaway because of proximity ( many who live here work in Silicon Valley).  
   
@@ -37,7 +37,7 @@ He and my Mom had a house right on this beach for a long time, so I've been visi
 
   
   
-[![Capitola beach 2000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e66d125f970c.jpg "Capitola beach 2000")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e66d125f970c.jpg)  
+![Capitola beach 2000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e66d125f970c.jpg)  
   
 So many happy memories, so it's been wonderful spending the last four months in this area. We've lucked out with almost all sunny days as it's been an excepional sunny and  dry winter. Alas, ( and happily)  it is time to go now...off to [tropical Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical asia rental home") soon, but we will be back.  
   

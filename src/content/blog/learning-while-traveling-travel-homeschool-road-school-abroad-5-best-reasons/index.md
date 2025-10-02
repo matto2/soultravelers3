@@ -19,14 +19,14 @@ tags:
   - "worldschooling"
 ---
 
-[![IMG_4957](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1dc1b9970d.jpg "IMG_4957")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1dc1b9970d.jpg) Learning While Traveling - Travel Homeschool - 
+![IMG_4957](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1dc1b9970d.jpg) Learning While Traveling - Travel Homeschool - 
 Road School Abroad: 5 Best Reasons
 
 Travel and learning  
 enhance and support  
 each other like a world field trip
 
-<!--more--> [![ homeschool abroad learning with international travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1dc210970d.jpg " homeschool abroad learning with international travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1dc210970d.jpg)  
+<!--more--> ![ homeschool abroad learning with international travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1dc210970d.jpg)  
   
   
   

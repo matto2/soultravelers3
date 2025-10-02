@@ -17,13 +17,13 @@ tags:
   - "walking-europe"
 ---
 
-[![13936940](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a663db970d.jpg "13936940")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a663db970d.jpg)European Charming Customs  
+![13936940](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a663db970d.jpg)European Charming Customs  
   
 One of the joys of a European  
 vacation is exploring by walking  
 around and absorbing the many
 
-<!--more--> [![Charming Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a664f9970d.jpg "Charming Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a664f9970d.jpg)  
+<!--more--> ![Charming Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a664f9970d.jpg)  
   
 One of the joys of a [European vacation](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best european vacation") is exploring by [walking around](http://soultravelers3new.local/2012/05/paris-for-families-walking-the-left-bank.html "walking paris") and absorbing the many [European charming customs](http://soultravelers3new.local/2013/04/rustic-europe-driving-over-lemons-country.html "rustic europe") that are different than at home. We've spent about 7 years in [Europe](http://soultravelers3new.local/2013/02/only-place-in-europe-to-swim-with-dolphins-portugal.html "europe swim with dolphins") on our [world tour,](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html " family world tour") usually [traveling by camperva](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "traveling europe in a campervan")n, but sometimes [trains](http://soultravelers3new.local/2013/05/train-travel-in-europe-with-kids.html "trains in europe"), [bikes](http://soultravelers3new.local/2009/05/biking-st-emilion-bordeaux-vineyards-in-france-wine-country.html "biking bordeaux"), [buses](http://soultravelers3new.local/2007/07/bus-on-ferry-to.html "buses in Turkey").or [hiking.](http://soultravelers3new.local/2011/09/hiking-and-biking-ireland.html "hiking biking ireland")  
   

@@ -17,13 +17,13 @@ tags:
   - "地球日"
 ---
 
-[![IMG_4929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e12384b970b.jpg "IMG_4929")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e12384b970b.jpg)Earth Day Song, Solo and 1st Place!
+![IMG_4929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e12384b970b.jpg)Earth Day Song, Solo and 1st Place!
 
 Happy Earth Day! Do you want  
 to hear a kid's view about saving  
 the planet? Or children singing
 
-<!--more--> [![IMG_4929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1238ba970b.jpg "IMG_4929")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1238ba970b.jpg)  
+<!--more--> ![IMG_4929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1238ba970b.jpg)  
   
 Happy [Earth Day](http://en.wikipedia.org/wiki/Earth_Day "earth day")! Do you want to hear a kid's view about saving the planet? Or children singing a beautiful song about a clean earth, compassion and love ( in Mandarin and English) ? Do you care about green,[sustainable living](http://en.wikipedia.org/wiki/Sustainable_living "sustainable living")? Mozart's very first solo? You've come to the right place.  
   

@@ -18,13 +18,13 @@ tags:
   - "visiting-bhutan"
 ---
 
-[![IMG_7837](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89155ce5970d.jpg "IMG_7837")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89155ce5970d.jpg) Family Travel Bhutan- Nomads
+![IMG_7837](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89155ce5970d.jpg) Family Travel Bhutan- Nomads
 
 One of the best things  
 about long term family  
 travel is the people you
 
-<!--more--> [![bhutan nomads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89155d21970d.jpg "bhutan nomads")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89155d21970d.jpg)  
+<!--more--> ![bhutan nomads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89155d21970d.jpg)  
   
   
 One of the best things about [long term family travel](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "long term family travel") is the people you meet, because they tell you a lot about the country and also about how much we have in common, no matter how different our lives are.  

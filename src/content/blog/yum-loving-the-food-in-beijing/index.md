@@ -19,14 +19,14 @@ tags:
   - "wearing-traditional-chinese-clothes-beijing"
 ---
 
-[![IMG_7044](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3354c103970b.jpg "IMG_7044")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3354c103970b.jpg)Yum! Loving the  
+![IMG_7044](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3354c103970b.jpg)Yum! Loving the  
 Food in Beijing  
   
 Chop sticks, cheongsam,  
 tantalizing Chinese food and  
 total immersion in Mandarin
 
-<!--more--> [![Using chopsticks in China wearing qipao or cheongsam traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f8915a970d.jpg "Using chopsticks in China wearing qipao or cheongsam traditional dress")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f8915a970d.jpg)  
+<!--more--> ![Using chopsticks in China wearing qipao or cheongsam traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f8915a970d.jpg)  
   
 Chop sticks, cheongsam, tantalizing Chinese food and total immersion in Mandarin through wonderful local friends, makes our first [trip into China](http://soultravelers3new.local/2012/11/getting-a-tourism-visa-for-china-adventure.html "trip to China tips") and [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "Beijing travel"), more exciting than we had imagined. So far, the food has been spectacular, with many different kinds of cuisine for a sophisticated palate. We have had some [organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic food"), but alas it's not as easy to stay on our [travel health](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "travel health") ways as it is in [Penang](http://soultravelers3new.local/2012/08/where-to-buy-organic-food-in-penang.html "penang organic food").  
   

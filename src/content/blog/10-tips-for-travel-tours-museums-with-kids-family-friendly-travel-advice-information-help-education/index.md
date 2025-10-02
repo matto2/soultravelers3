@@ -15,7 +15,7 @@ tags:
   - "museum-tips-for-kids"
 ---
 
- [![10 Tips For Travel Tours & Museums With Kids!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485509505970c.jpg "10 Tips For Travel Tours & Museums With Kids!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485509505970c.jpg) 10 Tips For Museums &Travel Tours With Kids!  
+ ![10 Tips For Travel Tours & Museums With Kids!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485509505970c.jpg) 10 Tips For Museums &Travel Tours With Kids!  
 August 17, 2010
 
 How can you get the most  
@@ -26,49 +26,49 @@ family travel? Books and small, 
 
 <!--more-->
 
-[![family travel having fun in museum with kids best tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22acc62970b.jpg "family travel having fun in museum with kids best tips")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22acc62970b.jpg)  
+![family travel having fun in museum with kids best tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22acc62970b.jpg)  
 
 How can you get the most [educational value out of your family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)? Books and small, short, high quality tours have been keys for us that add so much in a fun, frugal and easy way. There are books for all ages about the places that you want to visit and [reading them before, during and after travel helps](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html) keep it alive and [more educational for kids.](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html)
 
 Last summer we visited the famous [Unesco World Heritage Site](http://en.wikipedia.org/wiki/Melk_Abbey), the [Melk Abbey](http://soultravelers3new.local/2009/09/family-travel-photo-austria-melk-joy-in-water.html#more) on the Danube near [Vienna](http://soultravelers3new.local/2008/02/vienna-a-little.html#more) in Austria's enchanting [Wachou Valley wine country](http://en.wikipedia.org/wiki/Wachau). We always try to [add kid's books to the area we travel to](http://soultravelers3new.local/books_travel_books_for_kids/), so before coming to Austria, we had our 8 year old, read "[The Royal Diaries Marie Antoinette"](http://www.amazon.com/Marie-Antoinette-Princess-Versailles-Austria-France/dp/0439076668/ref=sr_1_1?ie=UTF8&s=books&qid=1278671181&sr=1-1-spell). She loved it and it effortlessly gave her tons of factual information and the essence of the Habsburg dynasty in the 1700's. It comes in handy again this summer when we visit France again & Versailles and as she studies the French Revolution.
 
-[![family travel fun with mirrors in Europe Melk Abbey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22ae6dc970b.jpg "family travel fun with mirrors in Europe Melk Abbey")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22ae6dc970b.jpg)  
+![family travel fun with mirrors in Europe Melk Abbey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22ae6dc970b.jpg)  
 
 Most of it takes place when Marie Antoinette was a young girl of 12 living in the Habsburg and [Schonbrunn Palaces](http://soultravelers3new.local/2008/02/sumptuous-schon.html#more) with her Mother, Empress Marie Theresa and family. The Royal Diaries is a fantastic series of historical fiction that is full of educational facts presented in a fun way for kids and we have many books in this series. It is geared for 9 to 12 year olds, but I even enjoyed it and learned things!  
   
 [Reading  really pays off when it comes to travel, for kids](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html) and adults. After visiting the Abbey by ourselves ( by being the first to arrive) we did a one hour tour again with a guide in English. The Austrian tour guide was absolutely stunned that our 8 year old knew so much about the history of Austria! The tour starts with a picture of Empress Marie Theresa and her husband ( and Marie Antoinette's father) Emperor Frances of Lorraine near the  Habsburg crest and the royal wing where this royal family stayed when traveling from Vienna. 
 
-[![Family travel museum tours for kids, books make the difference](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550b1f8970c.jpg "Family travel museum tours for kids, books make the difference")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550b1f8970c.jpg)  
+![Family travel museum tours for kids, books make the difference](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550b1f8970c.jpg)  
   
   
  Our guide went out of her way to make it interesting for the kids and let them do hands on things like opening an old lock and having them guess and point out where they were in the abbey on a model of it. Mozart had read the book about a month ago, but the facts were presented in such an interesting way, that she still remembered most of it and had lots of great conversations with the tour guide because of it. She was thrilled to see the oldest book in the library that was hand written!
 
-[![Family travel Europe museums, one of the most beautiful libraries in the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22aeae1970b.jpg "Family travel Europe museums, one of the most beautiful libraries in the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22aeae1970b.jpg)  
+![Family travel Europe museums, one of the most beautiful libraries in the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22aeae1970b.jpg)  
   
   
 We met another American family on the tour that made it extra fun for Mozart too as it is extremely rare that we run into American kids. They are living in Europe through the father's job in the military and were also big proponents of slow travel and taking advantage of the educational [opportunities that come with travel](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html) and expat life. Their youngest child was only a few weeks older than Mozart and the next oldest was only a year older, so they became instant friends.
 
-[![family travel kids having fun and learning in a museum tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550b52e970c.jpg "family travel kids having fun and learning in a museum tour")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550b52e970c.jpg) 
+![family travel kids having fun and learning in a museum tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550b52e970c.jpg) 
 
-[![Family travel meeting other kids in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22af470970b.jpg "Family travel meeting other kids in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22af470970b.jpg) 
+![Family travel meeting other kids in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22af470970b.jpg) 
 
   
-[![family travel doing a fun museum tour in Europe adding to the educational value](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550be78970c.jpg "family travel doing a fun museum tour in Europe adding to the educational value")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550be78970c.jpg)  
+![family travel doing a fun museum tour in Europe adding to the educational value](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550be78970c.jpg)  
   
 A funny moment came when the guide told us about a reusable coffin that they used in the monastery during hard times. Mozart piped up as only an 8 year old can, " Wow, that must have really stunk!" Everybody laughed, even the tour guide. [Smart history](http://www.amazon.com/Blood-curdling-Horrible-Histories-Terry-Deary/dp/1407108158/ref=sr_1_1?ie=UTF8&s=books&qid=1278677297&sr=1-1), historical fiction and tour guides for kids don't forget to add all the bizarre and human elements of history that appeal to kids.
 
-[![IMG_8042](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22af9f6970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22af9f6970b.jpg) 
+![IMG_8042](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22af9f6970b.jpg) 
 
-[![IMG_7662](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22afae7970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22afae7970b.jpg) 
+![IMG_7662](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22afae7970b.jpg) 
 
-[![family travel with kids museums, church icons add value and learning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550c42a970c.jpg "family travel with kids museums, church icons add value and learning")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550c42a970c.jpg) 
+![family travel with kids museums, church icons add value and learning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550c42a970c.jpg) 
 
   
-[![Family travel in Melk Austria enjoying the Abbey and views](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22afd15970b.jpg "Family travel in Melk Austria enjoying the Abbey and views")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22afd15970b.jpg)  
+![Family travel in Melk Austria enjoying the Abbey and views](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22afd15970b.jpg)  
   
 We [parked our RV just steps from the Danube in Melk](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html),  in a beautiful, mostly deserted, park-like campsite for over a month  to explore this area. ( We had planned a week here). It is a popular biking destination with bike paths and places to park them everywhere, so we used our bikes as our main mode of transportation, including our trips to the Melk Abbey which pleased our Mozart to no end. She especially liked riding at night as a family over a a bridge with ducks below along a well lit large road with the Melk Abbey looking down at us from above.
 
-[![IMG_7416](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550c7ca970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550c7ca970c.jpg)  
+![IMG_7416](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550c7ca970c.jpg)  
   
   
 Here are our top tips for getting the most out of tours and museums with kids. What are yours?  
@@ -101,7 +101,7 @@ It makes all the difference in the world if you have  a guide who likes and und
   
 Inside the museum, you can pick 3 or 5 postcards and make a game of "who can find the post card pictures first". Kids often enjoy audio tapes in museums and sometimes they have them especially made for children ( although we have also used the adult ones for her even when Mozart was 5 at our start).
 
-[![Family travel means kids at a museum in France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550e228970c.jpg "Family travel means kids at a museum in France")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550e228970c.jpg)  
+![Family travel means kids at a museum in France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550e228970c.jpg)  
   
   
 Use your creativity to find ways to keep them engaged by thinking like a child. Play I spy games. Play compare games. Many museums have special things for kids like scavenger hunts and more. Take part in them and use them to add ideas to other places.  
@@ -120,7 +120,7 @@ Less is more. If you only have a week, it's probably best to just go to one plac
   
 Become regulars at your local museums and don't be afraid to spend many days at one place ( we did that with the Melk Abbey and many other places including the [Eiffel Towe](http://soultravelers3new.local/2006/09/mozarts-6th-at.html)r and [Granada's Alhambra](http://soultravelers3new.local/2007/03/ancient-princes.html)). It can be a very different experience seeing them at night or at different times of the day. There are usually parts that you can visit without paying and may add to your ability to get more out of it when you do come back to pay or take a tour. 
 
-[![Family travel kids at a museum in France having fun near an ancient statue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22b2e43970b.jpg "Family travel kids at a museum in France having fun near an ancient statue")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22b2e43970b.jpg)  
+![Family travel kids at a museum in France having fun near an ancient statue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f22b2e43970b.jpg)  
   
   
   
@@ -150,4 +150,4 @@ With an "only" child we have advantages because we "outnumber" her and can take 
 
 What are your best tips for doing museum and tours with kids? 
 
-[![family travel in Spain kids learning and educational travel tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550f1be970c.jpg "family travel in Spain kids learning and educational travel tips")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550f1be970c.jpg)
+![family travel in Spain kids learning and educational travel tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348550f1be970c.jpg)

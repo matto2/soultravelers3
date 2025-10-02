@@ -14,13 +14,13 @@ tags:
   - "visiting-china-with-kids"
 ---
 
-[![IMG_0752](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e34787f970c.jpg "IMG_0752")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e34787f970c.jpg)Shanghai with Kids
+![IMG_0752](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e34787f970c.jpg)Shanghai with Kids
 
 Is Shanghai great  
 for family travel?  
 We thought so and
 
-<!--more--> [![Oldest tea house in Shanghai with mom and daughter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5a9450d970d.jpg "Oldest tea house in Shanghai with mom and daughter")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5a9450d970d.jpg)  
+<!--more--> ![Oldest tea house in Shanghai with mom and daughter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5a9450d970d.jpg)  
   
 Is Shanghai great for family travel? We thought so and went primarily to meet up with expat friends with 3 kids as we set up this American-kids-in-China play date years ago.  
   

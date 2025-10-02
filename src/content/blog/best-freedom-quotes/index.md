@@ -15,19 +15,19 @@ tags:
   - "thinking-about-freedom"
 ---
 
-[![IMG_6186](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abdd0a81970d.jpg "IMG_6186")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abdd0a81970d.jpg)Best Freedom Quotes  
+![IMG_6186](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abdd0a81970d.jpg)Best Freedom Quotes  
   
 As I looked out my kitchen window  
 at this beautiful tropical island  
 paradise on this July 4th, I
 
-<!--more--> [![Beautiful island and freedom quotes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910413d8a9970c.jpg "Beautiful island and freedom quotes")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910413d8a9970c.jpg)  
+<!--more--> ![Beautiful island and freedom quotes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910413d8a9970c.jpg)  
   
 As I looked out my [kitchen](http://soultravelers3new.local/2013/05/omg-an-oven-in-asia.html "kitchen in Asia") window at this beautiful [tropical island paradise](http://soultravelers3new.local/2013/01/tropical-island-paradise.html "tropical island paradise") on this July 4th, I couldn't help but think about [freedom](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "Early retirement and perpetual travel") and how our [nomadic travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "nomadic travel lifestyle") has allowed us so much of that quality.  
   
 I wish all my friends and family in the USA a fun day of BBQ's and fireworks and parades and most of all more love. The same to my Canadian friends celebrating Canada Day this week. No matter where you are I send you more [love, peace and happiness](http://soultravelers3new.local/2012/10/world-peace-love-and-happiness.html "love, peace and happiness"). Let us ponder and create more freedom together.  
   
-[![fireworks and freedom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abdd8e33970d.jpg "fireworks and freedom")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abdd8e33970d.jpg)  
+![fireworks and freedom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abdd8e33970d.jpg)  
   
   
 **BEST QUOTES ON FREEDOM**  

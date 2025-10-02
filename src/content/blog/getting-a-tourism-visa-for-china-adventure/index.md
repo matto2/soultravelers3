@@ -3,7 +3,7 @@ title: "Getting a Tourism Visa for China Adventure"
 date: 2012-11-06
 ---
 
-[![IMG_6236](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d2b0d67970c.jpg "IMG_6236")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d2b0d67970c.jpg)Getting a Tourism Visa  
+![IMG_6236](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d2b0d67970c.jpg)Getting a Tourism Visa  
 for China Adventure  
   
 We're heading off to China  
@@ -21,7 +21,7 @@ After 7 years of [non-stop world travel](http://soultravelers3new.local/2008/06/
 Because our child is in a [Mandarin school in Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Mandarin school in Penang"), we all have long stay visas for Malaysia, thus that probably makes things a bit easier. It's probably easiest to get one's visa from your home country, but since we are rarely there and we are very [spontaneous about travel decisions](http://soultravelers3new.local/2011/06/road-trip-europe-plan-then-improvise.html "road trip planning and improvising"), we almost always get our visas while traveling.  
   
   
-[![great wall of China picture on our Chinese visas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d2b0ebc970c.jpg "great wall of China picture on our Chinese visas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d2b0ebc970c.jpg)  
+![great wall of China picture on our Chinese visas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d2b0ebc970c.jpg)  
   
 Often they are quite easy, but China had more rules ( but not as many as India). The China visa is also quite expensive for Americans ( 1500 rmb or 165 dollars each), but I hear that is because of reciprocity. We could have paid an agency to do this for us, but the price was outrageous, almost as much as the visa, so we just did it on our own since we are budget travelers.  
   

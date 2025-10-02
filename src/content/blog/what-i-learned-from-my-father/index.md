@@ -17,14 +17,14 @@ tags:
 ---
 
   
-[![Dad and all](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163056f15d6970d.jpg "Dad and all")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163056f15d6970d.jpg)What I Learned From My Father  
+![Dad and all](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163056f15d6970d.jpg)What I Learned From My Father  
   
 Father's have a profound  
 affect on our entire lives.  
 Scores of research studies have
 
 <!--more-->  
-[![Dad and all of us kids. I was Mozart's age -11](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305b53a11970d.jpg "Dad and all of us kids. I was Mozart's age -11")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305b53a11970d.jpg)
+![Dad and all of us kids. I was Mozart's age -11](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305b53a11970d.jpg)
 
 Father's have a profound affect on our entire lives. Scores of research studies have documented the positive effects of involved fathers and we know it in our hearts.   
   
@@ -35,7 +35,7 @@ I will dearly miss this handsome, charismatic, six foot four, tender-hearted dyn
   
 He didn’t tell me how to live; he lived, and let me watch him do it. ~Clarence Budington Kelland  
   
-[![Mom and Dad wedding-1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fc92c970d.jpg "Mom and Dad wedding-1")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fc92c970d.jpg)  
+![Mom and Dad wedding-1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fc92c970d.jpg)  
   
   
   
@@ -49,7 +49,7 @@ He would have been shocked to know people around the world were praying for this
   
 We always worried so that he would die alone, as he lived with no phone in a primitive place, far in the boonies and it was quite an ordeal for my brother and sister to take turns driving about 18 hours each way to check in on him a few times a year, but he wasn't willing to leave his beloved land until recently. Fiecely independant types as elders can be a challenge for their children who love them dearly. ( I hope I remember this when I am 80). Still, you can't help but admire their spunk!  
   
-[![Dad as a young boy, I can see my face and Mozart's in it](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fe891970d.jpg "Dad as a young boy, I can see my face and Mozart's in it")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fe891970d.jpg)  
+![Dad as a young boy, I can see my face and Mozart's in it](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fe891970d.jpg)  
   
   
 Yet, God always has a perfect plan and my heart weeps in gratitude that it unfolded so sweetly as he deserved it. He even had a full church of mourners at his funeral as my Sister-in-law is very active in her church there. That and all your prayers probably has him chuckling in Heaven and gives us peace of mind.  
@@ -74,7 +74,7 @@ We're a family that is pretty practical about funerals and such, not expecting a
   
   
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fc92c970d-768x765-1.jpg)[![Dad 1985](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766a93ff0970b.jpg "Dad 1985")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766a93ff0970b-300x201-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163059fc92c970d-768x765-1.jpg)![Dad 1985](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766a93ff0970b-300x201-1.jpg)  
   
   
   

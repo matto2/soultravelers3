@@ -16,7 +16,7 @@ tags:
   - "where-in-heaven-is-mozart"
 ---
 
-[![IMG_2887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390645b22970b-scaled-1.jpg "IMG_2887")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390645b22970b-scaled-1.jpg)
+![IMG_2887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390645b22970b-scaled-1.jpg)
 
 Kid Playing Violin Around the World
 
@@ -24,7 +24,7 @@ When Mozart started
 playing the violin at  
 23 months, we never
 
-<!--more--> [![playing violin around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543437c36f970c.jpg "playing violin around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543437c36f970c.jpg)  
+<!--more--> ![playing violin around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543437c36f970c.jpg)  
   
   
 When Mozart started playing the violin at 23 months, we never realized that we would be [traveling the world](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling the world") for many years as a family. Thus we never realized that she would be a [kid playing her violin around the world](http://soultravelers3new.local/2008/12/where-in-heaven.html "kid playing violin around the world"), but now it has become our Soultravelers3 signature and fun habit.  
@@ -45,7 +45,7 @@ We think it is hilarious that some people think that we just stayed home and put
   
 We actually never knew that she would be playing the violin at all. It happened because she had a [passion for music](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "passion for music") from babyhood and grew up in a country neighborhood near an extraordinary Suzuki violin teacher ( and mother of 7). All the kids in the neighborhood played violin, so she had great interest in learning and an amazing teacher to meet that need.
 
-[![Violin at 3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a585c71970d.jpg "Violin at 3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a585c71970d.jpg)  
+![Violin at 3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a585c71970d.jpg)  
   
   
 Voila! Violin became part of our life and piano followed quickly starting at 3. We didn't want to leave them behind when we began to [travel the world as a family,](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "travel the world as a family") so found a way because if there is a will there is always a way. The photo at the top is her playing in Edinburgh, Scotland ..one of our many stops and the little one is in the midst of a violin concert at three listening intently to her teacher.  

@@ -16,7 +16,7 @@ tags:
   - "where-to-visit-california"
 ---
 
-Top 16 California Destinations [![6a00e5502a950788330162fee6e19e970d-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616f8e61f970c.jpg "6a00e5502a950788330162fee6e19e970d-pi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616f8e61f970c.jpg)
+Top 16 California Destinations ![6a00e5502a950788330162fee6e19e970d-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616f8e61f970c.jpg)
 
 Planning a trip to California?  
 Doing a California road trip  
@@ -24,7 +24,7 @@ or just a vacation or get away?
 
 <!--more-->
 
-  [![Best places to travel to in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743df067e970d.jpg "Best places to travel to in California")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743df067e970d.jpg)  
+  ![Best places to travel to in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743df067e970d.jpg)  
   
 Planning a trip to [California?](http://soultravelers3new.local/2012/02/beautiful-capitola-californias-oldest-beach.html "California") Doing a California road trip or just a vacation or get away? Need tips from a native? There are endless places to choose, as it is a magnificent state, bigger than most countries. Out of the 44 countries on 5 continents that we have been to on our open ended [world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "world tour") these last seven years, [California](http://soultravelers3new.local/2012/05/san-francisco-travel-why-we-love-it.html "san francisco , california") still rates as one of the most beautiful in the world.  
   

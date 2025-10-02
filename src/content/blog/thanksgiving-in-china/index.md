@@ -17,13 +17,13 @@ tags:
   - "travel-on-thanksgiving"
 ---
 
-[![IMG_8323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55abd51970d.jpg "IMG_8323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55abd51970d.jpg)Thanksgiving in China  
+![IMG_8323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55abd51970d.jpg)Thanksgiving in China  
   
 Clear, crisp days, colorful  
 autumn leaves, a little snow,  
 it certainly looks like Thanksgiving
 
-<!--more--> [![IMG_8323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55abeac970d.jpg "IMG_8323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55abeac970d.jpg)  
+<!--more--> ![IMG_8323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55abeac970d.jpg)  
   
 Clear, crisp days, colorful autumn leaves, a little snow, it certainly looks like Thanksgiving Day  here in [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "traveling in China") and our hearts are filled with gratitude, but [celebrating an American holiday while traveling abroad](http://soultravelers3new.local/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "celebrating a holiday while traveling abroad") is always an interesting experience. This is our 7th year of doing this internationally, but last year we were at [home for the holidays](http://soultravelers3new.local/2011/11/home-for-the-holidays.html "home for the holidays").  
   

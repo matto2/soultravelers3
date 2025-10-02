@@ -15,7 +15,7 @@ find that take accurate. We debated for a while whether
 
 <!--more-->
 
-[![Img_8751](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8751.png "Img_8751")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8751.png)
+![Img_8751](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8751.png)
 
 I have heard Hvar Town called “Venice without the crowds” and there certainly is a strong Venetian influence, but we did not find that take accurate. We debated for a while whether to go to Hvar and Korcula, two popular Croatian islands between Split and Dubrovnik.
 
@@ -40,26 +40,26 @@ The Romanesque walls, elaborate cathedrals and lovely Renaissance architecture m
 Hvar is famous for its lavender and the smell permeates the air as there are stands everywhere with every conceivable souvenir that can be made with them. Our old home was filled with many kinds of  lavender in our gardens, so it is a scent we love and miss. Mozart, of course, succumbed to some sachets and oil,  
 so people will probably smell us coming for months to come!
 
-[![Img_8550](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8550.png "Img_8550")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8550.png)
+![Img_8550](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8550.png)
 
-[![Img_8564](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8564.png "Img_8564")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8564.png)
+![Img_8564](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8564.png)
 
-[![Img_8610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8610.png "Img_8610")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8610.png)
+![Img_8610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8610.png)
 
-[![Img_8598](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8598.png "Img_8598")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8598.png)
+![Img_8598](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8598.png)
 
-[![Img_8596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8596.png "Img_8596")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8596.png)
+![Img_8596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8596.png)
 
-[![Img_8653](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8653.png "Img_8653")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8653.png)
+![Img_8653](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8653.png)
 
-[![Img_8651](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8651.png "Img_8651")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8651.png)
+![Img_8651](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8651.png)
 
-[![Img_8655](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8655.png "Img_8655")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8655.png)
+![Img_8655](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8655.png)
 
-[![Img_8705](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8705.png "Img_8705")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8705.png)
+![Img_8705](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8705.png)
 
-[![Img_8710](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8710.png "Img_8710")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8710.png)
+![Img_8710](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8710.png)
 
-[![Img_8716](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8716.png "Img_8716")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8716.png)
+![Img_8716](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8716.png)
 
-[![Img_8560](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8560.png "Img_8560")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8560.png)
+![Img_8560](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8560.png)

@@ -15,13 +15,13 @@ tags:
   - "slipping-through-my-fingers"
 ---
 
-[![IMG_3674](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766c7f278970b.jpg "IMG_3674")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766c7f278970b.jpg)Life's Simple Pleasures  
+![IMG_3674](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766c7f278970b.jpg)Life's Simple Pleasures  
   
 Sometimes it is just the  
 little simple things in life  
 that touch our hearts and enrich
 
-<!--more--> [![Life's simple pleasures like braiding a child's hair](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305d3e832970d.jpg "Life's simple pleasures like braiding a child's hair")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305d3e832970d.jpg)  
+<!--more--> ![Life's simple pleasures like braiding a child's hair](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305d3e832970d.jpg)  
   
   
 Sometimes it is just the little simple things in life that touch our hearts and enrich us. As a primarily [homeschooling](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschooling and travel") parent who [retired early](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retire early") to have more time as a family and [travel the world](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "travel the world as a family"), I miss that endless time together when kidlet dips into school for language like she is doing here in Asia.  
@@ -32,7 +32,7 @@ She can do the bun herself as they have a common contraption here for such thing
   
   
   
-[![simple pleasure - braiding her hair in France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebd34f82970c.jpg "simple pleasure - braiding her hair in France")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebd34f82970c.jpg)  
+![simple pleasure - braiding her hair in France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebd34f82970c.jpg)  
   
   
 I love this moment together as we get up, after cuddling for 15 minutes after the alarm goes off. Usually, my skinny, tiny  kidlet  is in her underwear, little bra, socks and school shoes ( she goes to high school after all and is a tween). We are both half awake, me in the same odd but comfy nightgown that I have worn for 6 years when we began [our world trip](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family world trip") that I bought at Ross for five dollars. The tropical weather makes it always a comfortable temperature in the early morning and her Dad is in the kitchen fixing breakfast and making his coffee, the birds are tweeting morning sounds.  

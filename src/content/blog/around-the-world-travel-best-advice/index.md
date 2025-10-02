@@ -20,14 +20,14 @@ tags:
   - "rtw-trip"
 ---
 
-[![IMG_4746](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee66e6153970d.jpg "IMG_4746")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee66e6153970d.jpg) Around-the-World Travel - 
+![IMG_4746](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee66e6153970d.jpg) Around-the-World Travel - 
 Best Advice  
   
 Are you planning an around-the-world  
 trip or extended travel as a family,  
 couple or solo traveler?
 
-<!--more--> [![around-the-world travel photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34cae97f970b.jpg "around-the-world travel photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34cae97f970b.jpg)  
+<!--more--> ![around-the-world travel photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34cae97f970b.jpg)  
   
 Are you planning an [around-the-world trip](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world trip planning") or extended travel as a family, couple or solo traveler? We got lots of [advice](http://soultravelers3new.local/2012/08/best-packing-tip-for-world-travel.html "best packing tip for world travel") before we left on our [open ended family world trip](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html " family world trip - open ended") seven years ago, but the [best advice](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html "best advice for college grads") we got was to take more than a year.  
   

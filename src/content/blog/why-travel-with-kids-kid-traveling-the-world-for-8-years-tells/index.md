@@ -27,14 +27,14 @@ tags:
   - "why-travel-with-kids"
 ---
 
-[![IMG_8601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29f41e970d.jpg "IMG_8601")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29f41e970d.jpg)Why Travel With Kids?  Kid Traveling  
+![IMG_8601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29f41e970d.jpg)Why Travel With Kids?  Kid Traveling  
 the World for 8 Years Tells!  
   
 Why travel with children? Is traveling  
 with kids around the world an  
 educational benefit and doable
 
-<!--more--> [![Why travel with kids - Amazing little girl travels the world 8 years!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff299d0a970c.jpg "Why travel with kids - Amazing little girl travels the world 8 years!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff299d0a970c.jpg)  
+<!--more--> ![Why travel with kids - Amazing little girl travels the world 8 years!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff299d0a970c.jpg)  
   
   
 Why [travel with children](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html "travel with kids - educational benefits")? Is [traveling with kids](http://soultravelers3new.local/2013/04/ireland-travel-with-kids.html "traveling with kids in Ireland") [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world tips") an [educational benefit](http://soultravelers3new.local/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html "travel with kids educational benefit") and [doable dream?](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html "advice to college grads about dreams from a world traveler") Our [trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html "raising a bilinugual or trilingual child") 12 year old was recently interviewed for a [TV show](http://soultravelers3new.local/2013/06/how-to-get-on-tv.html "how to get on TV") and we have been [traveling around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "traveling around the world ") non-stop for 8 years now, so I thought you might be interested in what she has to say.  
@@ -56,7 +56,7 @@ Please share on Facebook if you like this video!
   
 **CAN WE TEACH PEACE AND ACCEPTANCE THROUGH TRAVEL?**  
   
-[![travel with your children = exploring Europe together](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29a4e7970c.jpg "travel with your children = exploring Europe together")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29a4e7970c.jpg)  
+![travel with your children = exploring Europe together](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29a4e7970c.jpg)  
   
   
   
@@ -87,31 +87,31 @@ Best yet, Mozart has had [time to deeply bond with her Mom](http://soultravelers
   
 As well as mucho [multigenerational family  travel](http://soultravelers3new.local/2008/04/family-arrives.html "multigenerational travel") with her  Grandpa and aunt in Europe,   
   
-[![travel with kids - it is all about the loving](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29416c970b.jpg "travel with kids - it is all about the loving")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29416c970b.jpg)  
+![travel with kids - it is all about the loving](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff29416c970b.jpg)  
   
   
 extended [travel with  her  Grandma in Asia](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html "travel with Grandma - multigeneratioinal travel"), time with [cousins in Florida](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "florida road trip") ( along with [Harry Potter's Wizarding World](http://soultravelers3new.local/2012/01/the-wizarding-world-of-harry-potter-kids-review.html "Harry Potters Wizarding world")) and many relatives in [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California").  
   
-[![travel with kids - means multigenerational travel sometimes with hugs from Grandma](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2940c0970b.jpg "travel with kids - means multigenerational travel sometimes with hugs from Grandma")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2940c0970b.jpg)  
+![travel with kids - means multigenerational travel sometimes with hugs from Grandma](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2940c0970b.jpg)  
   
-[![Travel with kids means visiting family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2a0197970d.jpg "Travel with kids means visiting family")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2a0197970d.jpg)  
+![Travel with kids means visiting family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2a0197970d.jpg)  
   
 **SLOW TRAVEL AND KEEPING UP RELATIONSHIPS**  
   
 The key for our [trip around the world](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "trip around the world") has been [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel") and keeping up relationships as we roam the world.  Not only does it [prevent travel burn out](http://soultravelers3new.local/2011/08/how-to-prevent-travel-burnout.html "prevent travel burn out"), but also allows our [location independent kid to have close friends](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html "location independent travel kids and friends") and [deep relationships while traveling the world](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "kids friends and travel").  
   
-[![Travel with kids - means making cookies with aunties](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b7b36970d.jpg "Travel with kids - means making cookies with aunties")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b7b36970d.jpg)  
+![Travel with kids - means making cookies with aunties](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b7b36970d.jpg)  
   
   
 **HOW TO STAY CONNECTED WHILE TRAVELING**  
   
 [Regular webcam calls](http://soultravelers3new.local/2012/08/how-to-stay-connected-with-family-while-you-travel-around-the-world.html "how to stay in touch with famiyl while traveling"), returning to places we love regularly, visiting famiy or traveling with extended family  and [packages from home](http://soultravelers3new.local/2012/10/-living-and-traveling-abroad-mail-from-home-thrills.html "packages and mail from home for expats and travelers") are keys for us. In my opinion, with an only child, if you miss deep relationships, you miss the world. Sooo many amazing places on this planet, but it's the people that makes beautiful places extra special and memorable.  
   
-[![Travel with kids means speaking in other languages like Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b2084970c.jpg "Travel with kids means speaking in other languages like Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b2084970c.jpg)  
+![Travel with kids means speaking in other languages like Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b2084970c.jpg)  
   
 [Learning languages](http://soultravelers3new.local/language-learning/ "language learning") well has also helped her connect deeply and that takes time. Mozart is a very social child and loves things like birthday parties with friends and sleep overs. So we do sleep overs...in [California](http://soultravelers3new.local/2006/08/suite-bon-voyag.html "sleep over party california"), in [Spain](http://soultravelers3new.local/2008/04/slumber-party-i.html "slumber party in spain"), in Denver,  [Asia](http://soultravelers3new.local/2012/10/global-travel-tween-ultimate-birthday-party-in-asia.html "sleep over birthday party Asia") and more. ( Going to have another one this weekend.) She has [celebrated her birthday all over the world](http://soultravelers3new.local/2011/10/celebrating-kids-birthdays-while-traveling.html "celebrate birthdays around the world")...soon to celebrate another one.... in her 9th country and 4th continent.  
   
-[![Travel with kids means making friends in your other languages...like Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b7dfc970d.jpg "Travel with kids means making friends in your other languages...like Spanish")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b7dfc970d.jpg)  
+![Travel with kids means making friends in your other languages...like Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff2b7dfc970d.jpg)  
   
 **FRIENDS AROUND THE WORLD**  
   

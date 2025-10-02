@@ -13,7 +13,7 @@ We could not believe it was snowing in Florence in October! We had left sunny Vi
 
 <!--more-->
 
-[![Img_4830](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4830.png "Img_4830")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4830.png)
+![Img_4830](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4830.png)
 
 We could not believe it was snowing in Florence in October! We had left sunny Vienna and headed south, expecting more warmth, so we were stunned when the snow started pouring down as we approached Florence from Verona. Last year, it had been exceptionally warm at this time but as luck would have it,  
 we happened to run into an exceptional cold spell. Thankfully, it did not last too long and we were soon blessed with a rainbow over the Tuscan hills, as the sun sneaked back.
@@ -24,26 +24,26 @@ We knew we wanted to spend at least a week in Florence since there is so much to
 
 After dinner, that first night, we had a movie marathon with a spectacular PBS series about Florence and the Medici family that was called “The Medici, Godfathers of the Renaissance”. It was fascinating and we were all riveted for the whole 220 minutes, drinking it all in. We could not have had a better and more entertaining preparation to visiting Florence!
 
-[![Img_4795](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4795.png "Img_4795")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4795.png)
+![Img_4795](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4795.png)
 
-[![Img_4803](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4803.png "Img_4803")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4803.png)
+![Img_4803](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4803.png)
 
-[![Img_4831](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4831.png "Img_4831")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4831.png)
+![Img_4831](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4831.png)
 
-[![Img_4846](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4846.png "Img_4846")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4846.png)
+![Img_4846](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4846.png)
 
-[![Img_4857](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4857.png "Img_4857")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4857.png)
+![Img_4857](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4857.png)
 
-[![Img_5280](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_5280.png "Img_5280")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5280.png)
+![Img_5280](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5280.png)
 
-[![Img_5289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_5289.png "Img_5289")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5289.png)
+![Img_5289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5289.png)
 
-[![Img_5582](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_5582.png "Img_5582")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5582.png)
+![Img_5582](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5582.png)
 
-[![Img_5388](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_5388.png "Img_5388")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5388.png)
+![Img_5388](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5388.png)
 
-[![Img_5585](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_5585.png "Img_5585")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5585.png)
+![Img_5585](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5585.png)
 
-[![Img_5764](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_5764.png "Img_5764")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5764.png)
+![Img_5764](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5764.png)
 
-[![Img_5769](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_5769.png "Img_5769")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5769.png)
+![Img_5769](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_5769.png)

@@ -20,14 +20,14 @@ tags:
   - "travelling-when-sick"
 ---
 
-[![IMG_5914](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ce34b08970c.jpg "IMG_5914")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ce34b08970c.jpg)Traveling While Sick or With  
+![IMG_5914](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ce34b08970c.jpg)Traveling While Sick or With  
 Health/ Medical Challenges  
   
 Who doesn't love the  
 excitement and exhilarating  
 benefits of travel? A vacation abroad
 
-<!--more--> [![traveling when sick and bringing medicine with you](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4587d20970d.jpg "traveling when sick and bringing medicine with you")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4587d20970d.jpg)  
+<!--more--> ![traveling when sick and bringing medicine with you](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4587d20970d.jpg)  
   
 Who doesn't love the excitement and exhilarating [benefits of travel](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html "benefits of family travel")? A [vacation abroad](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best tips for taking kids abroad for vacation") can fill you with euphoria and memories that last a life time. But what if you are sick? If you have a [health,](http://soultravelers3new.local/2007/11/bloody-monday-i.html "health challenge while traveling ") mobility or medical problem, travel... especially international travel... can be much more problematic.  
   
@@ -39,7 +39,7 @@ Last year, we had to cancel our [trip to Romania](http://soultravelers3new.local
   
 What is a [nomadic world traveler](http://soultravelers3new.local/2008/06/how-to-do-exten.html "how to do extended nomadic travel") and [travel blogger](http://soultravelers3new.local/2010/12/bbc-interviews-soultravelers3-on-social-media-and-travel.html "soultravelers3 on BBC about social media and travel blogging") going to do?  
   
-[![travel while recovering from surgery- I look happy and was, but I was quite fragile , couldn't take the tube or use a tub](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32c34778970b.jpg "travel while recovering from surgery- I look happy and was, but I was quite fragile , couldn't take the tube or use a tub")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32c34778970b.jpg)  
+![travel while recovering from surgery- I look happy and was, but I was quite fragile , couldn't take the tube or use a tub](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32c34778970b.jpg)  
   
   
 Now we have a trip scheduled to China and I still have travel health issues. Recently a friend just returned from China and they and half their group had health problems, but another two friends have been there a year with no problem. Will I be able to make it? I hope so!  
@@ -55,7 +55,7 @@ The massive [antibiotics](http://www.examiner.com/article/dr-campbell-mcbride-ex
   
 My brother didn't even think we should have ever started our [world trip](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "why take family world trip") as he thought I should stay home and lose weight. Good point, but I don't see why I can't [get fit while traveling](http://soultravelers3new.local/2012/08/exercise-and-travel-how-to-stay-in-shape-while-traveling.html "get fit while traveling") and I wouldn't have missed all these amazing experinces and time together for all the world. I have been losing weight but [science shows that fat people can be as healthy](http://io9.com/5902573/new-study-shows-that-being-fat-does-not-mean-that-you-will-die-young "fat can be healthy too") as thin people, so I just keep working on my health and getting all of us even healthier.  
   
-[![doing painful physcial therapy in 5 countries while traveling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4677192970d.jpg "doing painful physcial therapy in 5 countries while traveling")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4677192970d.jpg)  
+![doing painful physcial therapy in 5 countries while traveling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4677192970d.jpg)  
   
   
 I don't talk much about the pain and suffering that I have been going through since that bike accident in 2009, but it's had a profound affect on me, our whole family and our travels. I've pretty much been in constant pain and that takes a toll on all of us, but we do our very best to keep a positive focus and deep gratitude that it's not worse.  I think I am making progress, but it is a slow road with daily ups and downs. I tend to wake up early from the pain, but after taking a few supplements, I am doing fairly good most mornings finally, but the afternoons and evenings tend to be much worse on me. My energy and pain levels are mostly much better than they were when I was in California.  
@@ -66,7 +66,7 @@ I just [turned 60](http://soultravelers3new.local/2012/04/happy-birthday-baby.ht
   
 Being this ill for so long and working as hard as we have to get well 24/7 for three years now, gives one a deep focus on what is important and essential in life. It is never easy being this ill for so long and travel just makes it more complicated, so we're even more into [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel benefits"). I can do less, but we make the most of what I CAN do, like this photo shows of Mozart and I in the pool after I just got a healing massage. [Penang](http://soultravelers3new.local/2012/04/penang-apartment-or-condo-rental-plenty-of-choices.html "Penang Malaysia apartments for rent") is a great place to heal because there is lots of [organic food](http://soultravelers3new.local/2012/08/where-to-buy-organic-food-in-penang.html "organic food in Penang"), [good hospital](http://soultravelers3new.local/2012/07/penang-best-hospitals-great-health-care-at-low-cost.html "good hospitals in Penang")s and wonderful [Chinese Medicine](http://soultravelers3new.local/2012/08/where-to-buy-organic-food-in-penang.html "Chinese Medicine in Penang") and alternative things at good prices.  
   
-[![Joy of pools for those who travel with health challenges](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf26aac970c.jpg "Joy of pools for those who travel with health challenges")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf26aac970c.jpg)  
+![Joy of pools for those who travel with health challenges](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cf26aac970c.jpg)  
   
 The hardest thing about traveling when you are sick is because it takes you out of the routine and if one has the kind of food restrictions I live with, just finding what I can eat can be very hard. I made it through [Bhutan](http://soultravelers3new.local/2011/07/tigers-nest-in-paro-bhutan.html "Bhutan vacation"), [Jordan](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "Jordan vacation") and [Spain](http://soultravelers3new.local/2010/06/family-travel-tips-in-spains-costa-del-sol-countryside-adventures-mediterranean-beaches-photography-.html "southern spain tips") while still ill, so I am trusting that all will go well in China. Luckily, I have a local friend there who can guide me if I should need it and he is a Tai Chi master so maybe that will be a new therapy that will help me.  
   
@@ -78,6 +78,6 @@ I am like that kid who sees the manure and looks for the pony. I always like to 
   
   
   
-[![Floating bliss](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32c40ad7970b.jpg "Floating bliss")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32c40ad7970b.jpg)  
+![Floating bliss](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32c40ad7970b.jpg)  
   
 Have you ever traveled when you were sick, mobility challenged or medically challenged? What were the keys that worked best for you? How did you deal with the fear that comes up about being in a foreign place if things get bad? How do you handle food restrictions?

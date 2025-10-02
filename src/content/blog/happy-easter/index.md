@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1828](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1828.png "Img_1828")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1828.png) Happy Easter!  
+ ![Img_1828](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1828.png) Happy Easter!  
 March 27, 2007
 
 It was really people that made this Easter  
@@ -15,7 +15,7 @@ that the Easter Bunny found her as this is
 
 <!--more-->
 
-[![Img_1828_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1828_2.png "Img_1828_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1828_2.png)
+![Img_1828_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1828_2.png)
 
 It was really people that made this Easter holiday special, but Mozart was also thrilled that the Easter Bunny found her as this is not a tradition in Spain. The stores are not filled with cellophane grass and baskets and tons of Easter candy like at home, yet that did not stop Mozart from hoping against hope that some how she would celebrate a traditional American Easter with a surprise basket when she woke up on Easter morning.
 
@@ -49,16 +49,16 @@ We have been having a little problem with our bank card not giving us all the mo
 
 They even made us a large bag of goodies to take with us so that we would have food, water and juices etc to eat on our long journey. It turned out to be a wonderful thing to have as we started out at four thirty in the morning and few things were open along our sojourn into Africa. I had been feeling very nervous about Morocco as we left our village, but now we were feeling so supported that our confidence was back for this exciting adventure!
 
-[![Img_1805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1805.png "Img_1805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1805.png)
+![Img_1805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1805.png)
 
-[![Img_1821](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1821.png "Img_1821")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1821.png)
+![Img_1821](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1821.png)
 
-[![Img_1804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1804.png "Img_1804")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1804.png)
+![Img_1804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1804.png)
 
-[![Img_1859](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1859.png "Img_1859")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1859.png)
+![Img_1859](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1859.png)
 
-[![Img_1860](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1860.png "Img_1860")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1860.png)
+![Img_1860](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1860.png)
 
-[![Img_1864](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1864.png "Img_1864")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1864.png)
+![Img_1864](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1864.png)
 
-[![Img_1872](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1872.png "Img_1872")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1872.png)
+![Img_1872](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1872.png)

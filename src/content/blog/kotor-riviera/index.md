@@ -15,7 +15,7 @@ fiord in the Mediterranean and many say the most beautiful.
 
 <!--more-->
 
-[![Img_7778](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7778.png "Img_7778")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7778.png)
+![Img_7778](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7778.png)
 
 Kotor, Montenegro is twenty centuries old, a Unesco World Heritage Site and quite a fascinating place. The Kotor Riviera is the deepest fiord in the Mediterranean and many say the most beautiful. We truly enjoyed exploring this area and swimming in this heavenly spot which has an aura of another time.
 
@@ -29,26 +29,26 @@ We walked around the old town, spotted the hand made dolls dressed in native cos
 
 After satiating ourselves with Kotor, we were back in our car, ready to investigate more small villages and beaches. We found the perfect spot for Mozart to jump in, for me to glide in with railed stairs and for all of us to swim out into the bay and float around in the idyllic water. We had a blast! The day ended with the most marvelous sunset on our way home to Dubrovnik, that had us stopping more than a few times to try to capture it.
 
-[![Img_7610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7610.png "Img_7610")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7610.png)
+![Img_7610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7610.png)
 
-[![Img_7619](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7619.png "Img_7619")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7619.png)
+![Img_7619](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7619.png)
 
-[![Img_7617](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7617.png "Img_7617")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7617.png)
+![Img_7617](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7617.png)
 
-[![Img_7623](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7623.png "Img_7623")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7623.png)
+![Img_7623](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7623.png)
 
-[![Img_7624](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7624.png "Img_7624")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7624.png)
+![Img_7624](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7624.png)
 
-[![Img_7666](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7666.png "Img_7666")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7666.png)
+![Img_7666](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7666.png)
 
-[![Img_7669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7669.png "Img_7669")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7669.png)
+![Img_7669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7669.png)
 
-[![Img_7723](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7723.png "Img_7723")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7723.png)
+![Img_7723](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7723.png)
 
-[![Img_7739](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7739.png "Img_7739")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7739.png)
+![Img_7739](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7739.png)
 
-[![Img_7795](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7795.png "Img_7795")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7795.png)
+![Img_7795](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7795.png)
 
-[![Img_7812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7812.png "Img_7812")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7812.png)
+![Img_7812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7812.png)
 
-[![Img_7936](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_7936.png "Img_7936")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7936.png)
+![Img_7936](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_7936.png)

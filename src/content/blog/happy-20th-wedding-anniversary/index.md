@@ -14,7 +14,7 @@ tags:
   - "wedding-anniversary"
 ---
 
- [![GetAttachment-2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434d78f4d970c.jpg "GetAttachment-2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434d78f4d970c.jpg) Happy 20th Wedding Anniversary!
+ ![GetAttachment-2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434d78f4d970c.jpg) Happy 20th Wedding Anniversary!
 
 The night before our 20th wedding  
 anniversary in Barcelona,  
@@ -22,7 +22,7 @@ our 10 year old woke us up
 
 <!--more-->
 
-[![a magical small wedding 20 years ago](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391040eb7970b.jpg "a magical small wedding 20 years ago")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391040eb7970b.jpg)  
+![a magical small wedding 20 years ago](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391040eb7970b.jpg)  
   
   
 
@@ -32,7 +32,7 @@ This is a kid who had gone to bed at midnight ( our usual bed time this [summer 
   
 What a sweet surprise to wake up to...this lovely large drawing and card to celebrate our 20th anniversary! Our 10 year old loves surprises and she had been working on this one for two weeks. She had made the drawing and card at the kids club here and kept it there until she just recently snuck it into a hidden spot in her cubby/bunk bed area. Even though I can not drink it now, I love it that she put a bottle of cava in the picture and made it a romantic candle light dinner.  
   
-[![perfect anniversary surprise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391040f66970b.jpg "perfect anniversary surprise")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391040f66970b.jpg)  
+![perfect anniversary surprise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391040f66970b.jpg)  
   
   
   
@@ -48,7 +48,7 @@ I took my daily hours- long swim, sauna, jacuzzi, steam room routine that makes 
   
 My Spanish is horrible, but I so enjoy our relaxing time together laughing and conversing totally in Spanish under the trees and stars with these lovely people as our tweens dash in and out enjoying their freedom at the pools and nearby kids disco and entertainment or just giggling and walking about between bites. Being [enveloped in Spanish and Spain](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "enveloped in Spanish and Spain") is music to my ears and balm for my soul.  
   
-[![favorite dream wedding photo taken by my brother that died only months later](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8af78f01970d.jpg "favorite dream wedding photo taken by my brother that died only months later")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8af78f01970d.jpg)  
+![favorite dream wedding photo taken by my brother that died only months later](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8af78f01970d.jpg)  
   
   
   

@@ -7,7 +7,7 @@ categories:
   - "spain"
 ---
 
- [![GetAttachment-3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f15fea00970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f15fea00970b.jpg) Family Travel Spain  
+ ![GetAttachment-3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f15fea00970b.jpg) Family Travel Spain  
 June 17, 2010
 
 With family travel, sometimes it is  
@@ -16,7 +16,7 @@ Extended family travel is often just about
 
 <!--more-->
 
-[![Koi fish in fountain in family travel Spain, simple pleasures](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f15fea7f970b.jpg "Koi fish in fountain in family travel Spain, simple pleasures")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f15fea7f970b.jpg)
+![Koi fish in fountain in family travel Spain, simple pleasures](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f15fea7f970b.jpg)
 
 With family travel, sometimes it is the little things that one remembers. [Extended family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) is often just about doing ordinary things in extraordinary places. Like [playing in the sand ....in the Sahara](http://soultravelers3new.local/2007/04/les-nomades-sah.html), [finger painting.... in France with fairies](http://soultravelers3new.local/2006/10/valley-of-the-f.html) or [swimming ...with Roman ruins in Turkey.](http://soultravelers3new.local/2007/08/pamukkale-and-h.html)
 

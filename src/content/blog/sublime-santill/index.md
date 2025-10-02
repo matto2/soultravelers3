@@ -34,17 +34,17 @@ We traveled across the Astrias region of Spain, to [Cantabrias](http://www.red20
 
 We stayed at a [nice campsite](http://www.pgl.co.uk/PGLWeb/Schools/Secondary-schools/educationaltours/Camping-Santillana.htm?ParentGuid={670BCABC-B4C0-4169-91B2-120090F87BC1}) in the countryside within walking distance to the village. We enjoyed the beautiful scenery and bucolic life. There is a sense of eternity here and it lulled us into another time and place as we watched nursing baby cows and horses on our way to the small cobbled streets of the classic village. Sure, there is some tourism, but mostly, village life goes on as it has for centuries, in a very simple way. Or at least that was our experience in late June.
 
-[![Img_3420](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3420.jpg "Img_3420")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3420.jpg)
+![Img_3420](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3420.jpg)
 
 The sun was shining so we were in good moods, enjoying an ideal day in a fairy tale town, learning a little history in a most pleasant way.
 
-[![Img_3390](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3390.jpg "Img_3390")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3390.jpg)
+![Img_3390](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3390.jpg)
 
 [![Img_3468](http://soultravelers3new.local/images/2008/10/16/img_3468.jpg "Img_3468")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3468.jpg)
 
-[![Img_3414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3414.jpg "Img_3414")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3414.jpg)
+![Img_3414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3414.jpg)
 
-[![Img_3600](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3600.jpg "Img_3600")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3600.jpg)
+![Img_3600](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3600.jpg)
 
 [![Img_3796](http://soultravelers3new.local/images/2008/10/16/img_3796.jpg "Img_3796")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3796.jpg)
 

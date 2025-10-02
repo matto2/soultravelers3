@@ -24,14 +24,14 @@ tags:
   - "traditional-food-recipe"
 ---
 
-[![IMG_5094](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d74eb970b.jpg "IMG_5094")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d74eb970b.jpg) How to Make Healthy  
+![IMG_5094](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d74eb970b.jpg) How to Make Healthy  
 Lacto-Fermented Salsa
 
 Do you love salsa? How would  
 you like to make a very  
 easy, super healthy salsa that
 
-<!--more--> [![Delicioius homemade easy fermented salsa made from organic tomatoes and ingredients](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b05e2970d.jpg "Delicioius homemade easy fermented salsa made from organic tomatoes and ingredients")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b05e2970d.jpg)  
+<!--more--> ![Delicioius homemade easy fermented salsa made from organic tomatoes and ingredients](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b05e2970d.jpg)  
   
 Do you love salsa? How would you like to make a very easy, super healthy salsa that your whole family will love? I was surprised to learn that salsa is the number one condiment in America. Since we LOVE [Mexican food](http://soultravelers3new.local/2012/07/mexican-food-around-the-world-make-your-own.html "Mexican food around the world") , we eat salsa a lot, often with pastured eggs for breakfast, as a snack or with lunch or dinner, so want the most healthy version.  
   
@@ -41,7 +41,7 @@ Do you love salsa? How would you like to make a very easy, super healthy salsa t
 This is such an easy and delicious recipe, that is even kid proof, so a fabulous way to introduce your family to lacto-fermented probiotic foods and perhaps the best way to get your feet wet if you have yet to try things like [making kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make kefir") or a [fermented chutney](http://soultravelers3new.local/2012/08/how-to-make-healthy-lacto-fermented-mango-papaya-chutney.html "how to make fermented chutney").  
   
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c33ef4e970c-300x225-1.jpg)[![Making homemade salsa- the easy lacto-fermented way](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3b4c2c1970d.jpg "Making homemade salsa- the easy lacto-fermented way")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3b4c2c1970d.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c33ef4e970c-300x225-1.jpg)![Making homemade salsa- the easy lacto-fermented way](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3b4c2c1970d.jpg)  
   
   
   
@@ -55,7 +55,7 @@ Our gut health is essential to ensure overall health and optimal wellness as all
   
   
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3d4ef4c970d-150x150-1.jpg)[![Lacto-fermented salsa in mason jars- ours are eaten up quickly](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3b4c54d970d.jpg "Lacto-fermented salsa in mason jars- ours are eaten up quickly")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3b4c54d970d-150x150-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3d4ef4c970d-150x150-1.jpg)![Lacto-fermented salsa in mason jars- ours are eaten up quickly](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3b4c54d970d-150x150-1.jpg)  
   
   
 Lacto-fermented foods are one of the easiest, most simple and worthwhile ways of adding vitamins, enzymes and probiotics to your diet. It is an ancient method that has been around for centuries in all traditional cultures primarily to preserve food over long periods of time when there is no refrigeration.  
@@ -87,7 +87,7 @@ _"Almost all naturally **fermented foods** are health promoting. The healthy bac
 _\- Jonny Bowden, Ph.D., C.N.S_  
   
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3d4ef4c970d-150x150-1.jpg)[![Lacto-fermented salsa is super easy to make and delicious](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3210e58b970b.jpg "Lacto-fermented salsa is super easy to make and delicious")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3210e58b970b-150x150-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3d4ef4c970d-150x150-1.jpg)![Lacto-fermented salsa is super easy to make and delicious](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3210e58b970b-150x150-1.jpg)  
   
   
 **RECIPE FOR LACTO-FERMENTED SALSA**  

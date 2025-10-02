@@ -7,7 +7,7 @@ categories:
   - "videos"
 ---
 
-[![2280204491_9bfca2eda4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156e43290f970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156e43290f970c.jpg) Heavenly Month In Santorini  
+![2280204491_9bfca2eda4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156e43290f970c.jpg) Heavenly Month In Santorini  
 March 23, 2009
 
 We spent over a month on beautiful  
@@ -16,7 +16,7 @@ ourselves in June. It's unique and
 
 <!--more-->
 
- [![Santorini, Greece, Oia, bikini, kid, family travel, volcano caldera,travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f3d1887970b.jpg "Santorini, Greece, Oia, bikini, kid, family travel, volcano caldera,travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f3d1887970b.jpg)
+ ![Santorini, Greece, Oia, bikini, kid, family travel, volcano caldera,travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f3d1887970b.jpg)
 
 We spent over a month on beautiful Santorini in Greece and had it all to ourselves in June. It's unique and breathtaking geological position on a volcano plus 4000 year old history along with it's stunning beauty makes it a "must see" on everyone's list.  
   

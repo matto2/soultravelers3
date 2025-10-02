@@ -17,14 +17,14 @@ tags:
   - "tropical-plants"
 ---
 
-[![IMG_6160](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6dde2970d.jpg "IMG_6160")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6dde2970d.jpg)Huge Iguana on  
+![IMG_6160](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6dde2970d.jpg)Huge Iguana on  
 Tropical Rainforest Hike
 
 As we hiked up a hill trail,  
 through this dense canopy  
 of tropical plants with one
 
-<!--more--> [![Amazing green Iguana in tropical forest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6de4f970d.jpg "Amazing green Iguana in tropical forest")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6de4f970d.jpg)  
+<!--more--> ![Amazing green Iguana in tropical forest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6de4f970d.jpg)  
   
 As we hiked up a hill trail, through this dense canopy of tropical plants with one of the [most beautiful beaches](http://soultravelers3new.local/2012/02/tropical-paradise-at-budget-prices.html "One of the most beautiful beaches") in the world below us, we spotted this huge Iguana watching us. No, it was not in South  America, [French Polynesia](http://soultravelers3new.local/2010/10/family-travel-french-polynesia-cheaply.html "French Polynesia") or [tropical Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "tropical Asia"), but near [Key West](http://soultravelers3new.local/2012/02/key-west-vacation.html "key west vacation"), at Bahia Honda State Park. We often forget that the USA has some tropical areas.  
   

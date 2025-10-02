@@ -17,28 +17,28 @@ tags:
   - "wine-vacations-with-kids"
 ---
 
-[![6a00e5502a9507883301156f8ba045970c-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38784a67970b.jpg "6a00e5502a9507883301156f8ba045970c-500wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38784a67970b.jpg)Wine Tasting with Kids  
+![6a00e5502a9507883301156f8ba045970c-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38784a67970b.jpg)Wine Tasting with Kids  
   
 Did you know wine tasting with  
 kids can be great fun for the  
 whole family in Europe or California
 
-<!--more--> [![Wine tasting with kids - Our cute baby in California vineyard picking grapes at a year old](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38784a9a970b.jpg "Wine tasting with kids - Our cute baby in California vineyard picking grapes at a year old")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38784a9a970b.jpg)  
+<!--more--> ![Wine tasting with kids - Our cute baby in California vineyard picking grapes at a year old](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38784a9a970b.jpg)  
   
 Did you know [wine tasting with kids](http://soultravelers3new.local/2012/01/kids-love-vineyards-and-wine-tasting.html "wine tasting with kids") can be great fun for the whole family in [Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best european vacations") or [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California travel - top destinations") wine country? We have done it extensively in many countries and [around California](http://soultravelers3new.local/2010/10/family-travel-santa-cruz-california-beautiful-beach-house-homeaway-luxury-rental-home.html "California luxury vacation rental") in [Napa](http://traveltips.usatoday.com/kid-friendly-wine-tours-napa-valley-17372.html "kid friendly wine tours in napa"), Sonoma and [Santa Cruz](http://soultravelers3new.local/2011/01/homeaway-santa-cruz-beach-house-vacation-rental-review-best-family-friendly-lodging.html "santa cruz beach house") and we were delighted to discover wine tasting and [biking vineyards](http://soultravelers3new.local/2012/06/stunning-saint-%C3%A9milion-france.html "biking vineyards france") is a super kid-friendly activity.  
   
 Watch out Disney, wine tasting is not just for boomers and [retirees.  
 ](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retirement and travel")  
   
-[![wine tasting with kids - beautiful grapes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38785499970b.jpg "wine tasting with kids - beautiful grapes")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38785499970b.jpg)  
+![wine tasting with kids - beautiful grapes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38785499970b.jpg)  
   
 Perhaps we are a bit prejudiced because we had our own organic  [Pinot Noir vineyard](http://soultravelers3new.local/2006/08/home-and-hous-1.html "our pinot noir vineyard") that we grew from scratch and DaVinci has long been a wine connoisseur_,_ although funnily, we don't drink much wine.  
   
-[![wine tasting with kids - working on our California vineyard family style ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c387be5e1970b.jpg "wine tasting with kids - working on our California vineyard family style ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c387be5e1970b.jpg)  
+![wine tasting with kids - working on our California vineyard family style ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c387be5e1970b.jpg)  
   
 I tasted a delicious Malbac in [Shanghai](http://soultravelers3new.local/2012/11/shanghai-with-kids.html "Shanghai travel with kids") at the [legendary Peace Hotel](http://soultravelers3new.local/2013/03/fairmont-peace-hotel-shanghai-luxury-legend-review.html "Fairmont peace hotel"), but that was the first wine I had in years ( partly due to my [health issues](http://soultravelers3new.local/health-and-travel/ "health and travel")). We are in [Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "learning Mandarin in Penang") now which is a Muslim country, so we don't drink here ( expensive) but neither do we drink much when in [Europe](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "traveling europe in a camper van")_._ Just like [organic gardening](http://soultravelers3new.local/2010/05/travel-organic-garden-homeschool-green-unschool-nature-unit-study-lessons-from-gardening-travel-.html "organic gardening") and [picking fruit in orchards](http://soultravelers3new.local/2010/06/free-travel-food-helps-a-cheap-budget-family-travel-international-travel-tips.html "picking fruit in orchards"), we value [learning about nature](http://soultravelers3new.local/2011/07/beautiful-butterfly-flowers-and-family-travel.html "learning about nature") up close and personal, so love vineyards and wine making with all the enriching educational, cultural and beauty aspects.  
   
-[![wine tasting with kids - small children love vineyards](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c387be701970b.jpg "wine tasting with kids - small children love vineyards")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c387be701970b.jpg)  
+![wine tasting with kids - small children love vineyards](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c387be701970b.jpg)  
   
 These are photos of our small organic Pinot Noir vineyard in Santa Cruz ( before our [world trip](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "around the world family travel")) when Mozart was just five months old and weighed less than 12 pounds, still wearing newborn sizes, but enjoyed helping her dad work in the vineyard even then. We have video of her on him in a bundler and sling starting at just days old helping in the vineyard, so there is no age limit for learning/imprinting  the out-in-nature aspects of wine making and vineyards.  
   
@@ -53,7 +53,7 @@ This video that we took of our [family wine vacation in Bordeaux, France](http:/
   
   
   
-[![gorgeous European vineyards at harvest - as pretty as a picture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea1f3a9d970d.jpg "gorgeous European vineyards at harvest - as pretty as a picture")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea1f3a9d970d.jpg)  
+![gorgeous European vineyards at harvest - as pretty as a picture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea1f3a9d970d.jpg)  
   
   
 Below is a video we took a different year on a [wine vacation in Alsace](http://soultravelers3new.local/2009/01/route-des-vins-dalsace-france-at-grape-harvest.html "wine vacation in Alsace") at harvest time. Wine tasting with kids doesn't have to be expensive either and we easily stuck to our $23 dollar a day per person budget in both places.  

@@ -17,13 +17,13 @@ tags:
   - "traveling-to-jordan"
 ---
 
-[![IMG_1102](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e65c6e07970c.jpg "IMG_1102")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e65c6e07970c.jpg)Bedouins in Jordan
+![IMG_1102](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e65c6e07970c.jpg)Bedouins in Jordan
 
 The majority of  
 Jordan's population  
 is of Bedouin origin
 
-<!--more--> [![Bedouin mother and child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167615b3d9e970b.jpg "Bedouin mother and child")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167615b3d9e970b.jpg)
+<!--more--> ![Bedouin mother and child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167615b3d9e970b.jpg)
 
 The majority of Jordan's population is of [Bedouin](http://en.wikipedia.org/wiki/Bedouin "bedouin") origin and they are known there as the "Bedu" or literally the "desert dwellers". They are famous for their hospitality and that is obvious all over Jordan as it was one of the friendliest places we have visited on our [world tour.](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "world tour")  
 We got a closer look at this traditonal lifestyle when we stayed at a  [Bedouin camp in Wadi Rum](http://soultravelers3new.local/2011/07/wadi-rum-bedouin-honeymoon-suite-.html "bedouin camp wadi rum"), but this photo was taken at a random tiny camp in an isolated desert area. Our daughter Mozart even dressed in traditional Bedouin clothing at [Petra](http://soultravelers3new.local/2011/06/family-vacation-petra-wow-.html "taking kids to petra") which made it fun for her and a precious souvenir.  

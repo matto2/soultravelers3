@@ -13,13 +13,13 @@ tags:
   - "winter-in-southeast-asia"
 ---
 
-[![IMG_6229_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d415664cd970c.jpg "IMG_6229_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d415664cd970c.jpg)Escaping Winter in Tropical Asia!  
+![IMG_6229_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d415664cd970c.jpg)Escaping Winter in Tropical Asia!  
   
 As I took in this balmy blue view  
 today with swaying palm trees  
 at our latest tropical travel home
 
-<!--more--> [![IMG_6229_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4156654d970c.jpg "IMG_6229_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4156654d970c.jpg)  
+<!--more--> ![IMG_6229_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4156654d970c.jpg)  
   
   
   

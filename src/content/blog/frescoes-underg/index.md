@@ -16,7 +16,7 @@ fantastic site
 
 <!--more-->
 
-[![Img_1065](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1065.png "Img_1065")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1065.png)
+![Img_1065](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1065.png)
 
 Four thousand year old huge, Hittite underground cities with sophisticated kitchens, winery, stables and more, that housed sixty thousand people for six months at a time or more are yet another fantastic site seen in this unique region. I am way too claustrophobic to even consider it, but Mozart and DaVinci were absolutely fascinated with them and their unbelievable complexity. It is yet another “must see” in mysterious Cappadocia.
 
@@ -36,24 +36,24 @@ Now the multitude of Byzantine churches in the caves of Cappadocia, up ladders a
 
 Alas my pictures are not up to their beauty yet again. It is the darkness in the caves that have kept the pigments so vibrant which can be seen easily in person, but it comes out much darker and not represented well by the limits of my camera with no flash. I just have a little digital camcorder, so I suppose I should be grateful I have anything and hopefully it is a taste for you.
 
-[![Img_1064](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1064.png "Img_1064")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1064.png)
+![Img_1064](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1064.png)
 
-[![Img_1066](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1066.png "Img_1066")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1066.png)
+![Img_1066](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1066.png)
 
-[![Img_1067](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1067.png "Img_1067")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1067.png)
+![Img_1067](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1067.png)
 
-[![Img_1082](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1082.png "Img_1082")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1082.png)
+![Img_1082](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1082.png)
 
-[![Img_1091](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1091.png "Img_1091")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1091.png)
+![Img_1091](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1091.png)
 
-[![Img_1093](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1093.png "Img_1093")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1093.png)
+![Img_1093](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1093.png)
 
-[![Img_1149](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1149.png "Img_1149")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1149.png)
+![Img_1149](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1149.png)
 
-[![Img_1190](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1190.png "Img_1190")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1190.png)
+![Img_1190](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1190.png)
 
-[![Img_1339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1339.png "Img_1339")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1339.png)
+![Img_1339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1339.png)
 
-[![Img_1343](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1343.png "Img_1343")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1343.png)
+![Img_1343](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1343.png)
 
-[![Img_1085](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1085.png "Img_1085")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1085.png)
+![Img_1085](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1085.png)

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4139](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4139.png "Img_4139")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4139.png) Botin Restaurante  
+ ![Img_4139](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4139.png) Botin Restaurante  
 April 27, 2007
 
 Mmmmm...we had one of our best meals  
@@ -15,7 +15,7 @@ but we were starving by the time we got
 
 <!--more-->
 
-[![Img_4139_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4139_2.png "Img_4139_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4139_2.png)
+![Img_4139_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4139_2.png)
 
   
 Mmmmm...we had one of our best meals in Europe at Botin. It was a splurge for us, but we were starving by the time we got there and very much in the mood for the exquisite, simple and delicious food that they serve. We had loved the food in Morocco, but we had ten days of mostly tagines and were ready to eat a salad and such without excess worry.
@@ -30,26 +30,26 @@ Even though we could not eat them, the little pigs really fascinated us. They ha
 
 Afterwards we were strolling along headed for the Plaza Mayor, when we noticed a barber shop with an old fashioned chair outside next door. Some people were taking their picture in it, so perhaps it is a landmark. All I knew was Mozart desperately needed her bangs cut and DaVinci needed a haircut, so I said why not. We are getting good at finding great spots around the globe for haircuts and this one worked really well. In five minutes time they looked so much better.We were ready for more sight seeing and onto the Prado!
 
-[![Img_4141](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4141.png "Img_4141")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4141.png)
+![Img_4141](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4141.png)
 
-[![Img_4106](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4106.png "Img_4106")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4106.png)
+![Img_4106](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4106.png)
 
-[![Img_4122](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4122.png "Img_4122")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4122.png)
+![Img_4122](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4122.png)
 
-[![Img_4135](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4135.png "Img_4135")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4135.png)
+![Img_4135](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4135.png)
 
-[![Img_4131](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4131.png "Img_4131")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4131.png)
+![Img_4131](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4131.png)
 
-[![Img_4144](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4144.png "Img_4144")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4144.png)
+![Img_4144](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4144.png)
 
-[![Img_4140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4140.png "Img_4140")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4140.png)
+![Img_4140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4140.png)
 
-[![Img_4108](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4108.png "Img_4108")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4108.png)
+![Img_4108](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4108.png)
 
-[![Img_4123](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4123.png "Img_4123")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4123.png)
+![Img_4123](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4123.png)
 
-[![Img_4132](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4132.png "Img_4132")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4132.png)
+![Img_4132](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4132.png)
 
-[![Img_4147](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4147.png "Img_4147")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4147.png)
+![Img_4147](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4147.png)
 
-[![Img_4154](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4154.png "Img_4154")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4154.png)
+![Img_4154](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4154.png)

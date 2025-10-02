@@ -16,13 +16,13 @@ tags:
   - "raw-milk-fast"
 ---
 
-[![IMG_6711](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38840846970b.jpg "IMG_6711")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38840846970b.jpg)Raw Milk Fast and Cure  
+![IMG_6711](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38840846970b.jpg)Raw Milk Fast and Cure  
   
 Did you know a raw milk cure for  
 many severe diseases was made  
 popular by  Mayo Clinic founder, Dr.
 
-<!--more--> [![raw milk cure and fasting](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea27531f970d.jpg "raw milk cure and fasting")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea27531f970d.jpg)  
+<!--more--> ![raw milk cure and fasting](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea27531f970d.jpg)  
   
 Did you know a [raw milk cure](http://www.realmilk.com/health/milk-cure/ "raw milk cure") for many severe diseases was made popular by  Mayo Clinic founder, Dr. J. R. Crewe M.D.? We have been drinking [raw goats milk](http://soultravelers3new.local/2013/03/best-fresh-raw-goats-milk-penang.html "raw goats milk"), plus making [raw goats milk kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "raw goats milk kefir") as part of our using [diet to cure cavities](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "cure caviteis naturally") protocol ( with [bone broth,](http://soultravelers3new.local/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth")  avoiding [phytic acid](http://www.westonaprice.org/food-features/living-with-phytic-acid "phytic acid") and other things) along with my goals to [improve](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "travel and health") my [health](http://soultravelers3new.local/health-and-travel/ "health tips") and lose my excess weight permanently.  
   
@@ -32,7 +32,7 @@ It is working well for us and I wll be writing more about this. I am happy that 
   
 Somewhat by accident we have been doing a semi raw milk fast and mainly eating just one meal lately as the raw milk and kefir and cheese etc, are all very filling. Raw milk fasts have become very popular on [healthy food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy organic food") type blogs lately as many people find that it works for them.  
   
-[![A cup of delicious, healing raw goats milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c388409da970b.jpg "A cup of delicious, healing raw goats milk")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c388409da970b.jpg)  
+![A cup of delicious, healing raw goats milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c388409da970b.jpg)  
   
 Dr. Crewe's "real milk cure" consisted of drinking vast quantities of raw, unpasteurized milk, plus fasting and bed rest. The results he wrote, "have been so uniformly excellent that one's concept of disease and its alleviation is necessarily changed."  
   

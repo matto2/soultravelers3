@@ -7,14 +7,14 @@ categories:
   - "videos"
 ---
 
- [![IMG_3199](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f619ef970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f619ef970b.jpg) Route des Vins d' Alsace  
+ ![IMG_3199](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f619ef970b.jpg) Route des Vins d' Alsace  
 January 28, 2009
 
 This is the first video in our Soultravelers3 series about touring great wine regions of the world! This past fall of 2008, we were in Colmar, France
 
 <!--more-->
 
- [![IMG_3199](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff2e67970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff2e67970c.jpg)
+ ![IMG_3199](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff2e67970c.jpg)
 
 This is the first video in our Soultravelers3 series about touring great wine regions of the world! Late this past fall of 2008, we arrived in Colmar, France and the many beautiful ancient wine villages along the Alsace route des Vins.  
   
@@ -38,20 +38,20 @@ Or you can find her on Itunes here:
   
 [http://itunes.apple.com/WebObjects/MZ...](http://itunes.apple.com/WebObjects/MZStore.woa/wa/viewAlbum?i=250350805&id=250350075&s=143441 "http://itunes.apple.com/WebObjects/MZStore.woa/wa/viewAlbum?i=250350805&id=250350075&s=143441")
 
-[![IMG_2762](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62000970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62000970b.jpg)
+![IMG_2762](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62000970b.jpg)
 
-[![IMG_2924](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff37e9970c-scaled-1.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff37e9970c-scaled-1.jpg)
+![IMG_2924](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff37e9970c-scaled-1.jpg)
 
-[![IMG_2767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62978970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62978970b.jpg)
+![IMG_2767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62978970b.jpg)
 
-[![IMG_2968](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff41b0970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff41b0970c.jpg)
+![IMG_2968](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff41b0970c.jpg)
 
-[![IMG_2652](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62b1d970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62b1d970b.jpg) 
+![IMG_2652](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f62b1d970b.jpg) 
 
-[![IMG_2749](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff44e4970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff44e4970c.jpg)
+![IMG_2749](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff44e4970c.jpg)
 
-[![IMG_2777](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f6362e970b-scaled.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f6362e970b-scaled.jpg)
+![IMG_2777](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536f6362e970b-scaled.jpg)
 
-[![IMG_3217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff48d6970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff48d6970c.jpg)
+![IMG_3217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff48d6970c.jpg)
 
-[![IMG_2707](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff4b29970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff4b29970c.jpg)
+![IMG_2707](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ff4b29970c.jpg)

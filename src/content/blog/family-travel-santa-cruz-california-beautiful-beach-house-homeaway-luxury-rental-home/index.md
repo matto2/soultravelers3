@@ -13,14 +13,14 @@ tags:
   - "short-term-vacation-rental"
 ---
 
- [![IMG_7267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f556df77970b.jpg "IMG_7267")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f556df77970b.jpg) Family Travel Santa Cruz, California  
+ ![IMG_7267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f556df77970b.jpg) Family Travel Santa Cruz, California  
 October 25, 2010
 
 Family travel is sometimes enjoying  
 time at a stunning beach and just  
 hanging out with extended family  
 
-<!--more--> [![family travel homeaway rental beach house santa cruz california ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348847e025970c.jpg "family travel homeaway rental beach house santa cruz california ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348847e025970c.jpg)
+<!--more--> ![family travel homeaway rental beach house santa cruz california ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348847e025970c.jpg)
 
 [Family travel](Family Travel "http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html") is sometimes enjoying time at a stunning beach and just hanging out with extrended family and old friends. This is best done in a short term rental home and nobody does it better than [HomeAway](http://www.homeaway.com/ "HomeAway Vacation rentals").
 

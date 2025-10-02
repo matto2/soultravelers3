@@ -19,14 +19,14 @@ tags:
   - "tips-for-bonding-with-your-kids"
 ---
 
-[![IMG_5703](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3caae36970d.jpg "IMG_5703")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3caae36970d.jpg)Mother - Daughter Bonding - 
+![IMG_5703](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3caae36970d.jpg)Mother - Daughter Bonding - 
 Tips for Tweens  
   
 There is a sacred bond  
 between mother and  
 daughter that is like nothing
 
-<!--more--> [![Mother daughter bonding - braiding hair into the Bo Derek look together](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5540f4970c.jpg "Mother daughter bonding - braiding hair into the Bo Derek look together")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5540f4970c.jpg)  
+<!--more--> ![Mother daughter bonding - braiding hair into the Bo Derek look together](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5540f4970c.jpg)  
   
 There is a sacred bond between mother and daughter that is like nothing else. As a woman who was lucky enough to have a [wonderful mother](http://soultravelers3new.local/2007/02/worlds-best-mot.html "wonderful mother") ( and [traveling Grandma](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html "travel with Grandma")) and waited a very long time to have a daughter, I am so grateful for [our world trip](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "Our RTW world trip") these last seven years and the gift of time together that it has given us.  
   
@@ -42,7 +42,7 @@ It's not aways the big things that matter, but more than anything, I feel like t
   
 One of the things I love about Asia, is it's cool to walk hand in hand around [the mall](http://soultravelers3new.local/2010/12/tropical-christmas-abroad-in-asia.html "Asia mall Christmas") with your mom, even if you are a teen or tween! Mozart's always been a Mama's girl, but she also has a fantastic [bond with her father.](http://soultravelers3new.local/2009/06/happy-fathers-day-traveling-dads.html "father daughter bond")  
   
-[![My fast growing tween with Bo Derek braids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5542bf970c.jpg "My fast growing tween with Bo Derek braids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5542bf970c.jpg)  
+![My fast growing tween with Bo Derek braids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5542bf970c.jpg)  
   
 **FINDING TIME IN A BUSY WORLD**  
   

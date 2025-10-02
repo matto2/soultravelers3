@@ -13,7 +13,7 @@ tags:
   - "world-traveling-family"
 ---
 
- [![IMG_1482](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f805c53970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f805c53970c.jpg) The 4-Hour Workweek Review by World Traveling Family  
+ ![IMG_1482](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f805c53970c.jpg) The 4-Hour Workweek Review by World Traveling Family  
 March 9, 2010
 
 As a family living a rich, global  
@@ -22,7 +22,7 @@ traveling digital lifestyle since 2006,
 
 <!--more-->
 
-[![The 4-Hour Workweek book, 4HWW, Tim Ferriss](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f805d33970c.jpg "The 4-Hour Workweek book, 4HWW, Tim Ferriss")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f805d33970c.jpg)
+![The 4-Hour Workweek book, 4HWW, Tim Ferriss](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f805d33970c.jpg)
 
 As a [family living a rich](http://soultravelers3new.local/2008/06/how-to-do-exten.html), [global traveling digital lifestyle](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) since [2006](http://soultravelers3new.local/2006/08/home-and-hous-1.html), "[The 4-Hour Workweek](http://www.amazon.com/4-Hour-Workweek-Expanded-Updated-Cutting-Edge/dp/0307465357/ref=sr_1_1?ie=UTF8&s=books&qid=1268162223&sr=1-1)" hits us where we live, so we're very proud to be featured [Case Studies](http://www.huffingtonpost.com/tim-ferriss/cold-remedy-18-real-world_b_415900.html) (on pages 360 and 361) in this phenomenal new [expanded and updated edition](http://www.amazon.com/4-Hour-Workweek-Expanded-Updated-Cutting-Edge/dp/0307465357/ref=sr_1_1?ie=UTF8&s=books&qid=1268162223&sr=1-1)! I absolutely adore Timothy Ferriss and all that he has done to support the freedom of the "new rich" lifestyle design revolution with his 2007 AND 2010 New York Times [best seller](http://www.amazon.com/4-Hour-Workweek-Expanded-Updated-Cutting-Edge/dp/0307465357/ref=sr_1_1?ie=UTF8&s=books&qid=1268162223&sr=1-1) plus his hutzpah and out-of-this-world promotion abilities.
 
@@ -56,7 +56,7 @@ I think that gives the basics of the original book, better than I ever could do,
 
 "It doesn't matter how many people don't get it. What matters is how many people who do" - Tim Ferriss
 
-[![The 4-Hour Workweek book, 4HWW, signed by Tim Ferriss, Jeanne Dee, Soultravelers3, family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f831c1d970c.jpg "The 4-Hour Workweek book, 4HWW, signed by Tim Ferriss, Jeanne Dee, Soultravelers3, family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f831c1d970c.jpg)  
+![The 4-Hour Workweek book, 4HWW, signed by Tim Ferriss, Jeanne Dee, Soultravelers3, family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f831c1d970c.jpg)  
   
 
 As a [featured case study,](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html#more) as [a family living this dream](http://soultravelers3new.local/2008/12/where-in-heaven.html#more) since 2006, I DO have something new to add to the raves because we KNOW the 4HWW ideas/tools work even for [families](http://soultravelers3new.local/2009/02/twitter-travel-20.html), perhaps even more so for those who do extended travel together which quadruples the benefits. As I say in the book (small part):

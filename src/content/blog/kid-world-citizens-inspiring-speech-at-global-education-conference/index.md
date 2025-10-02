@@ -25,7 +25,7 @@ tags:
 ---
 
   
-[![6a00e5502a9507883301901e2ca118970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b026a551f970c.jpg "6a00e5502a9507883301901e2ca118970b-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b026a551f970c.jpg)Kid World Citizen's Inspiring Speech  
+![6a00e5502a9507883301901e2ca118970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b026a551f970c.jpg)Kid World Citizen's Inspiring Speech  
 at Global Education Conference  
   
 Mozart Dee was the youngest  
@@ -34,7 +34,7 @@ Education Conference, a week
 
 <!--more-->  
   
-[![Mozart Dee, kid world citizen's inspiring speech on Global Education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02850573970c.png "Mozart Dee, kid world citizen's inspiring speech on Global Education")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02850573970c.png)  
+![Mozart Dee, kid world citizen's inspiring speech on Global Education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02850573970c.png)  
   
 Mozart Dee was the youngest speaker at the 4th annual [Global Education Conference](http://www.globaleducationconference.com/ "Global Education Conference"), a week-long online event bringing together educators and innovators from [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world family travel") with over 13,000 participants, so she was extremely honored to be selected to present.  
   
@@ -53,7 +53,7 @@ Hi my name is Mozart!  I am really thrilled and honored  to be here to talk ab
   
  I hope it can inspire others as I wish every child could travel the world. Thanks so much for coming and I send you all some warm tropical sunshine from Malaysia where it is 9am this Friday morning.  
   
-[![stunning Sydney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02854e77970c.png "stunning Sydney")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02854e77970c.png)  
+![stunning Sydney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02854e77970c.png)  
   
 **ALWAYS LEARNING**  
   
@@ -64,7 +64,7 @@ John Holt said:
   
 and the way my parents raised me, I think it is true as we are life-long-learners who seem to be constantly learning even when we are playing or celebrating.  
   
-[![Mozart traveling the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b028646fa970d.png "Mozart traveling the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b028646fa970d.png)  
+![Mozart traveling the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b028646fa970d.png)  
   
 **TRAVEL AND LEARNING**  
   
@@ -74,25 +74,25 @@ As my Mom says, " Family travel is often about doing ordinary things in extraord
   
 Certainly participating in cultural festivals at home, learning languages, studying cultures via books, domestic travel etc, helps and is a good start as that is how my parents started with me at birth.    
   
-[![Mozart doing a service project with kids in Harlem](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02864a4b970d.png "Mozart doing a service project with kids in Harlem")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02864a4b970d.png)  
+![Mozart doing a service project with kids in Harlem](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02864a4b970d.png)  
   
   
 **GIVING BACK, SERVICE AND MY BOOKS FOR KIDS**  
   
 One year, we took some disadvantaged school kids from Harlem and the New York City area with us virtually through volunteering with Reach The World  and have collaborated with many teachers and homeschool groups which can help kids who don't have travel opportunities. We find that children seem to really relate to another kid traveling, so I am open to those kinds of opportunities to give back and I am writing a series of kid's books for every country we've traveled to.  
   
-[![Mozart at 5 months old standing anc clapping to the music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02864d11970d.png "Mozart at 5 months old standing anc clapping to the music")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02864d11970d.png)  
+![Mozart at 5 months old standing anc clapping to the music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02864d11970d.png)  
   
   
 **HOW DID I END UP BECOMING A GLOBAL EDUCATION PIONEER?**  
   
 I have always been on my own track so I walked and bilingually talked starting at 6 months old, began violin at 23 months, reading at 2 years old, and piano at three, thus finding ways to educate me was a bit of challenge for my parents. My preschool teacher tested me as reading at a third grade level at 3 and our Pediatrician advised my parents to go by my development and not my age, so I skipped ahead 3 grades in both a private and public school.  
   
-[![Little Mozart reading Harry Potter in the UK at Cambridge U](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02856020970c.png "Little Mozart reading Harry Potter in the UK at Cambridge U")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02856020970c.png)  
+![Little Mozart reading Harry Potter in the UK at Cambridge U](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02856020970c.png)  
   
 BUT that wasn't quite right either, so my parents decided to [homeschool](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel"). Then they thought, if they were going to [homeschool they might as well do it around the world,](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "homeschool world school best education") so they decided to take the huge risk of  [retiring early](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "retire early travel the world"), selling everything to educate me and have more time together. That was 2005, I was 5 and we have been traveling ever since.   
   
-[![Little Mozart's passport photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0285e6e4970b.png "Little Mozart's passport photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0285e6e4970b.png)  
+![Little Mozart's passport photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0285e6e4970b.png)  
   
   
 **MOST WELL-TRAVELED KID?**  
@@ -101,13 +101,13 @@ Some have called me the most well-traveled kid in the world because I have been 
   
   I likely have the record for the most UNESCO World Heritage sites on 5 continents, world-class museums and ancient ruins seen by a kid, I've been in local schools in 4 countries in several languages and am probably the only kid since Wolfgang Armadeus Mozart to do extensive world travel with a violin and piano...BUT it has all just seemed like normal life to me.  
   
-[![Mozart - most well traveled kid after climbing to the Tiger's Nest in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02865444970b.png "Mozart - most well traveled kid after climbing to the Tiger's Nest in Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02865444970b.png)  
+![Mozart - most well traveled kid after climbing to the Tiger's Nest in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02865444970b.png)  
   
 I think I am just now beginning to understand just how lucky I have been and I so appreciate all that I have seen, my beautful [friends around the world](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends around the world") and so much time with my family.  
   
 I am an only child and very social, so my parents have set up a [slow international travel method](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html "extended travel with kids") that has us returning to places often with many "homes" around the world, so I keep long term friendships in several languages.We travel and live well on a budget of just $23 a day per person.  
   
-[![Well traveled Mozart with Chinese friend in Xi'an, China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0286571a970b.png "Well traveled Mozart with Chinese friend in Xi'an, China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0286571a970b.png)  
+![Well traveled Mozart with Chinese friend in Xi'an, China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0286571a970b.png)  
   
 We love the quote by Hunt that says "Traveling in the company of those we love is home in motion" because it suits our life view perfectly.  
   
@@ -115,7 +115,7 @@ We love the quote by Hunt that says "Traveling in the company of those we love i
 **  
 Sir Ken Robinson says, “We have sold ourselves into a fast food model of education, and it's impoverishing our spirit and our energies as much as fast food is depleting our physical bodies.”  and I agree!  I  think it is time for a CHANGE and it is ON THE WAY!!  
   
-[![Yes, ordinary families can travel the world on a low budget!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0286de3c970d.png "Yes, ordinary families can travel the world on a low budget!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0286de3c970d.png)  
+![Yes, ordinary families can travel the world on a low budget!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0286de3c970d.png)  
   
 **21ST CENTURY GLOBAL MOBILE SCHOOLS- IMMERSION- LANGUAGES**  
   
@@ -123,7 +123,7 @@ One sign is brand new expensive schools (which cost over  80, 000 dollars a yea
   
 But today's ruling-class, educational trends are MOBILE schools that encourage travel IMMERSION and feature Spanish and Mandarin learning as a priority.  
   
-[![SOULTRAVELERS3 FAMILY IN BARCELONA - ordinary family traveling the world non-stop](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02867548970b.png "SOULTRAVELERS3 FAMILY IN BARCELONA - ordinary family traveling the world non-stop")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02867548970b.png)  
+![SOULTRAVELERS3 FAMILY IN BARCELONA - ordinary family traveling the world non-stop](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02867548970b.png)  
   
 BUT you don't have to be rich to see the world and get a first class, immersion global education. You can be a very ordinary family like mine and this "location -independent" lifestyle is a growing trend.
 
@@ -137,7 +137,7 @@ BUT you don't have to be rich to see the world and get a first class, immersion 
   
  And as the saying goes, IF YOU CAN WORK AT HOME, YOU CAN WORK IN ROME, .....or ANY where else!  
   
-[![family travel lifestyle -digital nomad - laptop working in Portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02860657970c.png "family travel lifestyle -digital nomad - laptop working in Portugal")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02860657970c.png)  
+![family travel lifestyle -digital nomad - laptop working in Portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02860657970c.png)  
   
 There is a tsunami of change coming as people learn that thanks to emerging tech, we can all work, school and live ANY where .....AND it is a greener choice which makes me so happy.  
   
@@ -158,7 +158,7 @@ Because we live a minimal lifestyle of few things and travel the world with just
   
 There really is a better way .....and I am living it!  
   
-[![6a00e5502a950788330191044b6eee970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02822c07970c.jpg "6a00e5502a950788330191044b6eee970c-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02822c07970c.jpg)  
+![6a00e5502a950788330191044b6eee970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02822c07970c.jpg)  
   
 More and more people are heading in this direction from Gen Y'ers to  families and baby boomers.  
   
@@ -174,13 +174,13 @@ Teachers actually have it easier than most to do this  [slow travel](http://sou
   
 \*teaching English around the world  
   
-[![6a00e5502a95078833019aff4598ee970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0282b2b9970b.jpg "6a00e5502a95078833019aff4598ee970b-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0282b2b9970b.jpg)  
+![6a00e5502a95078833019aff4598ee970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0282b2b9970b.jpg)  
   
 **STUDENT - TEACHER - ENTREPRENEUR**  
   
 I am not only a student,  I am also a teacher and entrepreneur  (since I was 12), so I am already doing this as we roam the world. [I teach students on 3 continents](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best teacher spanish, mandarin , english") in Mandarin, Spanish and English( from 4 to 30 years old,  including a geophysicist!) in person and online via Skype. I love it and make good money for a kid my age!  
   
-[![6a00e5502a95078833017d414e57b9970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0282d434970b.jpg "6a00e5502a95078833017d414e57b9970c-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0282d434970b.jpg)  
+![6a00e5502a95078833017d414e57b9970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0282d434970b.jpg)  
   
   
 **IT IS A MYTH THAT TRAVEL IS EXPENSIVE**  

@@ -19,14 +19,14 @@ tags:
   - "travel-to-costa-brava"
 ---
 
-[![IMG_6955](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900913ab970b-scaled-1.jpg "IMG_6955")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900913ab970b-scaled-1.jpg)Costa Brava and Barcelona  
+![IMG_6955](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153900913ab970b-scaled-1.jpg)Costa Brava and Barcelona  
   
 Barcelona is one of the  
 most popular tourist  
 destinations in Europe,but  
 
 <!--more-->    
-  [![IMG_6955](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433ea4fdf970c-scaled-1.jpg "IMG_6955")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433ea4fdf970c-scaled-1.jpg)  
+  ![IMG_6955](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433ea4fdf970c-scaled-1.jpg)  
   
   
   

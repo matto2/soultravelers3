@@ -19,14 +19,14 @@ tags:
   - "visiting-sydney-opera-house"
 ---
 
-[![6a00e5502a95078833014e5f677481970c-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f3102d970b.jpg "6a00e5502a95078833014e5f677481970c-pi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f3102d970b.jpg)Visiting the Sydney Opera House - 
+![6a00e5502a95078833014e5f677481970c-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31f3102d970b.jpg)Visiting the Sydney Opera House - 
 Must-See Australia Travel  
   
 When you travel to  
 Australia, a must-see for  
 sure is to visit the stunning
 
-<!--more--> [![Visiting Australia and the stunning Sydney Opera House at sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c215f57970c.jpg "Visiting Australia and the stunning Sydney Opera House at sunset")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c215f57970c.jpg)  
+<!--more--> ![Visiting Australia and the stunning Sydney Opera House at sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c215f57970c.jpg)  
   
 When you travel to Australia,  a must-see for sure is to visit the stunning  world- famous Sydney Opera House. Sydney is outrageously expensive, but so beautiful on a sunny day that it was still one of our favorite cities on our 7 year non-stop [family world tour.](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world tour - nomadic with kids")  I must write more about our time Down Under as we enjoyed the gregarious Aussie perspective and had lots of adventures.  
   

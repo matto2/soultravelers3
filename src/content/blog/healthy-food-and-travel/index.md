@@ -16,13 +16,13 @@ tags:
   - "real-food"
 ---
 
-[![IMG_3581](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebf9d6ae970c.jpg "IMG_3581")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebf9d6ae970c.jpg)Healthy Food and Travel  
+![IMG_3581](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebf9d6ae970c.jpg)Healthy Food and Travel  
   
 Can you eat healthy food  
 while traveling as a family?  
 Trust me, I've become an expert
 
-<!--more--> [![food and travel -the healthy way](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766f8556a970b.jpg "food and travel -the healthy way")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766f8556a970b.jpg)  
+<!--more--> ![food and travel -the healthy way](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766f8556a970b.jpg)  
   
   
   
@@ -43,7 +43,7 @@ We also travel and live on a very low budget ( $23/day per person or less) and t
   
 So I am learning about foods for them as well as for me, with my goal being to get us all as healthy as possible. They don't have symptoms and appear very healthy, but I think we can always work on getting healthier. I'm learning so much through my problem which has made me a bigger health food fanatic ( as our daughter's friend call us) than ever.  
   
-[![yummy smoothy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebfd2c44970c.jpg "yummy smoothy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebfd2c44970c.jpg)  
+![yummy smoothy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebfd2c44970c.jpg)  
   
   
   
@@ -53,8 +53,7 @@ At first I was doing well here ( about 90% recovered on good days) , but then th
   
 I considered [LDN](http://www.lowdosenaltrexone.org/ "LDN") and [MMS](http://www.miraclemineral.org/ "MMS or miracle mineral supplement") that people I know recommended, ( and still might do them, but I had some concerns with both because much of my pain seems to be in the liver area despite all tests not showing a problem there). So I  decided to first try the Guts to Glory Program by Dr. Brasco M.D. and Rubin N.M.D. from their book "Restoring Your Digestive Health" because it was easier with less risks and I could find most of the ingredients here. One great thing they have in [Penang is DQ chickens](http://www.dqcleanchicken.com/ "Penang DQ chickens best") which are perfect for making the bone broth and eating.  
   
-[![Delicious family supper of organic broccoli, corn, pastured chicken, soaked brown rice and topped with homemade lacto-fermented salsa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebfa28a0970c-300x225.jpg "Delicious family supper of organic broccoli, corn, pastured chicken, soaked brown rice and topped
-with homemade lacto-fermented salsa")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebfa28a0970c.jpg)  
+![Delicious family supper of organic broccoli, corn, pastured chicken, soaked brown rice and topped with homemade lacto-fermented salsa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebfa28a0970c.jpg)  
   
   
 The author Rubin cured himself of incurable Crohn's disease, but they say it is also good for ANY gastrointestinal disease from ulcers to IBS to Candida, food allergies and more. My symptoms are different than all, but it is clearly a digestive based problem with severe dysbiosis ( and some liver, pancreas and spleen problems), upper abdomen swelling ( for 2 years!)  caused at least initially by a floral imbalance, so I thought worth a try.  
@@ -63,7 +62,7 @@ Also because it was similar to the [GAPS Diet](http://www.gaps.me/preview/ "gaps
   
 All are very much aligned with [Weston Price Foundation](http://www.westonaprice.org/ "weston price foundation"), ( and [paleo](http://en.wikipedia.org/wiki/Paleolithic_diet "Paleo")) but more specific. All have helped thousands and I think very on track after all my reading,  but my symptoms didn't quite fit and I actually had tried the SCD diet, yet this one was a bit more specific and doable, plus allowed me to continue with WAPD principals.  
   
-[![tropical fruits and vegetables](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766fbee2d970b.jpg "tropical fruits and vegetables")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766fbee2d970b.jpg)  
+![tropical fruits and vegetables](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766fbee2d970b.jpg)  
   
   
   

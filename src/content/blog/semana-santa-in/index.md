@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1779.png "Img_1779")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1779.png) Semana Santa In Sevilla  
+ ![Img_1779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1779.png) Semana Santa In Sevilla  
 March 26, 2007
 
 They call it “unforgettable” and people come  
@@ -15,7 +15,7 @@ Holy Week in Seville.
 
 <!--more-->
 
-[![Img_1779_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1779_2.png "Img_1779_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1779_2.png)
+![Img_1779_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1779_2.png)
 
   
 They call it “unforgettable” and people come from around the world to see and experience Holy Week in Seville. There is certainly nothing like it any where else and it is quite fascinating even to a non Catholic. It is one of those things to do at least once in your life, so now we have done it and glad we saw it first hand.  
@@ -49,26 +49,26 @@ One of the sweetest moments for us, was talking to our taxi driver on the way ho
 
   
 
-[![Img_1757](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1757.png "Img_1757")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1757.png)
+![Img_1757](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1757.png)
 
-[![Img_1767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1767.png "Img_1767")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1767.png)
+![Img_1767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1767.png)
 
-[![Img_1760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1760.png "Img_1760")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1760.png)
+![Img_1760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1760.png)
 
-[![Img_1782](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1782.png "Img_1782")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1782.png)
+![Img_1782](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1782.png)
 
-[![Img_1777](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1777.png "Img_1777")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1777.png)
+![Img_1777](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1777.png)
 
-[![Img_1770](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1770.png "Img_1770")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1770.png)
+![Img_1770](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1770.png)
 
-[![Img_1786](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1786.png "Img_1786")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1786.png)
+![Img_1786](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1786.png)
 
-[![Img_1785](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1785.png "Img_1785")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1785.png)
+![Img_1785](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1785.png)
 
-[![Img_1787](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1787.png "Img_1787")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1787.png)
+![Img_1787](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1787.png)
 
-[![Img_1796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1796.png "Img_1796")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1796.png)
+![Img_1796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1796.png)
 
-[![Img_1780](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1780.png "Img_1780")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1780.png)
+![Img_1780](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1780.png)
 
-[![Img_1790](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1790.png "Img_1790")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1790.png)
+![Img_1790](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1790.png)

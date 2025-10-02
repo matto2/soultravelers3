@@ -25,7 +25,7 @@ tags:
   - "world-schooling"
 ---
 
-[![6a00e5502a9507883301543266cdfa970c-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02942e86970b.jpg "6a00e5502a9507883301543266cdfa970c-pi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02942e86970b.jpg)Trilingual Mozart, Travel Kid Expert,  
+![6a00e5502a9507883301543266cdfa970c-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02942e86970b.jpg)Trilingual Mozart, Travel Kid Expert,  
 Speaks at GEC about World Education  
   
 Don't miss this most well-traveled  
@@ -54,7 +54,7 @@ As John Gatto says, "You either learn your way towards writing your own script i
   
 I hope to demonstrate HOW and WHY a global education is a benefit for children, families and our planet. It is a critical 21st century issue on so many levels.  
   
-[![Global education for 21st century kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036cf5ca970d.png "Global education for 21st century kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036cf5ca970d.png)  
+![Global education for 21st century kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036cf5ca970d.png)  
   
 Sir Ken Robinson says :  
   
@@ -62,7 +62,7 @@ Sir Ken Robinson says :
   
 And Mr. Rogers says: " We want to raise our children so they can get a sense of pleasure in both their own heritage and the diversity of others...."  
   
-[![American girl fluent in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae07132970b.png "American girl fluent in Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae07132970b.png)  
+![American girl fluent in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae07132970b.png)  
   
   
 **WHY 2ND LANGUAGE LEARNING IS KEY AND MUST START YOUNG**  
@@ -73,7 +73,7 @@ And Mr. Rogers says: " We want to raise our children so they can get a sense of 
   
 Luckily my monolingual parents started teaching me my Chinese and Spanish when I was in the womb as my mother had read that inutero babies start learning languages at only 3 months gestation when hearing develops. I enjoyed it so much that i use to do "happy kicks" on my mom's belly whenever I heard Spanish or Chinese,  as some how even then I knew it was different.  
   
-[![language learning begins in pregnancy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036cfab2970d.png "language learning begins in pregnancy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036cfab2970d.png)  
+![language learning begins in pregnancy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036cfab2970d.png)  
   
   
 We have a funny family story where my parents actually used my "happy kicks" on hearing Spanish to get me to move during my first ultra sound photo session when my mom was pregnant because I was in a position that covered my gender and my parents wanted to know. They decided to try the Spanish story, (  "Tres ohos" ) to see if I would respond. Sure enough, I gave them "happy kicks" which changed my position and let them know that I was a girl!  
@@ -93,7 +93,7 @@ Despite having monolingual parents and spending my first five years in a very bl
   
 A montessori preschool that I went to hired ONLY native speaking Spanish speakers as assistance and they only spoke to the kids in Spanish, while the primary teacher spoke in English. The monolingual parents were absolutely amazed at how easily their toddlers were becoming fluent in Spanish just by hearing it and the smart ones continued to promote is as we did by hiring only Spanish speaking babysitters and other ways.  
   
-[![Language immersion starts young with native speakers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d01eb970d.png "Language immersion starts young with native speakers")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d01eb970d.png)  
+![Language immersion starts young with native speakers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d01eb970d.png)  
   
   
  From the time I was born my parents took me to a Spanish only play group that had  all native speaking Latino immigrants from various countries who wanted to raise their children as bilinguals and not lose the hearitage language.  Socially that was very isolating for my mom because her Spanish is almost non-existant despite being an A student in Spanish all through high school, but she felt it was worth the sacrifice to do what ever it took to create a 2nd langauge immersion environment for me,even while in the USA.  
@@ -128,41 +128,41 @@ We think travel is an essential part of becoming a global citizen and global lea
   
 • Have friends talk to her only in the other language  
   
-[![learning a second language as a baby, daddy reading in Spanish to his baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c2a7f970c.png "learning a second language as a baby, daddy reading in Spanish to his baby")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c2a7f970c.png)  
+![learning a second language as a baby, daddy reading in Spanish to his baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c2a7f970c.png)  
   
   
 Even though my father's Spanish is not fluent, he still managed to do the "one parent in the 2nd language" method up until I was 2 1/2 and we supplemented that with as many native speakers and environments that we could find. At that point I was more verbal than he could keep up with in Spanish, so it was getting in the way of our relationship, thus he had to go back to mostly English.  
   
 Also around that time, my parents had to drop the Chinese. I was getting fluent at that point in Mandarin as well, but it was too difficult time-wise to do the work required. It will be a lot easier for me to pass on both  Spanish and Chinese on to my children and hopefully,  them passing it on for many generations.  
   
-[![little blond American girl learning flamenco in Spain - Latina roots](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0836f970b.png "little blond American girl learning flamenco in Spain - Latina roots")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0836f970b.png)  
+![little blond American girl learning flamenco in Spain - Latina roots](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0836f970b.png)  
   
   
 **HOW LANGUAGE LEARNING FOSTERS WORLD PEACE**  
   
 I am a Latina, so I am especially grateful to have my heritage language be so much a part of me and I am grateful that my parents worked hard to give it to me. Spanish and Spain are part of me... as much as English and being an American. My paternal grandparent's first language is Spanish and all that they spoke until they entered school, but it wasn't the custom in the 50's to pass it on, so fluency was lost for my father and his sister.  
   
-[![little blonde Latina American child in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae08ec5970b.png "little blonde Latina American child in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae08ec5970b.png)  
+![little blonde Latina American child in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae08ec5970b.png)  
   
   
 My great grandmother was the beloved  matriach of the extended family and would only speak Spanish, so my dad picked up some and has studied it to increase, but it is sad that he missed out on the comfort I have with the language. We are happy that, through me, it doesn't have to be lost any more and can continue in our family line forever.  
   
-[![My family playing at the oldest bullring in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d1d75970d.png "My family playing at the oldest bullring in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d1d75970d.png)  
+![My family playing at the oldest bullring in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d1d75970d.png)  
   
   
 One of the highlights of our world trip was when my paternal Grandfather came to visit us on his 80th birthday with my aunt and it was their first time visiting Spain.  My grandpa would never talk to me in Spanish in America, but in our little village in Spain,  EVERYONE only talked Spanish, so he easily lapsed back into his Spanish. That was so fun! My grandpa has passed on now, but that memory lives with me forever.  
   
-[![Grandma and Mozart interviewed on Chinese TV](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d21bb970d.png "Grandma and Mozart interviewed on Chinese TV")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d21bb970d.png)  
+![Grandma and Mozart interviewed on Chinese TV](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d21bb970d.png)  
   
 Another highlight for me was when my perky 83 year old maternal Grandmother came to stay with us in Asia for 6 weeks and celebrated Chinese New Year with us. We even got interviewed on Chinese TV dressed in our traditional dresses or qípáo .. which was a first for her!  
   
 My Chinese also means a lot to me and it was wonderful to travel to China the first time and be fluent in the language. Caucasians are rare in China, even in  Beijing and Caucasians  speaking,reading and writing fluently in Mandarin are even more rare, so it was extraordinary and delightful to see the reactions of the local folks when I could converse with them.They would smile and laugh so much, so I got a big kick  out of it too. I am pretty good at bargaining from markets around the world, so it was REALLY funny to surprise the sellers there by both my Chinese and good bartering skills.  
   
-[![American girl speaking Chinese in China gets lots of smiles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae09c2a970b.png "American girl speaking Chinese in China gets lots of smiles")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae09c2a970b.png)  
+![American girl speaking Chinese in China gets lots of smiles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae09c2a970b.png)  
   
 I met so many people who had never even seen a Caucasian before so were thrilled to be able to communicate. When I went to school in China, one of my favorites was a 15 month old baby that I saw every day. At first he was very frightened of me as he, like the rest,  had never seen a Caucasian or someone with "yellow" hair, but soon we became best buddies. I loooove babies and had so much fun being a big sister or Dà jiě jie 大姐姐.  
   
-[![American girl, Chinese baby with globe in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d297a970d.png "American girl, Chinese baby with globe in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d297a970d.png)  
+![American girl, Chinese baby with globe in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d297a970d.png)  
   
  To me,  that says everything about the advantage of language learning to foster world peace and understanding, .......taking us past fear, into what we have in common.  
   
@@ -170,36 +170,36 @@ I met so many people who had never even seen a Caucasian before so were thrilled
   
 One of the great advantages of doing world travel as a young child is how easy it is to  see how good- hearted people are everywhere, no matter what language, what religion, what color or ethnicity or what country or continent! Studies showed that children exposed to diversity in positive ways while young have less prejudices.  
   
-[![American girl meeting friendly people all over China thanks to her Mandarin fluency](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c4f78970c.png "American girl meeting friendly people all over China thanks to her Mandarin fluency")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c4f78970c.png)  
+![American girl meeting friendly people all over China thanks to her Mandarin fluency](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c4f78970c.png)  
   
   
 Nobody can speak every language, but even having one more helps and we always learn a few words for each country. It is always really appreciated because all people are proud of their language, country and heritage.You'd be surprised how just knowing how to say "hello", "good bye", "How much does that cost" and "thank you" can take you and help one connect. The more language you have, the easier and deeper the connection.  
   
-[![Mozart at 6 playing violin for kids as a service project in Morocco's Sahara desert](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c54b1970c.png "Mozart at 6 playing violin for kids as a service project in Morocco's Sahara desert")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c54b1970c.png)  
+![Mozart at 6 playing violin for kids as a service project in Morocco's Sahara desert](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c54b1970c.png)  
   
   
 Being the only Caucasian in a large Chinese school in Asia,  being the only one without a hijab on my head in an Islamic country, being the only blond and Caucasian in sight in Africa, seeing abject poverty, doing service projects, being the only Caucasian on a packed plane or bus, etc ...these are all VERY different experience than being one of the majority in the USA.  
   
 I think these experiences have given me a valuable perspective that one only can get by doing. It helps you see people differently and have greater compassion and understanding of minority struggles.  
   
-[![Mozart as only Caucasian in a Chinese school ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c575b970c.png "Mozart as only Caucasian in a Chinese school ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c575b970c.png)  
+![Mozart as only Caucasian in a Chinese school ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c575b970c.png)  
   
 We just got back from Australia and it was fascinating to once again be in a country where my race was the majority, after having spent so much time in Asia, where although it is  very multicultural,  it is much more rare to see a Caucasian face in the crowd. I am grateful I got this deep understanding first hand as a child to understand the first world, but also the developing and third world and the diverse humanity on earth.  
   
-[![Young American girl, Mozart, attending Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c5a83970c.png "Young American girl, Mozart, attending Chinese school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c5a83970c.png)  
+![Young American girl, Mozart, attending Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c5a83970c.png)  
   
   
 **USE OF TECH VS UNPLUGGED AND NATURE**  
   
 My parents always say about tech, "use it as a tool and don't let the tool use you" and I think tech is one of the greatest things today, but also something my generation must be wise about because it can be addictive. Some say, the greatest luxury today is being unplugged and we are big believers in spending lots of time in nature. One of the great pleasures of RV camping in Europe for extended times is we get to have breakfast, lunch and dinner outside under the trees because most of our living is outdoors.  I miss that when I am living in a house.  
   
-[![Camping in Europe in an RV- right on the water in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c5dfc970c.png "Camping in Europe in an RV- right on the water in Sweden")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c5dfc970c.png)  
+![Camping in Europe in an RV- right on the water in Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c5dfc970c.png)  
   
   
   
  Tech today makes many things easier, and we could not do our world tour and lifestyle without it. BUT there are also many benefits of being unplugged and experiencing the REAL world first hand and connecting deeply in person in the local language. We don't own a smart phone and travel the world mostly by foot, bikes or mass transit because one can learn a lot from the ground level and the slow, natural rhythms of life.  
   
-[![Mozart sailing in Hawaii](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c6099970c.png "Mozart sailing in Hawaii")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c6099970c.png)  
+![Mozart sailing in Hawaii](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036c6099970c.png)  
   
   
 **LEARNING THROUGH WORLD TRANSPORTATION**  
@@ -215,7 +215,7 @@ My parents always say about tech, "use it as a tool and don't let the tool use y
   
 The every day educational opportunities on a world trip have been pretty mind-blowing because travel is an awesome way to learn. You might like my video I did myself about a day-in-my-life when I was in Bora Bora at 10 where we couched surfed with a cool French woman who was a vet and I got to swim with sharks, feed huge turtles and all kinds of fantastic things. It was pure bliss!  
   
-[![Travel kid Mozart feeding turtles in Bora Bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0bb6b970b.png "Travel kid Mozart feeding turtles in Bora Bora")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0bb6b970b.png)  
+![Travel kid Mozart feeding turtles in Bora Bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0bb6b970b.png)  
   
   
 A FEW FAVORITE TRAVEL EDUCATIONAL MOMENTS  
@@ -256,14 +256,14 @@ Once when we did a museum tour at the Abbey in Melke, the tour guide was shocked
   
 Books and travel are great combo, even for little kids and there is a hardly a book or film I find today that doesn't cover or take place in a part of the world that I know well. That always makes me happy and brings back memories.  
   
-[![Travel kid Mozart reading Harry Potter book in Cambridge, UK. ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d4dad970d.png "Travel kid Mozart reading Harry Potter book in Cambridge, UK. ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d4dad970d.png)  
+![Travel kid Mozart reading Harry Potter book in Cambridge, UK. ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b036d4dad970d.png)  
   
   
 All travel is good and a great way to learn without even realizing it. Vacations, school trips, study abroad programs are valuable, but they can also be expensive and I don't think as enriching as deep immersive slow travel. I hope our example, encourages others to know that extended world travel is possible for almost ANY ordinary family and so worth the effort. We think it is the best possible education in the world and the best way for a family to live and raise a child. I am already planning my own round the world trip with my best friend in Barcelona after we finish University and will travel with my future kids.  
   
 Studies show that extended travel and learning languages through immersion increases creativity and we need that in today's world. We need to deeply understand other people that share our planet.... their history, culture, art, literature, music, and religions. We need to spend time in their shoes to have greater compassion and understanding of their points of view. We all need to see how gorgeous our planet is and how special and important each human being is.  
   
-[![We are the world! Mozart making friends around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0c837970b.png "We are the world! Mozart making friends around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0c837970b.png)  
+![We are the world! Mozart making friends around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae0c837970b.png)  
   
   
   

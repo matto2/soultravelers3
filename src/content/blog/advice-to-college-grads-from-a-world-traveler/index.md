@@ -20,14 +20,14 @@ tags:
 ---
 
   
-[![IMG_3121_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305cf137e970d.jpg "IMG_3121_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305cf137e970d.jpg)Advice to College Grads  
+![IMG_3121_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305cf137e970d.jpg)Advice to College Grads  
 From a World Traveler  
   
 It's that time of year again,  
 where I see many friends  
 on Facebook graduating
 
-<!--more--> [![travel the world - get your passport and go!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebc49ad0970c.jpg "travel the world - get your passport and go!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebc49ad0970c.jpg)  
+<!--more--> ![travel the world - get your passport and go!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebc49ad0970c.jpg)  
   
   
 It's that time of year again, where I see many friends on Facebook graduating from college or their kids graduating and some dreaming about traveling. It is an exciting time full of hope and expectations ( although [scarier in this economy where college education is in melt down](http://blogmaverick.com/2012/05/13/the-coming-meltdown-in-college-education-why-the-economy-wont-get-better-any-time-soon/ "scary economy and meltdown of college education")).  I get emails from college graduates planning backpacking [trips around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "trips around the world") (or [road tripping Europe](http://soultravelers3new.local/2011/06/road-trip-europe-plan-then-improvise.html "road trip europe"))  asking for advice about travel. Quite sweet and I am especially happy that we give young women who love to travel hope for the future of traveling with kids.  
@@ -38,7 +38,7 @@ You might have seen the great [advice from Billionaires for new graduates](http:
   
 But, I thought I'd add my two cents. As a mother of an 11 year old who just took extensive exams at her [Chinese high school in Asia](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "Mandarin chinese high school in asia"), a well traveled, multi-career woman who [just turned 60](http://soultravelers3new.local/2012/04/happy-birthday-baby.html "just turned 60 reflections"), some one who has dealt with a [travel health](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") issue for 2 years and one that [just lost her Father](http://soultravelers3new.local/2012/05/what-i-learned-from-my-father.html "lessons from dad") and a dear friend, I've been thinking a lot about what I would and do advise my own child for her future. Hope it can be helpful to you or someone you know!  
   
-[![Reading, Writing, 'Rithmetic and World Travel for the global economy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766c3d02a970b.jpg "Reading, Writing, 'Rithmetic and World Travel for the global economy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766c3d02a970b.jpg)  
+![Reading, Writing, 'Rithmetic and World Travel for the global economy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766c3d02a970b.jpg)  
   
   
   

@@ -19,14 +19,14 @@ tags:
   - "wadi-rum"
 ---
 
-[![IMG_2346](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea272f0e970c.jpg "IMG_2346")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea272f0e970c.jpg)Jordan Family Travel  
+![IMG_2346](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea272f0e970c.jpg)Jordan Family Travel  
 Means Beautiful Baby Camel  
   
 One of our great joys on  
 our trip to Jordan was  
 meeting up with two baby camels
 
-<!--more--> [![baby camel with it's mother in Wadi Rum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630431b579970d.jpg "baby camel with it's mother in Wadi Rum")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630431b579970d.jpg)  
+<!--more--> ![baby camel with it's mother in Wadi Rum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630431b579970d.jpg)  
   
 One of our great joys on our [trip to Jordan](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "Trip to Jordan family style") was meeting up with two baby camels while doing a jeep tour of [Wadi Rum](http://soultravelers3new.local/2011/07/wadi-rum-bedouin-honeymoon-suite-.html "wadi rum") after [visiting Petra](http://soultravelers3new.local/2011/06/family-vacation-petra-wow-.html "Visiting Petra").  Seeing camels run so fast and wild in this awe-inspiring desert of [Bedouins](http://soultravelers3new.local/2012/02/bedouins-in-jordan.html "bedouins") and D. H. Lawrence was a thrill. Our 10 year old was so happy to get close up to the babies as she loves baby anything and has become quite the camel rider on our [family world trip](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world famly trip")!  
   

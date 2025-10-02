@@ -16,13 +16,13 @@ tags:
   - "what-travel-toy"
 ---
 
-[![IMG_4981](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435002c64970c.jpg "IMG_4981")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435002c64970c.jpg) Best Toys for Travel?
+![IMG_4981](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435002c64970c.jpg) Best Toys for Travel?
 
 Travel with kids means  
 what best toys to bring.  
 How to choose toys for travel?
 
-<!--more--> [![favorite travel toys for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435002d1d970c.jpg "favorite travel toys for kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435002d1d970c.jpg)  
+<!--more--> ![favorite travel toys for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435002d1d970c.jpg)  
   
   
 [Travel with kids](http://soultravelers3new.local/2011/08/paris-travel-with-kids.html "travel with kids") means what best toys to bring with you. How to choose toys for travel? What kind of travel and how long? The decision can be easier than you think.  

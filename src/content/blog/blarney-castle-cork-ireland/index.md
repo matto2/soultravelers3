@@ -22,13 +22,13 @@ tags:
   - "violin-at-blarney-castle"
 ---
 
-[![194299](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103e342f0970c.jpg "194299")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103e342f0970c.jpg)Blarney Castle - Cork, Ireland  
+![194299](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103e342f0970c.jpg)Blarney Castle - Cork, Ireland  
   
 Is kissing the Blarney Stone on  
 your bucket list? Blarney Castle  
 near Cork is a 15th Century medieval
 
-<!--more--> **[![VISITING BLARNEY CASTLE NEAR CORK, IRELAND WITH FIDDLE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abac3f35970d.jpg "VISITING BLARNEY CASTLE NEAR CORK, IRELAND WITH FIDDLE")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abac3f35970d.jpg)  
+<!--more--> **![VISITING BLARNEY CASTLE NEAR CORK, IRELAND WITH FIDDLE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abac3f35970d.jpg)  
 **  
 Is kissing the Blarney Stone on your bucket list?  [Blarney Castle](http://soultravelers3new.local/2009/10/family-travel-photo-ireland-blarney-stone-castles-exploring-adventure-motorhome.html "Blarney Castle") near Cork is a 15th Century medieval stronghold that remains one of the biggest tourist attractions in [Ireland.](http://soultravelers3new.local/ireland/ "Ireland tips")   
 Kids love castles, iconic things like this and green open spaces to run around and explore**,** so no wonder it's a perfect day trip for families**.**  Climb up to the top via a narrow staircase, enjoy the views and bend over backwards **to** kiss the stone if you are looking for that gift of gab. ( With my [mobility challenges](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "traveling with a handicap or mobility challenges") I waited at the bottom).  

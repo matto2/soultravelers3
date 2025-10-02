@@ -17,13 +17,13 @@ tags:
   - "why-see-china-in-the-fall"
 ---
 
-[![IMG_7170](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f9e841970d.jpg "IMG_7170")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f9e841970d.jpg)China Travel in the Autumn  
+![IMG_7170](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f9e841970d.jpg)China Travel in the Autumn  
   
 Most say that the fall and  
 spring are the best times  
 to visit China because the
 
-<!--more--> [![beautiful dragon boat photo at China's Summer Palace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f9e8b0970d.jpg "beautiful dragon boat photo at China's Summer Palace")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f9e8b0970d.jpg)  
+<!--more--> ![beautiful dragon boat photo at China's Summer Palace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4f9e8b0970d.jpg)  
   
 Most say that the fall and spring are the best times to [visit China](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html#more "visit china") because the weather is good and there are less crowds. November is also suppose to be one of the lowest pollution months in [Beijing](http://soultravelers3new.local/2012/11/yum-loving-the-food-in-beijing.html#more "visiting Beijing").  
   

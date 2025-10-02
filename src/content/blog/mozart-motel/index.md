@@ -6,14 +6,14 @@ categories:
   - "spain"
 ---
 
- [![Img_7442](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_7442.png "Img_7442")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7442.png) Mozart Motel  
+ ![Img_7442](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7442.png) Mozart Motel  
 March 21, 2007
 
 It was sad to see our guests leave as the time flew by so quickly, but we were all enriched by the visit and it was nice also to go back to our quiet life
 
 <!--more-->
 
-[![Img_7442_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_7442_2.png "Img_7442_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7442_2.png)
+![Img_7442_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7442_2.png)
 
 It was sad to see our guests leave as the time flew by so quickly, but we were all enriched by the visit and it was nice also to go back to our quiet life in our village. Mozart was spoiled by all the attention and lapped up every bit of it, but even she seemed happy to get back to our quiet routine. Of course, she would like them and all our relatives and friends to visit every week too.
 
@@ -51,10 +51,10 @@ There is a little landing between that lower bedroom and the living room upstair
 We have had lots of good times in this old house and will always remember this special winter. In many ways it feels like we have been here much longer, yet the time passed by so very quickly. I still can not believe my luck in finding this home and village off the internet. It feels like someone is watching over  
 us and guiding us in our journey as lovingly as Mozart guides her little dolls in her play.
 
-[![Img_7437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_7437.png "Img_7437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7437.png)
+![Img_7437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7437.png)
 
-[![Img_7480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_7480.png "Img_7480")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7480.png)
+![Img_7480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7480.png)
 
-[![Img_7476](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_7476.png "Img_7476")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7476.png)
+![Img_7476](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7476.png)
 
-[![Img_7507](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_7507.png "Img_7507")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7507.png)
+![Img_7507](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_7507.png)

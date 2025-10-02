@@ -19,7 +19,7 @@ tags:
   - "kauai-fire-dance"
 ---
 
-[![Fire 2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5fa0c867970c.jpg "Fire 2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5fa0c867970c.jpg) Wow! Best Fire Dance in Hawaii
+![Fire 2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e5fa0c867970c.jpg) Wow! Best Fire Dance in Hawaii
 
 "That is the best fire dancer I  
 have ever seen and I have seen  
@@ -27,7 +27,7 @@ so many over the years here in Hawaii"
 
 <!--more-->
 
-[![Fire 2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e867b7d4c970d.jpg "Fire 2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e867b7d4c970d.jpg)  
+![Fire 2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e867b7d4c970d.jpg)  
   
 
 "That is the best [fire dancer](http://en.wikipedia.org/wiki/Fire_dancing "fire dancer") I have ever seen and I have seen so many over the years here in [Hawaii](http://www.gohawaii.com/ "Hawaii")" our table mate said to us at the [spectacular luau](http://soultravelers3new.local/2010/10/family-travel-kauai-hawaii-photo-luau-hawaiin-culture-napali-coast-sail-best-for-kids.html "spectacular luau ") that we went to in [Kauai](http://www.kauai-hawaii.com/ "Kauai") at the  [Kilohana Plantation.](http://www.kilohanakauai.com/) We were sitting next to native Hawaiians and people who had lived in Hawaii for many years. I've seen a few myself and always find them impressive, but this guy was truly amazing. I hope the photo and video captures some of the excitement!

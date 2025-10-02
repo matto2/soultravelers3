@@ -15,14 +15,14 @@ tags:
   - "winter-sun-vacation"
 ---
 
-[![IMG_5982](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34b26062970b.jpg "IMG_5982")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34b26062970b.jpg)Tropical Winter Vacation - 
+![IMG_5982](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34b26062970b.jpg)Tropical Winter Vacation - 
 From Freezing to Flipflops  
   
 Lazing on my lounge in the shade,  
 I look past the palm dancing in the  
 breeze that frames my sea view,
 
-<!--more--> [![IMG_5982](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee655eab7970d.jpg "IMG_5982")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee655eab7970d.jpg)  
+<!--more--> ![IMG_5982](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee655eab7970d.jpg)  
   
 Lazing on my lounge in the shade, I look past the palm dancing in the breeze that frames my sea view, watching the shimmering water in the bright sun and people at play in sail boats and yachts. There is something particularly decadent and enjoyable about a [tropical winter vacation](http://soultravelers3new.local/2012/10/endless-summer-joy-of-tropical-winter-travel.html "tropical winter vacation"), when one has just left a very cold place and it is almost Christmas.  
   

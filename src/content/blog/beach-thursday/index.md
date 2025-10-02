@@ -14,13 +14,13 @@ tags:
   - "florida-beach"
 ---
 
-[![IMG_6958](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015393d42518970b.jpg "IMG_6958")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015393d42518970b.jpg)Beach Thursday
+![IMG_6958](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015393d42518970b.jpg)Beach Thursday
 
 Wow! On a cold winter's day,  
 who wouldn't want to be  
 strolling along this beautiful
 
-<!--more--> [![Beautiful beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a7aab6970c.jpg "Beautiful beach")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a7aab6970c.jpg)  
+<!--more--> ![Beautiful beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a7aab6970c.jpg)  
   
   
 Wow! On a cold winter's day, who wouldn't want to be strolling along this beautiful beach near Fort Lauderdale, [Florida](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "florida")? This was taken at at the  [Westin Diplomat Resort and Spa](http://www.diplomatresort.com/ "westin diplomat resort and spa") on the beach in Hollywood.  

@@ -15,7 +15,7 @@ and mausoleum here from 293 to 305 AD,
 
 <!--more-->
 
-[![Img_8336](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8336.png "Img_8336")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8336.png)
+![Img_8336](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8336.png)
 
 Roman emperor Diocletian, who was an Illyrian by birth, probably born in nearby Salona, built his luxurious retirement palace and mausoleum here from 293 to 305 AD, which made Split famous. When the Roman colony of Salona was destroyed in the 7th century, the Romanised survivors moved into the walls of Diocletian’s palace where their heirs still live today.
 
@@ -30,26 +30,26 @@ We really liked the water front promenade, so we walked around until we found th
 Split is Croatia’s second largest city and is more built up than Dubrovnik. I have read it is the heart of the Dalmatian coast, but we liked Dubrovnik much better. The area around Split has become much more built up for our particular taste. We are glad we saw it and probably will see more if our plans work out for Korcula and Hvar islands, but we are happy to be on a quiet beach nearby,  
 away from all the city madness.
 
-[![Img_8297](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8297.png "Img_8297")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8297.png)
+![Img_8297](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8297.png)
 
-[![Img_8311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8311.png "Img_8311")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8311.png)
+![Img_8311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8311.png)
 
-[![Img_8324](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8324.png "Img_8324")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8324.png)
+![Img_8324](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8324.png)
 
-[![Img_8381_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8381_2.png "Img_8381_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8381_2.png)
+![Img_8381_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8381_2.png)
 
-[![Img_8319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8319.png "Img_8319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8319.png)
+![Img_8319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8319.png)
 
-[![Img_8371](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8371.png "Img_8371")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8371.png)
+![Img_8371](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8371.png)
 
-[![Img_8349](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8349.png "Img_8349")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8349.png)
+![Img_8349](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8349.png)
 
-[![Img_8539](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8539.png "Img_8539")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8539.png)
+![Img_8539](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8539.png)
 
-[![Img_8317](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8317.png "Img_8317")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8317.png)
+![Img_8317](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8317.png)
 
-[![Img_8359](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8359.png "Img_8359")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8359.png)
+![Img_8359](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8359.png)
 
-[![Img_8330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8330.png "Img_8330")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8330.png)
+![Img_8330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8330.png)
 
-[![Img_8340](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_8340.png "Img_8340")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8340.png)
+![Img_8340](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_8340.png)

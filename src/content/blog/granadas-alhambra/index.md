@@ -19,14 +19,14 @@ tags:
   - "visiting-alhambra"
 ---
 
-[![8463630](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38012a45970b.jpg "8463630")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38012a45970b.jpg)Granada's Alhambra  
+![8463630](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38012a45970b.jpg)Granada's Alhambra  
   
 Granada's Alhambra, a breathtaking  
 Moorish palace and gardens, is the  
 most visited sight in Spain and one
 
 <!--more-->  
-[![Alhambra ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d423061d7970c.jpg "Alhambra ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d423061d7970c.jpg)  
+![Alhambra ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d423061d7970c.jpg)  
   
 Granada's [Alhambra](http://soultravelers3new.local/2007/03/la-alhambra.html "Alhambra in Granada travel "), a breathtaking Moorish palace and garden, is the most visited sight in [Spain](http://soultravelers3new.local/2013/01/travel-to-spain-kids-tips.html "travel to spain") and one of [Europe's top attractions](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "Best European vacations").  
   
@@ -34,13 +34,13 @@ We have been blessed to visit this spectacular UNESCO World Heritage sight many 
   
 One of the [best world school educational](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "best world school education ideas") ideas to do with kids is to read related books before hand to prepare them and dress in the traditional clothes from that time. Mozart loved being an [ancient  Moorish princess](http://soultravelers3new.local/2007/03/ancient-princes.html "family travel granada alhambra")! The [Arab baths](http://soultravelers3new.local/2010/03/ahh-arab-baths-andalusia-spa-malaga-granada-benalmedena-massage-hotspringsthemal-water-roman.html "arab baths in spain") there are also divine. Don't forget to see it at night and sunset as well as the day time.  
   
-[![Alhambra in Granada Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9a45be4970d.png "Alhambra in Granada Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9a45be4970d.png)  
+![Alhambra in Granada Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9a45be4970d.png)  
   
 The name Alhambra means “red castle” because in some lights the towers take on a golden reddish hue. It dates back to the ninth century and is a fortress (alcazaba), a palace (alcazar) and a small city (medina). Moorish poets described it accurately as “a pearl set in emeralds” and it is  considered a masterpiece of world architecture.  
   
 My favorite part of the Alhambra were the gardens, which like much of the entire complex, were inspired to duplicate heaven on earth. There were awe-inspiring views to the Alhambra, the white Albaicin old moorish section of Granada and the snow capped mountains, plus lots of water elements,greenery and flowers.  
   
-[![Alhambra in Granada Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38013d92970b.png "Alhambra in Granada Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38013d92970b.png)  
+![Alhambra in Granada Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38013d92970b.png)  
   
 Is the magical Alhambra on your bucket list?  
   

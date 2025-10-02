@@ -15,7 +15,7 @@ were astounding in person and very peaceful.
 
 <!--more-->
 
-[![Img_7680](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7680.png "Img_7680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7680.png)
+![Img_7680](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7680.png)
 
 Athens is a wild and crazy place, but we were awed by the Acropolis, Parthenon, and all the ancient sites and museums there, which were astounding in person and very peaceful. The food is delicious and we enjoyed the Plaka area and it’s many outdoor cafes near the Acropolis, but we really did not care for the campsite in Athens (Camping Athens) which is noisy, packed, primitive, expensive and there is a six lane road to cross to catch the bus with no cross signal. Just going to the store for groceries or off to tour in the morning was a death defying act in the endless and maniacal traffic.
 
@@ -51,26 +51,26 @@ We found a great book for kids there called “The Hill Of The Hidden Secrets-A 
 
 After a full day, we headed to a restaurant with a view of the Acropolis just outside of Stoa of Attalos and had the best meal we have had in Athens including home made apple pie and ice cream for dessert (for Mozart and DaVinci) which was a yummy surprise. My food passion in Greece is the Tziki, (a scrumptious yogurt dip) , grape leaves around rice (which I first tasted at a famous Greek’s home when we were neighbors in NYC and made by her mother and loved ever since), Greek salads and slouvaki (chicken grilled on a stick). Oh and the really good fresh made pita bread that is so much better than what we call pita at home, the fresh feta cheese, the ground olive spread.... hmm, come to think of it, there is not much I do not like in Greek food and it suits the weather perfectly and is a healthy choice!
 
-[![Img_7669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7669.png "Img_7669")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7669.png)
+![Img_7669](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7669.png)
 
-[![Img_7725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7725.png "Img_7725")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7725.png)
+![Img_7725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7725.png)
 
-[![Img_7750](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7750.png "Img_7750")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7750.png)
+![Img_7750](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7750.png)
 
-[![Img_7819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7819.png "Img_7819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7819.png)
+![Img_7819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7819.png)
 
-[![Img_7726](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7726.png "Img_7726")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7726.png)
+![Img_7726](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7726.png)
 
-[![Img_7756](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7756.png "Img_7756")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7756.png)
+![Img_7756](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7756.png)
 
-[![Img_7766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7766.png "Img_7766")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7766.png)
+![Img_7766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7766.png)
 
-[![Img_7779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7779.png "Img_7779")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7779.png)
+![Img_7779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7779.png)
 
-[![Img_7742](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7742.png "Img_7742")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7742.png)
+![Img_7742](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7742.png)
 
-[![Img_7863](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7863.png "Img_7863")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7863.png)
+![Img_7863](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7863.png)
 
-[![Img_7888](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7888.png "Img_7888")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7888.png)
+![Img_7888](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7888.png)
 
-[![Img_7706](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/05/img_7706.png "Img_7706")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7706.png)
+![Img_7706](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/05/img_7706.png)

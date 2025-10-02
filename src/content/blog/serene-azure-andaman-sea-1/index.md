@@ -15,13 +15,13 @@ tags:
   - "tropical-weather"
 ---
 
-[![IMG_3048](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c.jpg "IMG_3048")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c.jpg)Serene Azure Andaman Sea
+![IMG_3048](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c.jpg)Serene Azure Andaman Sea
 
 This tranquil photo of the  
 stunning  blue Andaman Sea  
 which is part of the Indian Ocean
 
-<!--more--> [![Stunning Andaman Sea](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676805ee72970b.jpg "Stunning Andaman Sea")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676805ee72970b.jpg)  
+<!--more--> ![Stunning Andaman Sea](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676805ee72970b.jpg)  
   
   
 This tranquil photo of the stunning  blue Andaman Sea which is part of the Indian Ocean (around the coasts of Thailand, Malaysia, Burma and India)  was taken from my terrace in [Penang](http://soultravelers3new.local/2012/05/penang-at-night.html "Georgetown, penang, Malaysia").  

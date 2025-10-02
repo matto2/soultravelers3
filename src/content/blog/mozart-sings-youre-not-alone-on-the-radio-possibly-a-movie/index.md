@@ -25,7 +25,7 @@ tags:
   - "teen-mozart-singing-youre-not-alone"
 ---
 
-[![B3tvVyoCAAAfs0A](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07ba2b68970d.jpg "B3tvVyoCAAAfs0A")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07ba2b68970d.jpg)Mozart Sings "You're Not Alone"  
+![B3tvVyoCAAAfs0A](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07ba2b68970d.jpg)Mozart Sings "You're Not Alone"  
 on the Radio & Possibly a Movie!  
   
 Wow! Don't miss Mozart singing her  
@@ -33,7 +33,7 @@ beautiful original song, "You're Not
 Alone" on the radio December 2nd
 
 <!--more-->  
-[![B3tvVyoCAAAfs0AMozart Sings "You're Not Alone" ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d09f66fe970c.png "B3tvVyoCAAAfs0AMozart Sings "You're Not Alone" ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d09f66fe970c.png)  
+![B3tvVyoCAAAfs0AMozart Sings "You're Not Alone" ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d09f66fe970c.png)  
   
 Wow! Don't miss [Mozart singing](http://soultravelers3new.local/2014/10/mozart-sings-at-the-house-of-blues.html "Beautiful teen Mozart sings") her beautiful original [song, "You're Not Alone"](https://www.youtube.com/watch?v=AUd-6FmGFVU&list=UUcMwuQFsEJfOct29ZTa0v8w "Mozart's song \"You're Not Alone\" ") on the radio December 2nd ( Tuesday) from 5-7pm ( Dallas Time) world wide! She'll sing a couple songs "Live" and be interviewed on Jar Radio and you can call in from ANY where! Go to [http://www.tunein.com](http://t.co/ObUs4l86y4 "http://www.tunein.com")  search for FBRN, then go to Talk Bowl to hear her and dial 214-556-6239 to ask her a question.  
   
@@ -49,7 +49,7 @@ Just before [Thanksgiving](http://soultravelers3new.local/2014/11/gratitude-quot
   
 Dallas is showing it to producers of a movie trilogy that she is in as she thinks they will be interested in using Mozart's song "You're Not Alone" AND her as an actress in it! Mozart is going into the studio soon to make a professional recording of this song and it will be available on itunes.  
   
-[![Singer Mozart filming a music video](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07ba57ef970d.png "Singer Mozart filming a music video")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07ba57ef970d.png)  
+![Singer Mozart filming a music video](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07ba57ef970d.png)  
   
 What a whirlwind of change this year has been! There is lots more going on behind the scenes and we will keep you posted. Hope your December is off to an exciting start too!
 

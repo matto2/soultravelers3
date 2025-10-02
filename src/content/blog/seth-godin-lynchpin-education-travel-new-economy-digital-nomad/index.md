@@ -15,7 +15,7 @@ tags:
   - "seth-godin"
 ---
 
-[![IMG_9939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287714ec3f970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287714ec3f970c.jpg) Seth Godin, Linchpin, Education & Travel  
+![IMG_9939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287714ec3f970c.jpg) Seth Godin, Linchpin, Education & Travel  
 January 26, 2010
 
 Family travel and education go  
@@ -24,7 +24,7 @@ family travel or a creative ultra-mobile
 
 <!--more-->
 
-[![IMG_9939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a811e5c2970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a811e5c2970b.jpg)
+![IMG_9939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a811e5c2970b.jpg)
 
 Family travel and education go hand in hand,  especially extended family travel or a creative ultra mobile lifestyle design that includes the whole family. When you are a parent, giving your child the best possible education in this new economy, preparing them for the future is foremost on ones mine.
 

@@ -17,13 +17,13 @@ tags:
   - "writer-in-china-interview"
 ---
 
-[![IMG_6495](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35e82a56970b.jpg "IMG_6495")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35e82a56970b.jpg)Interview with Ember Swift  
+![IMG_6495](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35e82a56970b.jpg)Interview with Ember Swift  
   
 We were honored to meet up  
 with the amazing and talented  
 musician, writer, song writer, singer
 
-<!--more--> [![Ember Swift](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35e82b76970b.jpg "Ember Swift")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35e82b76970b.jpg)  
+<!--more--> ![Ember Swift](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35e82b76970b.jpg)  
   
 We were honored to meet up with the amazing and talented musician, writer, song writer, [singer Ember Swift](http://www.emberswift.com/ "ember swift") while [in China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel"). Ember is an international artist who has released 11 albums, as well as a much-published writer and a [fluent trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html "fluent trilingual ") in [Mandarin](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "learning mandarin in Beijing"), French and English**.** She is the only foreigner to have a hit in Mandarin on Chinese radio.  
   
@@ -34,20 +34,20 @@ We were honored to meet up with the amazing and talented musician, writer, song 
   
 Funnily, Ember even looks like she could be related to our daughter Mozart and we thought she was a great role model as a creative, [multilingual](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "multilingual - how to raise a kid- languages"), well-traveled person who has used her talents wisely.  
   
-[![Musician Ember Swift at Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78be2ac970d.jpg "Musician Ember Swift at Four Seasons Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78be2ac970d.jpg)  
+![Musician Ember Swift at Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78be2ac970d.jpg)  
   
 I love the synchronicity of [our travel life](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family travel around the world")! Just before we left for our [China trip](http://soultravelers3new.local/2012/12/china-travel-peking-opera.html "china trip"), it happened that my cousin from Michigan (who is a lawyer who just happens to be  working this year in Bangkok), sent me a link about Ember on Facebook,  since we have things in common and she had seen Swift touring "live" several times over the years and was a fan.  
   
 I emailed Ember on a whim then and she was gracious enough to meet with us at the fantastic new [Four Seasons in Beijing](http://soultravelers3new.local/2013/01/four-seasons-hotel-beijing-review-awesome-luxury.html "four seasons beijing") soon after we arrived. It was one of those destined-to-be meetings and we fell in love with both her and Echo. They felt like family and we know we will be seeing more of them.  
   
-[![ Four Seasons Beijing yummy treats at the Executive Club](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d401787a3970c.jpg " Four Seasons Beijing yummy treats at the Executive Club")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d401787a3970c.jpg)  
+![ Four Seasons Beijing yummy treats at the Executive Club](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d401787a3970c.jpg)  
   
 Yum! We feasted on the amazing spread put out in the Executive Club and had the place to ourselves ..including a cool high chair for Echo. Mozart did her own little interview with her ipod I will have to put up later and we all relaxed and talked and made goo goo eyes at Echo who was so adorable she was the center of attention.  
   
 It was a fantastic meeting and family style interview,  but I was really glad that I had the presence of mind to ask the interview questions by email  before hand, so I didn't have to worry about taking notes or recording everything. She was so sweet she even gave us her phone number in case we ever got stuck in China and needed an instant translator!  
   
   
-[![Soultravelers3 - Mozart interviews Ember Swift](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40178cfa970c.jpg "Soultravelers3 - Mozart interviews Ember Swift")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40178cfa970c.jpg)  
+![Soultravelers3 - Mozart interviews Ember Swift](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40178cfa970c.jpg)  
 It was so much fun, we might make this into a series with folks we meet along the way**.** Here is the formal interview:  
   
 **QUESTIONS FOR EMBER SWIFT  
@@ -56,13 +56,13 @@ It was so much fun, we might make this into a series with folks we meet along th
   
 I grew up in a musical family. There was always singing and instrument playing around me. I was encouraged early to explore instruments and my voice.**  
   
-[![Adorable baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c03cd970d.jpg "Adorable baby")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c03cd970d.jpg)  
+![Adorable baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c03cd970d.jpg)  
   
 **How did your family (or others) support you?  
   
 My parents got me piano lessons when I was 9. They wanted me to want them and ask for them, so they didn’t start me earlier and I’m grateful for that. It felt like my journey and not theirs, as a result. I was committed to excellence for my own sake. Those piano lessons started me on my way towards composition and songwriting, too.**  
   
-[![soultraveler3 interview Ember Swift in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40179878970c.jpg "soultraveler3 interview Ember Swift in Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40179878970c.jpg)  
+![soultraveler3 interview Ember Swift in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40179878970c.jpg)  
   
 **What are the things you enjoy about working in the music industry and what are the most challenging parts?  
   
@@ -72,7 +72,7 @@ The music industry, however, is rife with struggle. It’s a hard industry to ma
   
 Another challenging part to the industry is its changing technology (like the fact that selling CDs barely happens anymore) and this will only become more challenging as more and more new technologies emerge for distributing, listening to, and consuming music. **  
   
-[![family style interview Ember Swift at Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40179afc970c.jpg "family style interview Ember Swift at Four Seasons Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40179afc970c.jpg)  
+![family style interview Ember Swift at Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40179afc970c.jpg)  
   
 **What are the pros and cons about being a Caucasian musician/singer in China?  
   
@@ -87,7 +87,7 @@ Its infrastructure is far behind that of the European or North American music ma
   
 Also, this industry is governed and controlled. Censorship is rampant. Content on radio and television and at live official events like festivals all has to be approved before the events can proceed. It often causes last minute cancellations and/or rescheduling. As a result, sometimes I get festival gigs six weeks before the events, whereas things are much more stable in the west and bookings are in place six to ten months in advance.  
 **  
-[![Mozart loved this baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c0b85970d.jpg "Mozart loved this baby")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c0b85970d.jpg)  
+![Mozart loved this baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c0b85970d.jpg)  
   
 **Has speaking Mandarin and being multilingual enriched your life or added to your perspective and music?  
   
@@ -97,7 +97,7 @@ What advice would you give to young people looking for a career in music?
   
 I think that believing in one’s musical talent and one’s musical mission is the key to building a career in music. Without that confidence and self-fulfilling ambition, audiences and industry alike are less likely to take notice. But, I’d also advise that every little tiny success is worth celebrating. One doesn’t have to be famous to be a successful musician. Self-sustainable was always my goal and I reached it. If I never release another album, I’d consider myself successful and I’m nowhere near famous. Most young people who want a career in music equate this desire with wanting to be famous. They’re two very different things.**  
   
-[![Mom and baby enjoying pickle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c0def970d.jpg "Mom and baby enjoying pickle")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c0def970d.jpg)  
+![Mom and baby enjoying pickle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c0def970d.jpg)  
   
 **How would you support a child interested in writing/composing? songs?  
   
@@ -109,7 +109,7 @@ Since having Echo, I have done a lot less with my career, I admit. I’ve done m
   
 In China, it’s much easier to focus on mothering and take it easy because of the lower cost of living and the availability of easy jobs that an English-speaking person can obtain that more than keeps the wallet flush. Without the Chinese economy, I’d be finding this much more difficult, I’m sure. I also have the bonus of a Chinese mother-in-law who has basically made herself available to be a caregiver for the baby and the household. I think I won the lottery on that front!**  
   
-[![Kids Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4017a261970c.jpg "Kids Four Seasons Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4017a261970c.jpg)  
+![Kids Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4017a261970c.jpg)  
   
 **How has living in China, married to a Chinese man who is a musician affected your music?  
   
@@ -123,7 +123,7 @@ Does the young Chinese population dominated by males, affect the popularity of f
   
 There are fewer women in the industry here than I see back home, but there are also fewer people in the industry here in general, so the ratio may actually be similar but just seem more obvious because it’s a smaller community. The popularity of the female singers (and musicians) here does not seem to be adversely affected by the fact that they are fewer in number than the male artists. Bands with female singers seem to get as much attention and support, if not more.**  
   
-[![happy Kids Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c125d970d.jpg "happy Kids Four Seasons Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c125d970d.jpg)  
+![happy Kids Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78c125d970d.jpg)  
   
 **How has travel affected/impacted/enriched your life?  
   

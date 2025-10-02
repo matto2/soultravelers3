@@ -15,14 +15,14 @@ tags:
   - "water-slides-orlando"
 ---
 
-[![IMG_7535](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616cbaf10970c.jpg "IMG_7535")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616cbaf10970c.jpg)Best Water Park in Orlando?  
+![IMG_7535](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616cbaf10970c.jpg)Best Water Park in Orlando?  
 Coco Key Resort  
   
 Looking for an amazingly fun  
 time in Orlando with your family?  
 Do you love water slides
 
-<!--more--> [![best water park in orlando - Coco Key Resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743b20c1c970d.jpg "best water park in orlando - Coco Key Resort")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743b20c1c970d.jpg)  
+<!--more--> ![best water park in orlando - Coco Key Resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743b20c1c970d.jpg)  
   
 Looking for an amazingly [fun time in Orlando](http://soultravelers3new.local/2012/01/the-wizarding-world-of-harry-potter-kids-review.html "fun time in orlando - harry potter") with your family? Do you love water slides and water parks? Looking for the best budget resort for your [Florida vacation](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "florida road trip vacation tips")?  
   
@@ -30,7 +30,7 @@ The [best water park in Orlando](http://www.cocokeyorlando.com/coco-key-water-pa
   
 I will be writing  a detailed review of the hotel, but wanted to get this post up first, so folks don't miss this gem. We were just reminiscing about how awesome this water park was, when I realized I hadn't written about it yet.  
   
-[![Amazing water park fun in Orlando - Birthday celebration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768d6dba2970b.jpg "Amazing water park fun in Orlando - Birthday celebration")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768d6dba2970b.jpg)  
+![Amazing water park fun in Orlando - Birthday celebration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768d6dba2970b.jpg)  
   
 **WATER PARK BIRTHDAY FANTASY**  
   
@@ -46,7 +46,7 @@ Water park access is included in the low price of the hotel, but day passes are 
   
 When I showed this video to my daughter and told her this is where we were staying on our [Florida vacation](http://soultravelers3new.local/2011/11/florida-family-vacation-fun.html "florida vacation") in Orlando, she squealed with delight. It's centrally located on International Drive and close to  Universal Studios Orlando, Walt Disney World, Sea World, restaurants and anything one would need. After a long day at a theme park, one needs a play day to recover or hot tub to relax in.  
   
-[![happy kid at water park at coco key in Orlando, Florida](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743b2f4c7970d.jpg "happy kid at water park at coco key in Orlando, Florida")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743b2f4c7970d.jpg)  
+![happy kid at water park at coco key in Orlando, Florida](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743b2f4c7970d.jpg)  
   
   
 It's a place that makes kids as well as there parents happy. They have a more mellow pool and hot tub that I liked best, so something for the youngest, including babies, to the oldest here. We saw young couples, seniors, families, singles and met people there from Florida, across the USA, as well as Europe on vacation. The staff was very friendly and helpful.  

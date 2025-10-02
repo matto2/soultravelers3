@@ -19,13 +19,13 @@ tags:
   - "vacation-chinese-new-year-chinese-new-year-vacation"
 ---
 
-[![IMG_5228_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8511610970d.jpg "IMG_5228_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8511610970d.jpg)Chinese New Year in Asia  
+![IMG_5228_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8511610970d.jpg)Chinese New Year in Asia  
   
 Chinese New Year ( or Lunar  
 New Year/ Spring Festival)  
 is HUGE in Asia, bigger than
 
-<!--more--> [![Chinese New Year dragon dance celebration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8511667970d.jpg "Chinese New Year dragon dance celebration")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8511667970d.jpg)  
+<!--more--> ![Chinese New Year dragon dance celebration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8511667970d.jpg)  
   
 [Chinese New Year](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Chinese new year stunning photos") ( or Lunar New Year/ Spring Festival) is HUGE in Asia, bigger than [Christmas](http://soultravelers3new.local/2010/12/tropical-christmas-abroad-in-asia.html "Christmas in Asia") or [Thanksgiving](http://soultravelers3new.local/2012/11/thanksgiving-in-china.html "Thanksgiving in China") at home, so a thrilling time to visit.  
   

@@ -7,7 +7,7 @@ categories:
   - "family-travel-photo"
 ---
 
- [![IMG_1215](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571ff7215970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571ff7215970b.jpg) Family Travel Photo- England  
+ ![IMG_1215](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571ff7215970b.jpg) Family Travel Photo- England  
 July 14, 2008
 
 How can you go to London and  
@@ -16,7 +16,7 @@ Globe Theatre? Family travel means
 
 <!--more-->
 
-[![London England Globe Theatre King Lear](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571ff72f4970b.jpg "London England Globe Theatre King Lear")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571ff72f4970b.jpg)
+![London England Globe Theatre King Lear](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571ff72f4970b.jpg)
 
 How can you go to London and miss amazing Shakespeare at the Globe theatre? Family travel means taking advantage of every fun educational moment and this place thrilled our souls! We were not really suppose to take pictures during this [stupendous performance of King Lear](http://www.londondingdong.blogspot.com/2008/04/review-of-king-lear-at-globe-theatre.html), but I just couldn't help myself. We were so close, we felt like we were part of the play!
 

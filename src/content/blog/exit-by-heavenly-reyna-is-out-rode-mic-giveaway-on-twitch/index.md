@@ -47,7 +47,7 @@ tags:
   - "youtube"
 ---
 
-[![Heavenly-Reyna-Press-Photo-credit-Jeanne-Dee-scaled](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278803a8b95200d.jpg "Heavenly-Reyna-Press-Photo-credit-Jeanne-Dee-scaled")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278803a8b95200d.jpg)"Exit" by Heavenly Reyna is Out,  
+![Heavenly-Reyna-Press-Photo-credit-Jeanne-Dee-scaled](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278803a8b95200d.jpg)"Exit" by Heavenly Reyna is Out,  
 Rode Mic Giveaway on Twitch!  
   
 Heavenly Reyna's single "Exit" is  
@@ -55,10 +55,10 @@ out & she is giving away a Rode
 Mic on Twitch tonight celebrating
 
 <!--more-->  
-[![Heavenly-Reyna-Press-Photo-credit-Jeanne-Dee-scaled](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278803a8bb6200d.jpg "Heavenly-Reyna-Press-Photo-credit-Jeanne-Dee-scaled")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278803a8bb6200d.jpg)  
+![Heavenly-Reyna-Press-Photo-credit-Jeanne-Dee-scaled](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278803a8bb6200d.jpg)  
 [Heavenly Reyna](https://www.heavenlyreyna.com "heavenly reyna ")'s single ["Exit"](https://lnk.to/exitacoustic "Exit acoustic single ") is out & she is giving away a Rode Mic on [Twitch](https://www.twitch.tv/heavenlyreyna "heavenly reyna on twitch") tonight celebrating this release with all her fans at 7-11pm PST and will be featured on [Twitch front page!](https://www.twitch.tv "Twitch ") Don't miss this fun virtual release party!  
   
-[![Heavenly Reyna releasing new song %22Exit%22 copy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833026bdee2b07a200c.jpg "Heavenly Reyna releasing new song %22Exit%22 copy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833026bdee2b07a200c.jpg)  
+![Heavenly Reyna releasing new song %22Exit%22 copy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833026bdee2b07a200c.jpg)  
 This quirky, break up ballad ["Exit"](https://lnk.to/exitacoustic) is available on [Spotify](spoti.fi/3iyH49Q), [Apple](apple.co/2UoLgRJ%20), [Amazon](amzn.to/36NHu6X) & all music platforms so please keep streaming it & putting it on your playlists! [Heavenly](https://www.instagram.com/heavenly.reyna/) has already given away one Rode Mic set up on the 7/21 Twitch release party as well as some signed beautiful "Exit" cover art posters. Her beautiful Youtube video already has over 31,000 views and over 230 positive comments!  
   
 

@@ -14,13 +14,13 @@ tags:
   - "usa-road-trip"
 ---
 
-Road Trip USA [![Cross country usa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88fe5070970d.jpg "Cross country usa")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88fe5070970d.jpg)
+Road Trip USA ![Cross country usa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88fe5070970d.jpg)
 
 Have you ever done a road  
 across the United States?  
 We soultravelers3 are planning
 
-<!--more--> [![Cross country usa road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88fe51cf970d.jpg "Cross country usa road trip")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88fe51cf970d.jpg)  
+<!--more--> ![Cross country usa road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88fe51cf970d.jpg)  
   
   
 Have you ever done a road trip across the United States? We [soultravelers3](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "soultravelers3 around the world family travelers") are planning a cross country journey now for this fall that is somewhat based on a 6 month American road trip that I did eons ago. Yep, that is me and my red fiat and tent on that USA road trip over 30 years ago.

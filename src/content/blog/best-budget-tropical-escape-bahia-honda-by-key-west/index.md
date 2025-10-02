@@ -16,14 +16,14 @@ tags:
   - "sun-get-away"
 ---
 
-[![IMG_6235](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35f24dd4970b.jpg "IMG_6235")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35f24dd4970b.jpg)Best Budget Tropical Escape?  
+![IMG_6235](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35f24dd4970b.jpg)Best Budget Tropical Escape?  
 Bahia Honda by Key West  
   
 Winter blues? Escape to warm  
 sunshine, clear water, white sand  
 beaches all on a super low budget
 
-<!--more--> [![Bahia Honda near Key West -Mom and daughter ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee795b787970d.jpg "Bahia Honda near Key West -Mom and daughter ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee795b787970d.jpg)  
+<!--more--> ![Bahia Honda near Key West -Mom and daughter ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee795b787970d.jpg)  
   
   
 Winter blues? Escape to warm sunshine, clear water, [white sand beaches](http://soultravelers3new.local/2011/11/florida-family-vacation-fun.html "white sand beaches") all on a super low budget by heading to this [paradise gem](http://soultravelers3new.local/2012/02/tropical-paradise-at-budget-prices.html "cheap camping key west") near [Key West](http://soultravelers3new.local/2012/02/key-west-vacation.html "key west vacation"). This is [Bahia Honda](http://www.bahiahondapark.com/ "bahia honda"), one of the most beautiful beaches in the world. It's a favorite spot with locals, but most tourists miss this gem.  

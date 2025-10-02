@@ -15,7 +15,7 @@ but hitherto unknown high civilization. Agamemnon was the leader
 
 <!--more-->
 
-[![Img_7978](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_7978.png "Img_7978")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_7978.png)
+![Img_7978](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_7978.png)
 
 Homer called Mycenae “rich in gold” and Schliemann’s discovery of the “mask of Agamemnon” here in 1876 brought to light a legendary but hitherto unknown high civilization. Agamemnon  was the leader  
 of the Greeks during the Trojan War that was described in the Iliad. Mycenae was founded in the 14th century BC and human habitation can be traced to the Neolithic Age. Following our six year old Homer fan, we could not miss Mycenae and a chance to stand where Agamemnon once did.
@@ -33,26 +33,26 @@ from Lycia.. another recent haunt of ours) and still stand strong today with no 
 
 Just like Troy, one does get a real sense of these places as they both sit in areas that are easily defended, so it is logical to see how they would develop. The gate was built in such a way as to make the approach by potential assailants as difficult as possible. We wandered around, climbed to the top and visited the museum here. We especially liked some of the writing tablets, art and the 3D reconstruction of the site. We were glad our book had a poster of it that we will have forever.
 
-[![Img_5351](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5351.png "Img_5351")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5351.png)
+![Img_5351](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5351.png)
 
-[![Img_5353](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5353.png "Img_5353")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5353.png)
+![Img_5353](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5353.png)
 
-[![Img_5356](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5356.png "Img_5356")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5356.png)
+![Img_5356](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5356.png)
 
-[![Img_5361](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5361.png "Img_5361")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5361.png)
+![Img_5361](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5361.png)
 
-[![Img_5370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5370.png "Img_5370")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5370.png)
+![Img_5370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5370.png)
 
-[![Img_5385](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5385.png "Img_5385")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5385.png)
+![Img_5385](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5385.png)
 
-[![Img_5380](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5380.png "Img_5380")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5380.png)
+![Img_5380](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5380.png)
 
-[![Img_5414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5414.png "Img_5414")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5414.png)
+![Img_5414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5414.png)
 
-[![Img_5383](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5383.png "Img_5383")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5383.png)
+![Img_5383](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5383.png)
 
-[![Img_5399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5399.png "Img_5399")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5399.png)
+![Img_5399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5399.png)
 
-[![Img_5389](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5389.png "Img_5389")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5389.png)
+![Img_5389](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5389.png)
 
-[![Img_5404](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5404.png "Img_5404")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5404.png)
+![Img_5404](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5404.png)

@@ -14,13 +14,13 @@ tags:
   - "what-souvenirs-to-buy"
 ---
 
-[![IMG_4834](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b20c9a0970d.jpg "IMG_4834")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b20c9a0970d.jpg)Souvenirs: What Do You Buy?  
+![IMG_4834](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b20c9a0970d.jpg)Souvenirs: What Do You Buy?  
   
 Do you love to shop?  
 Because we are always  
 traveling, we get to see
 
-<!--more--> [![Souvenirs and shopping abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912d0cca970b.jpg "Souvenirs and shopping abroad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912d0cca970b.jpg)  
+<!--more--> ![Souvenirs and shopping abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912d0cca970b.jpg)  
   
   
 Do you love to shop? Because we are [always traveling](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "always traveling"), we get to see a LOT of [souvenir shops](http://soultravelers3new.local/2010/06/family-travel-scotland-edinburgh-funny-sign-souvenir-shop-edinburgh-festival-camping.html "souvenir shops"). Some times I wonder who buys these kinds of things, yet they must sell well because we see similar things every where. After retiring, my Mom use to have a souvenir and shell shop near the beach and I was always amazed at how much stuff they could fit in there and how well it sold.  

@@ -15,7 +15,7 @@ volcanic activity and erosion to an extreme extent,
 
 <!--more-->
 
-[![Img_1194](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1194.png "Img_1194")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1194.png)
+![Img_1194](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1194.png)
 
 The landscape in Cappadocia, Turkey is like nothing else on the planet and took our breath away! Created over sixty million years ago by volcanic activity and erosion to an extreme extent, one can see that process continuing in various stages even today. The vast expanse of cone shaped stone teepees, huge gray pillared  “fairy chimneys” and graceful multi-colored channels and lofty dunes, gives it a surreal lunar feeling or one of being on another planet, like something out of Star Wars.
 
@@ -41,26 +41,26 @@ You will see that most of the time that I was in Cappadocia and some other parts
 
 I don’t know if one really has to cover up as I did see plenty of people (and some were Turkish women) in camisole tops and such. Still the majority of women in some areas are fully covered (legs, arms and hair) even on the hottest days and we even saw a few women covered in all black except their eyes. I just felt more comfortable in more conservative areas being a little more covered out of respect for the culture. Perhaps thats why we met many people and perhaps not. Mozart was certainly a draw as they love children and seemed fascinated by her blond hair that they couldn’t resist touching (altho some Turks are blond too).
 
-[![Img_1174](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1174.png "Img_1174")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1174.png)
+![Img_1174](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1174.png)
 
-[![Img_1212](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1212.png "Img_1212")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1212.png)
+![Img_1212](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1212.png)
 
-[![Img_1201](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1201.png "Img_1201")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1201.png)
+![Img_1201](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1201.png)
 
-[![Img_1219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1219.png "Img_1219")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1219.png)
+![Img_1219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1219.png)
 
-[![Img_1245](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1245.png "Img_1245")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1245.png)
+![Img_1245](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1245.png)
 
-[![Img_1359](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1359.png "Img_1359")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1359.png)
+![Img_1359](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1359.png)
 
-[![Img_1363](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1363.png "Img_1363")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1363.png)
+![Img_1363](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1363.png)
 
-[![Img_1365](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1365.png "Img_1365")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1365.png)
+![Img_1365](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1365.png)
 
-[![Img_1383](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1383.png "Img_1383")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1383.png)
+![Img_1383](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1383.png)
 
-[![Img_1217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1217.png "Img_1217")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1217.png)
+![Img_1217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1217.png)
 
-[![Img_1405](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1405.png "Img_1405")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1405.png)
+![Img_1405](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1405.png)
 
-[![Img_1389](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1389.png "Img_1389")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1389.png)
+![Img_1389](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1389.png)

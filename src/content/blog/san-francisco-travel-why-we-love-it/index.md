@@ -16,13 +16,13 @@ tags:
   - "travel-to-san-francisco"
 ---
 
-[![IMG_0820](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765df4828970b.jpg "IMG_0820")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765df4828970b.jpg)San Francisco Travel - Why We Love it!
+![IMG_0820](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765df4828970b.jpg)San Francisco Travel - Why We Love it!
 
 I still think San Francisco  
 is one of the most beautiful  
 cities in the world,
 
-<!--more--> [![beautiful view of San Francisco ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304ec2ada970d.jpg "beautiful view of San Francisco ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304ec2ada970d.jpg)
+<!--more--> ![beautiful view of San Francisco ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304ec2ada970d.jpg)
 
 I still think San Francisco is one of the most beautiful cities in the world, despite all our [international travel.](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "International travel") When I was in my twenties I lived on Nob Hill and still enjoy visiting this gorgeous city. One of the things we always do when visiting family in [Santa Cruz](http://soultravelers3new.local/2010/10/family-travel-santa-cruz-california-beautiful-beach-house-homeaway-luxury-rental-home.html "Santa cruz, california") [](http://soultravelers3new.local/2010/10/family-travel-santa-cruz-california-beautiful-beach-house-homeaway-luxury-rental-home.html "Santa cruz, california")and [Capitola](http://soultravelers3new.local/2012/02/beautiful-capitola-californias-oldest-beach.html "Visiting capitola, california"), is head to the city.
 

@@ -28,7 +28,7 @@ On a recent morning, just past dawn,
 I watched 1000 uniformed Asian  
 kids in a Chinese school,
 
-<!--more--> [![Chinese girls in school uniforms at Mandarin school plus one American](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d416ece5e970c.jpg "Chinese girls in school uniforms at Mandarin school plus one American")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d416ece5e970c.jpg)  
+<!--more--> ![Chinese girls in school uniforms at Mandarin school plus one American](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d416ece5e970c.jpg)  
   
 On a recent morning, just past dawn, I watched 1000 uniformed Asian kids in a [Chinese school](http://soultravelers3new.local/2012/11/chinese-school-fun.html "Chinese school"), orderly gather for weekly assembly along with one tiny blond [American girl](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "American girl in Chinese school ") who is younger and smaller than the rest and the only Caucasian. Being different can be a good thing, even and perhaps because of the challenges and lessons learned.  
   
@@ -45,7 +45,7 @@ We think it is an excellent thing to be different and to do challenging things a
   
 I believe in [Gatto's theory](http://soultravelers3new.local/education.html "Gatto on education") that when kids are in schools, parents are allowing strangers to adopt your child during those long hours and that is even more challenging when it is with a different culture and language. As [homeschoolers](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "homeschoolers and travel") by nature, it's been a stretch for all of us to trust schools by dipping into them from time to time for [language and cultural immersion](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "raising a multilingual kid- language and cultural immersion"), but worth the effort and challenges.  
   
-[![cute, happy girl and heavy backpack and book bag ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8eaa37a970d.jpg "cute, happy girl and heavy backpack and book bag ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8eaa37a970d.jpg)  
+![cute, happy girl and heavy backpack and book bag ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8eaa37a970d.jpg)  
   
 Mozart skipped several grades with this [Chinese school](http://soultravelers3new.local/2012/06/chines.html "chinese school tea ceremony"), so that adds to the challenge as well. She was use to a world with lots of [homeschooling freedom](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschooling freedom and travel"), but adapted quickly to the daily heavy backpack and book bag shown in this photo, getting up at 5 or 6 AM in the dark for the hour commute by van, after school [tutoring](http://soultravelers3new.local/2012/10/tutoring-in-asia-why-asians-get-superior-test-scores.html "tutoring in Asia"), tests, [physics and algebra in Mandarin](http://soultravelers3new.local/2012/07/chinese-school-in-asia-11-year-old-american-doing-physics-in-mandarin.html "physics and algebra in Mandarin"), long hours and 6 days of week of Chinese school.  
   
@@ -56,7 +56,7 @@ We are also into [organic healthy food](http://soultravelers3new.local/2012/04/h
   
 As a parent, one never knows what is the right thing or best thing to do, one just tries to trust your heart, inner guidance and trust your child. We're grateful to have more time together than most and we work together as a team, supporting her and also reassuring her that it is awesome to make unique choices and it's okay to participate in a different culture, while still keeping her own culture and beliefs.  
   
-[![beautiful girl playing piano in Beijing at the Fairmont Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37481596970b.jpg "beautiful girl playing piano in Beijing at the Fairmont Hotel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37481596970b.jpg)  
+![beautiful girl playing piano in Beijing at the Fairmont Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37481596970b.jpg)  
   
   
 **TAKE PRIDE IN DOING HARD THINGS**  
@@ -67,7 +67,7 @@ This fall she will be 13, so on the cusp of some fabulous teen years ahead, wher
   
 I've gathered some favorite quotes as good reminders from wise minds about why this is such an important topic.  
   
-[![visiting an ancient Chinese temple in Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37481c1b970b.jpg "visiting an ancient Chinese temple in Shanghai")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37481c1b970b.jpg)  
+![visiting an ancient Chinese temple in Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37481c1b970b.jpg)  
   
   
 **BEST QUOTES ON BEING DIFFERENT  
@@ -93,7 +93,7 @@ If a man does not keep pace with his companions, perhaps it is because he hears 
   
 When we allow ourselves to exist truly and fully, we sting the world with our vision and challenge it with our own ways of being. " - Thomas Moore
 
-  [![beautiful girl and globe living a global citizen life](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8eb5d0b970d.jpg "beautiful girl and globe living a global citizen life")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8eb5d0b970d.jpg)  
+  ![beautiful girl and globe living a global citizen life](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8eb5d0b970d.jpg)  
                                                              
 
    

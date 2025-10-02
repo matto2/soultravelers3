@@ -20,7 +20,7 @@ tags:
   - "what-is-right-in-the-world"
 ---
 
-[![IMG_2500](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34dfb5a8970b.jpg "IMG_2500")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34dfb5a8970b.jpg)Random Acts of Kindness  
+![IMG_2500](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34dfb5a8970b.jpg)Random Acts of Kindness  
 in Travel  
   
 "One of the great things about  
@@ -28,7 +28,7 @@ travel is you find out how many
 good, kind people there are"
 
 <!--more-->  
-[![random acts of kindness and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6832e0a970d.jpg "random acts of kindness and travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6832e0a970d.jpg)  
+![random acts of kindness and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6832e0a970d.jpg)  
   
 "One of the great things about travel is you find out how many good, kind people there are" ~Wharton  
   

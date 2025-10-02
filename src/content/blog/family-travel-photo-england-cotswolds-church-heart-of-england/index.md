@@ -7,7 +7,7 @@ categories:
   - "family-travel-photo"
 ---
 
-[![IMG_0188](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5244d00970c-scaled.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5244d00970c-scaled.jpg) Family Travel Photo - England  
+![IMG_0188](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5244d00970c-scaled.jpg) Family Travel Photo - England  
 September 1,  2009
 
 Have you been to the "Heart of  
@@ -16,7 +16,7 @@ to be missed on a family trip to England!
 
 <!--more-->
 
-[![Family Travel Photo - England Cotswolds, Church, Heart of England](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5245fd0970c.jpg "Family Travel Photo - England Cotswolds, Church, Heart of England")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5245fd0970c.jpg)
+![Family Travel Photo - England Cotswolds, Church, Heart of England](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5245fd0970c.jpg)
 
 Have you been to the "Heart of England"? The Cotswolds are not to be missed on a family trip to England!  I had been to London about twenty times before I discovered the nearby [enchanting Cotswolds](http://en.wikipedia.org/wiki/Cotswolds) that the English call the ["Heart of England](http://www.the-cotswolds.org/)".
 

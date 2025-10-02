@@ -16,13 +16,13 @@ tags:
   - "visiting-london-with-kids"
 ---
 
-[![IMG_0197](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f5b62f970b.jpg "IMG_0197")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f5b62f970b.jpg)High Tea in London with Kids
+![IMG_0197](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f5b62f970b.jpg)High Tea in London with Kids
 
 Traveling to London with  
 kids? You can't miss indulging  
 them in a luxury high tea
 
-<!--more--> [![High Tea in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf7ef79970c.jpg "High Tea in London")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf7ef79970c.jpg)  
+<!--more--> ![High Tea in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf7ef79970c.jpg)  
   
 [Traveling to London with kids?](http://soultravelers3new.local/2012/03/travel-kids-london-hamleys-toy-store.html "traveling to London with kids") You can't miss indulging them in a luxury high tea experience! Afternoon tea is a centuries-old tradition in London and most kids love the fancy service with flourish and scrumptious food, making them feel like real British Royalty or the upper class that they read about in books or see in movies.  
   

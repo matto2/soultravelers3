@@ -16,14 +16,14 @@ tags:
   - "visiting-paris"
 ---
 
-[![IMG_2840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b6b8f970d.jpg "IMG_2840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b6b8f970d.jpg)La Samaritaine - 
+![IMG_2840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b6b8f970d.jpg)La Samaritaine - 
 Paris Architecture  
   
 Do you love the exquisite architecture  
 in Europe, like the gorgeous art  
 nouveau, art deco La Samaritaine?
 
-<!--more--> [![La Samaritaine, Paris beautiful architecture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c6a9d2970c.jpg "La Samaritaine, Paris beautiful architecture")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c6a9d2970c.jpg)  
+<!--more--> ![La Samaritaine, Paris beautiful architecture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c6a9d2970c.jpg)  
   
 Do you love the exquisite architecture in [Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best europe vacations"), like the gorgeous art nouveau, art deco La Samaritaine? Exploring and photographing beautiful world architecture in its various forms world-wide  has been one of the great pleasures of our 7 year [family trip around the world.](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family trip around the world")  
   

@@ -17,13 +17,13 @@ tags:
   - "trip-to-jordan"
 ---
 
-[![IMG_3041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3171abd3970b.jpg "IMG_3041")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3171abd3970b.jpg)Boating Aqaba in the Middle East
+![IMG_3041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3171abd3970b.jpg)Boating Aqaba in the Middle East
 
 One of the cool things we  
 did on our amazing family  
 journey to Jordan, was a
 
-<!--more--> [![loving our boat ride in Aqaba, Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3171ac0f970b.jpg "loving our boat ride in Aqaba, Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3171ac0f970b.jpg)  
+<!--more--> ![loving our boat ride in Aqaba, Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3171ac0f970b.jpg)  
   
 One of the cool things we did on our amazing [family journey to Jordan](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "family vacation jordan"), was a private boat trip in Aqaba on the Red Sea. It doesn't look at all like one's perception of the Middle East as it was a luxury resort area where we got on board, yet we could see Egypt, Israel, [Jordan](http://soultravelers3new.local/2011/05/jordan-tourismsmartest-.html "Jordan tourism") and Saudi Arabia from our boat. An azure sea surrounded by deserts, blue sky and palm trees.  
   

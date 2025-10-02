@@ -20,7 +20,7 @@ tags:
   - "visiting-sydney"
 ---
 
-[![IMG_9680](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0119f42b970c.jpg "IMG_9680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0119f42b970c.jpg)Stunning Sydney View  
+![IMG_9680](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0119f42b970c.jpg)Stunning Sydney View  
   
 How about waking up to this  
 stunning view of Sydney's  
@@ -28,7 +28,7 @@ magnificent harbor from your bed
 
 <!--more-->
 
-[![Absolutely stunning view of Sydney harbor from The Rocks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b011e7422970c.jpg "Absolutely stunning view of Sydney harbor from The Rocks")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b011e7422970c.jpg)  
+![Absolutely stunning view of Sydney harbor from The Rocks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b011e7422970c.jpg)  
   
 How about waking up to this stunning view of Sydney's magnificent harbor from your bed then with your morning coffee from your desk on a gorgeous day? WOW! This is our second [visit to Sydney](http://soultravelers3new.local/2011/02/the-stunning-sydney-harbour-yha-hostel-review.html "visit sydney") and both times we stayed in the CBD posh area called "The Rocks".  
   

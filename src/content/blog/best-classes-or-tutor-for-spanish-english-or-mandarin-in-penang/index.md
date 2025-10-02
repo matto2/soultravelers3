@@ -20,14 +20,14 @@ tags:
   - "spanish-tutor-penang"
 ---
 
-[![IMG_4185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45b53a970c.jpg "IMG_4185")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45b53a970c.jpg)Best Classes or Tutor for Spanish,  
+![IMG_4185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45b53a970c.jpg)Best Classes or Tutor for Spanish,  
 English or Mandarin in Penang  
   
 Looking for private language lessons  
 in Spanish, English or Mandarin for  
 you or your child in Penang?
 
-<!--more--> [![Best Classes or Tutor for Spanish, English or Mandarin in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff4598ee970b.jpg "Best Classes or Tutor for Spanish, English or Mandarin in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff4598ee970b.jpg)  
+<!--more--> ![Best Classes or Tutor for Spanish, English or Mandarin in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff4598ee970b.jpg)  
   
 Looking for private [language lessons](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "how to raise a multilingual child") in [Spanish](http://soultravelers3new.local/2007/02/spanish-crayons.html "spanish writing lessons"), English or [Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "Mandarin fluency") for you or your child in [Penang](http://soultravelers3new.local/2012/04/penang-apartment-or-condo-rental-plenty-of-choices.html "Penang apartments to rent")? Yes you can [learn Spanish](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html "learn Spanish") in Penang or improve your English in Penang or [learn Mandarin](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "learn Mandarin in Asia")...all for a cheap price and with a native speaker.  
 
@@ -35,7 +35,7 @@ Looking for private [language lessons](http://soultravelers3new.local/2011/06/ho
 
 **LEARN LANGUAGES IN PENANG** - **学中文 - Aprende Español**  
   
-[![teach kids languages - give them the world!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45dd62970c.jpg "teach kids languages - give them the world!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45dd62970c.jpg)  
+![teach kids languages - give them the world!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45dd62970c.jpg)  
   
 **GIVE YOUR CHILD THE WORLD - KIDS LEARN LANGUAGES**  
   
@@ -45,7 +45,7 @@ Mozart is our [homeschooled](http://soultravelers3new.local/2013/07/homeschool-h
   
 This is her [Curriculum Vitae](http://soultravelers3new.local/2012/10/curriculum-vitae-for-a-gifted-child-world-schooling.html "curriculum vitae for gifted teen"), she recently won a [Mandarin Elocution contest](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "Kids inspiring Mandarin speech - amazing amercian teen") at her 1000 kid Chinese High School, [won an English Elocution contest](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "beautiful girl wins elocution contest") at 10, has been speaking English, Spanish and Mandarin from birth and has traveled the world to 45 countries on 5 continents so far.  
   
-[![Fun language classes for kids in Mandarin, English and Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45cd6a970b.jpg "Fun language classes for kids in Mandarin, English and Spanish")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45cd6a970b.jpg)  
+![Fun language classes for kids in Mandarin, English and Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45cd6a970b.jpg)  
   
 **RAISE A BILINGUAL OR TRILINGUAL CHILD**  
   
@@ -64,25 +64,25 @@ We have [raised her as a triligual](http://soultravelers3new.local/2013/01/raisi
 She is at a 5th grade level reading and writing in Mandarin, college level in English and about a 6th grade level in Spanish reading and writing.  
   
   
-[![Bilingual babies love to learn languages early and it makes them smarter!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45ce61970b.jpg "Bilingual babies love to learn languages early and it makes them smarter!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45ce61970b.jpg)  
+![Bilingual babies love to learn languages early and it makes them smarter!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45ce61970b.jpg)  
   
 **PRIVATE TUTOR IN SPANISH, ENGLISH AND MANDARIN**  
   
 She has also had experience with [private tutors](http://soultravelers3new.local/2012/10/tutoring-in-asia-why-asians-get-superior-test-scores.html "private tutors in Asia") from the time she was a toddler for language in both Spanish and Mandarin, so understands that from both sides, on what makes a good teacher and fun learning experience.  
   
-[![Fun language classes for kids in Spanish, English and Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45ebb4970c.jpg "Fun language classes for kids in Spanish, English and Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45ebb4970c.jpg)  
+![Fun language classes for kids in Spanish, English and Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45ebb4970c.jpg)  
   
 **KIDS LANGUAGE LESSONS IN PENANG - SPANISH, ENGLISH AND MANDARIN**  
   
 We're centrally located in Tanjung Tokong in Penang near Tesco, so it's very convenient to drop your child off after school for an enriching language class to immerse in Spanish, English or Mandarin in fun ways. She has a very flexible schedule during the week and weekends from mornings through the evenings, so just let us know what time and days are best for you.  
   
-[![Learning languages helps kids learn about the world and connect deeply](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45d08f970b.jpg "Learning languages helps kids learn about the world and connect deeply")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45d08f970b.jpg)  
+![Learning languages helps kids learn about the world and connect deeply](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45d08f970b.jpg)  
   
 **ONLINE CLASSES, TEXT OR SKYPE**  
   
 She also teachers some people online, mostly through Skype, Facetime or QQ, so let us know if you would prefer those options where you could live anywhere.  
   
-[![kids learning languages in fun ways!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45d131970b.jpg "kids learning languages in fun ways!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45d131970b.jpg)  
+![kids learning languages in fun ways!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019aff45d131970b.jpg)  
   
 **CONTACT US FOR SPANISH, ENGLISH OR MANDARIN LESSONS**  
   

@@ -15,7 +15,7 @@ famous pilgrimage that people have
 
 <!--more-->
 
-[![Img_2457_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2457_3.jpg "Img_2457_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2457_3.jpg)
+![Img_2457_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2457_3.jpg)
 
   
 
@@ -61,7 +61,7 @@ I think running around the [Plaza del Obradoiro](http://www.planetware.com/santi
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2358.jpg)
 
-[![Img_2358_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2358_2.jpg "Img_2358_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2358_2.jpg)
+![Img_2358_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2358_2.jpg)
 
   
 
@@ -73,13 +73,13 @@ I think running around the [Plaza del Obradoiro](http://www.planetware.com/santi
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2353.jpg)
 
-[![Img_2353_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2353_2.jpg "Img_2353_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2353_2.jpg)
+![Img_2353_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2353_2.jpg)
 
   
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2365.jpg)
 
-[![Img_2365_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2365_2.jpg "Img_2365_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2365_2.jpg)
+![Img_2365_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2365_2.jpg)
 
   
 

@@ -19,7 +19,7 @@ tags:
   - "travel-mozart-meeting-travel-kids"
 ---
 
-[![IMG_0102](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107a466c970c.jpg "IMG_0102")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107a466c970c.jpg)Mozart Meeting Soultravelers3  
+![IMG_0102](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107a466c970c.jpg)Mozart Meeting Soultravelers3  
 Blog Readers Around the World  
   
 One of the best things about  
@@ -27,7 +27,7 @@ writing this travel blog is the
 amazing people we meet world
 
 <!--more-->  
-[![Travel kid Mozart meeting cute French friends ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b045b768b970d.png "Travel kid Mozart meeting cute French friends ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b045b768b970d.png)  
+![Travel kid Mozart meeting cute French friends ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b045b768b970d.png)  
   
 One of the best things about writing this travel blog is the amazing people we meet world wide. [Well traveled trilingual teen Mozart](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled child in the world polyglot") is blessed to have [BFF dear friends](http://soultravelers3new.local/2012/04/best-friends-around-the-world-traveling-with-school-age-kids.html "best friends forever through travel and languages") in 3 languages around the world via our [ultimate travel adventure](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "Ultimate family travel adventure")  
   

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Img_4449](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4449.png "Img_4449")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4449.png)Rustic Spain  
+![Img_4449](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4449.png)Rustic Spain  
 April 30, 2007
 
 Finally, we have found the Spain that we  
@@ -18,7 +18,7 @@ picked up our camper, mainly because we
 
 <!--more-->
 
-[![Img_4449_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4449_2.png "Img_4449_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4449_2.png)
+![Img_4449_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4449_2.png)
 
 Finally, we have found the Spain that we imagined! We ran into delays when we picked up our camper, mainly because we enjoy our friends in Malaga and always find it hard to leave them and we were looking for a special thing to help with the mobile satellite concerns. The ride from Madrid to Malaga on the train was lovely as all of our train trips in Spain have been. Both Madrid and Malaga stations were very nice and we treated Mozart to a lunch at Burger King at the Malaga station as she was hungry like she always is and loves a fast food treat.
 
@@ -33,26 +33,26 @@ That meant two long, eight hour days of driving which is not something we do oft
 
 The good news about this drive was that is was incredibly beautiful countryside and we particularly enjoyed it from Granada to Valencia. It is non touristy rural farm land in an area called Castilla-La Mancha and we liked it so much that we hope to explore it more when we go over it again in the fall. My photos, just taken out the vehicle window as we whizzed by, do not do it justice, but at least gives a little idea. They were perfect vistas to view leisurely while we listened to our Spanish flamenco CD’s, hours of endless olive trees, then endless vines.
 
-[![Img_4373](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4373.png "Img_4373")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4373.png)
+![Img_4373](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4373.png)
 
-[![Img_4437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4437.png "Img_4437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4437.png)
+![Img_4437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4437.png)
 
-[![Img_4400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4400.png "Img_4400")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4400.png)
+![Img_4400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4400.png)
 
-[![Img_4405](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4405.png "Img_4405")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4405.png)
+![Img_4405](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4405.png)
 
-[![Img_4415](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4415.png "Img_4415")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4415.png)
+![Img_4415](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4415.png)
 
-[![Img_4428](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4428.png "Img_4428")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4428.png)
+![Img_4428](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4428.png)
 
-[![Img_4436](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4436.png "Img_4436")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4436.png)
+![Img_4436](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4436.png)
 
-[![Img_4418](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4418.png "Img_4418")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4418.png)
+![Img_4418](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4418.png)
 
-[![Img_4431](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4431.png "Img_4431")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4431.png)
+![Img_4431](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4431.png)
 
-[![Img_4464](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4464.png "Img_4464")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4464.png)
+![Img_4464](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4464.png)
 
-[![Img_4394](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4394.png "Img_4394")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4394.png)
+![Img_4394](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4394.png)
 
-[![Img_4443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4443.png "Img_4443")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4443.png)
+![Img_4443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4443.png)

@@ -25,7 +25,7 @@ travel video was featured around the world
 
 <!--more-->
 
-[![Picture 13_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ef5b09e9970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ef5b09e9970b.jpg)  
+![Picture 13_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ef5b09e9970b.jpg)  
 
 Much to our surprise, this week our [Soultravelers3's first viral Youtube travel video](http://www.youtube.com/user/soultravelers3) was featured [around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html) thanks to the awesome [BBC News!](http://www.bbc.co.uk/) Friends in France, Australia, Georgia ( near Russia), Africa, UK and more kept seeing it during a travel segment on the [BBC World news](http://news.bbc.co.uk/) and telling us about it via [Twitter](http://twitter.com/soultravelers3), our [Soultravelers3 Facebook Page](http://www.facebook.com/pages/Soultravelers3com-Around-the-World-Family-Travel-Education-Adventure/185105005187?ref=ts) and many emails from our [contact page](http://soultravelers3new.local/contact-us.html). 
 

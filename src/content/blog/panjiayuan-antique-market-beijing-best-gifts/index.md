@@ -15,14 +15,14 @@ tags:
   - "panjiayuan-antique-market-beijing"
 ---
 
-[![IMG_8530](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33bc8917970b.jpg "IMG_8530")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33bc8917970b.jpg)Panjiayuan Antique Market  
+![IMG_8530](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33bc8917970b.jpg)Panjiayuan Antique Market  
 Beijing - Best Gifts  
   
 Where is the best place  
 to shop in Beijing? Thier  
 colorful antique market
 
-<!--more--> [![amazing, colorful IMG_8530Panjiayuan Antique Market Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee57072bd970d.jpg "amazing, colorful IMG_8530Panjiayuan Antique Market Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee57072bd970d.jpg)  
+<!--more--> ![amazing, colorful IMG_8530Panjiayuan Antique Market Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee57072bd970d.jpg)  
   
 Where is the best place to shop in [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "beijing best of")? Thier colorful antique market called Panjiayuan certainly stole our hearts and our local friend also enjoyed the great prices. We found it to be a [favorite spot in China,](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel favorites") so we want to go back!  
   

@@ -26,14 +26,14 @@ tags:
   - "tcm-health-secret"
 ---
 
-[![IMG_7830](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b000462d0970d.jpg "IMG_7830")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b000462d0970d.jpg)Cheap Self - Healing the TCM  
+![IMG_7830](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b000462d0970d.jpg)Cheap Self - Healing the TCM  
 Chinese Way - Lajin Stretch  
   
 We learned some secrets  
 about Chinese Medicine TCM  
 while in China on a Chinese Medicine
 
-<!--more--> [![learing free self healing secret in China lajin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b00040495970b.jpg "learing free self healing secret in China lajin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b00040495970b.jpg)  
+<!--more--> ![learing free self healing secret in China lajin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b00040495970b.jpg)  
   
 We learned some secrets about [Chinese Medicine TCM](http://soultravelers3new.local/2013/05/chinese-medicine-in-china.html "CHINESE MEDICINE TCM IN CHINA") while in [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "CHINA TRAVEL") on a [Chinese medicine tour](http://soultravelers3new.local/2013/04/traditional-chinese-medicine-travel-in-china.html "CHINESE MEDICINE TCM TOUR AND TRAVEL IN CHINA") and also because the [amazing Mandarin school in Beijing](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html "BEST MANDARIN CHINESE SCHOOL IN BEIJING") that we worked with had a fantastic TCM doctor as a principal. This is her teaching our friend Winser from [China Travel 2.0](http://www.chinatravel20.com/ "china travel 2.0") how to do it.  
   

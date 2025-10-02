@@ -3,14 +3,14 @@ title: "Beautiful Provence Tips and Photo - Avignon, France"
 date: 2012-10-29
 ---
 
-[![150752897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32d886be970b.jpg "150752897")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32d886be970b.jpg)Beautiful Provence Tips  
+![150752897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32d886be970b.jpg)Beautiful Provence Tips  
 and Photo - Avignon, France  
   
 This is one of my favorite  
 photos of our open ended  
 family world trip, as it captures
 
-<!--more--> [![150752897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee47c6755970d.jpg "150752897")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee47c6755970d.jpg)  
+<!--more--> ![150752897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee47c6755970d.jpg)  
   
 This is one of my favorite photos of our [open ended family world trip](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "open ended family world trip"), as it captures some of the [enchantment of a road trip through Provence](http://soultravelers3new.local/2012/09/europe-road-trip-a-drive-through-france-provence-to-dordogne-via-photos-family-travel.html "enchantment of provence travel by road trip") which is a perfect place to [vacation in Europe with kids](http://soultravelers3new.local/2012/06/france-with-kids-exploring-provence.html "tips vacation Europe in Provence with kids"). This was actually taken from our 4-star [campsite in Avignon](http://www.avignon-tourisme.com/Camping/AVIGNON/fiche-HPAPAC084CDT0000020-1.html "campsite in Avignon provence france"), one of the many special [luxury campgrounds in Europe](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "Best luxury campgrounds in Europe"). I have put this photo up on Twitter, but some how never got it on our blog here.  
   

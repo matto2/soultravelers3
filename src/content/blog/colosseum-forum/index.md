@@ -15,7 +15,7 @@ crowded bus. I think she nudged the man who was in it, out for us,
 
 <!--more-->
 
-[![Img_5835](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5835.png "Img_5835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5835.png)
+![Img_5835](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5835.png)
 
 The white haired, kind faced woman made it clear in Italian that she wanted me and the “bambino” to sit across from her on the very crowded bus. I think she nudged the man who was in it, out for us, but he was still all smiles. We had a nice conversation with her (in a mix of Italian, Spanish and gestures) and several people on our bus ride from the campsite into the Colosseum area.
 
@@ -33,26 +33,26 @@ We got some great video of her fiddling like Nero on her violin with the Colosse
 
 With a blog, some things are just odd like shooting this video or taking pictures of our food in restaurants, but one has to do what you have to do. Nobody really cares and I suppose it is all just part of the freedom of being a tourist. I just read about one blogger who is doing a round the world trip who has people take pictures of her doing cartwheels at famous spots. She will have some unique pictures and we will have some unique violin videos as a souvenir for life, so certainly worth the trouble. Mozart is getting like a pro, handling all the attention while keeping focus.
 
-[![Img_5730](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5730.png "Img_5730")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5730.png)
+![Img_5730](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5730.png)
 
-[![Img_5747](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5747.png "Img_5747")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5747.png)
+![Img_5747](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5747.png)
 
-[![Img_5792](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5792.png "Img_5792")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5792.png)
+![Img_5792](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5792.png)
 
-[![Img_5756](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5756.png "Img_5756")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5756.png)
+![Img_5756](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5756.png)
 
-[![Img_5779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5779.png "Img_5779")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5779.png)
+![Img_5779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5779.png)
 
-[![Img_5766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5766.png "Img_5766")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5766.png)
+![Img_5766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5766.png)
 
-[![Img_5801](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5801.png "Img_5801")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5801.png)
+![Img_5801](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5801.png)
 
-[![Img_5819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5819.png "Img_5819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5819.png)
+![Img_5819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5819.png)
 
-[![Img_5851](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5851.png "Img_5851")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5851.png)
+![Img_5851](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5851.png)
 
-[![Img_5810](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5810.png "Img_5810")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5810.png)
+![Img_5810](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5810.png)
 
-[![Img_5739](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5739.png "Img_5739")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5739.png)
+![Img_5739](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5739.png)
 
-[![Img_5842](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/13/img_5842.png "Img_5842")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5842.png)
+![Img_5842](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/13/img_5842.png)

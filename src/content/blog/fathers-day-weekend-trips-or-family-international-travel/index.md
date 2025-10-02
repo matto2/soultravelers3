@@ -16,7 +16,7 @@ tags:
   - "vacation-with-kids"
 ---
 
-[![IMG_2638](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2de286970b.jpg "IMG_2638")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2de286970b.jpg)Father's Day Weekend Trips  
+![IMG_2638](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2de286970b.jpg)Father's Day Weekend Trips  
 or Family International Travel
 
 On Dad's Day, lets make  
@@ -25,7 +25,7 @@ fathers who do family travel
 
 <!--more-->
 
-[![Father's day travel..wadi rum desert ride ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543300fed1970c.jpg "Father's day travel..wadi rum desert ride ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543300fed1970c.jpg)  
+![Father's day travel..wadi rum desert ride ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543300fed1970c.jpg)  
   
   
 On [Dad's Day](http://en.wikipedia.org/wiki/Father%27s_Day "fathers day"), lets make a [tribute to all the traveling fathers](http://soultravelers3new.local/2009/06/happy-fathers-day-traveling-dads.html "fathers that travel ") who do family travel... be it a weekend getaway , a week's vacation, two week's holiday, a year's [family world trip](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "family world trip") or an open ended [family travel lifestyle](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family travel lifestyle") ( like we have been living these past 5 years...almost into our 6th year of non-stop travel).  

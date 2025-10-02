@@ -9,7 +9,7 @@ categories:
 
  
 
- [![594588](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f663785970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f663785970c.jpg)Family Travel Photo- Denmark  
+ ![594588](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f663785970c.jpg)Family Travel Photo- Denmark  
 April 29, 2009
 
 Family travel in Copenhagen,  
@@ -18,7 +18,7 @@ world famous Tivoli Gardens, the
 
 <!--more-->
 
-[![Tivoli Boys Guard Denmark Danish Copenhagen red boys drums](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705c762e970b.jpg "Tivoli Boys Guard Denmark Danish Copenhagen red boys drums")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705c762e970b.jpg)
+![Tivoli Boys Guard Denmark Danish Copenhagen red boys drums](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705c762e970b.jpg)
 
 Family travel in Copenhagen, Denmark means not missing world famous Tivoli Gardens, the oldest [amusement park](http://www.visitcopenhagen.com/content/tourist/what_to_see_and_do/events/event_calendar/venue_info?VenueID=6) in [the world](http://en.wikipedia.org/wiki/Tivoli_Gardens) and [inspiration](http://www.tivoli.dk/composite-3351.htm) for [Disneyland](http://disneyland.disney.go.com/disneyland/en_US/home/home?name=HomePage&bhcp=1)! We barely made it, but luck was with us as we manage to see it on the very last day of the season.
 

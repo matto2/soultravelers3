@@ -20,20 +20,20 @@ tags:
   - "toxic-mosquito-fogging"
 ---
 
-[![IMG_1844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92b80e3970d.jpg "IMG_1844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92b80e3970d.jpg)Dengue and Fogging  
+![IMG_1844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92b80e3970d.jpg)Dengue and Fogging  
 in Southeast Asia  
   
 Escaping winter in tropical Asia  
 is cheap and fun, but dengue  
 and toxic fogging are two things
 
-<!--more--> [![Dengue fever and mosquito fogging in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92b818c970d.jpg "Dengue fever and mosquito fogging in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92b818c970d.jpg)  
+<!--more--> ![Dengue fever and mosquito fogging in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92b818c970d.jpg)  
   
 [Escaping winter in tropical Asia](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html "escaping winter tropical Asia") is [cheap and fun](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "apartment SE Asia - cheap luxury"), but dengue and toxic fogging are two things I least like about my [tropical island paradise](http://soultravelers3new.local/2013/01/tropical-island-paradise.html "tropical island paradise"). I remember them fogging when I was a kid living in [Miami](http://soultravelers3new.local/2012/09/south-beach-miami-vacation-photo.html "miami vacation") long ago, but now that we are on a serious [health journey](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "traveling while sick") and [eating super healthy](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "travel and eating healthy"), I spend all my spare time reading up on [health](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets") and [how to stay healthier](http://soultravelers3new.local/health-and-travel/ "how to stay healthier"), so these things concern me.  
   
 No matter where you live, we all deal with many more [cumulative toxins](http://www.alsearsmd.com/six-steps-to-a-pure-and-clean-body/ "toxins in our bodies") in our daily lives. Reading books like "The Hundred-Year Lie" by investigative journalist Randal Fitzgerald and "Detoxify or Die" by Dr. Sherry Rogers M.D. and others, has made me more aware of just how bad our environment is and how it is affecting everyone's health and quality of life. Just because you don't get sick immediately, doesn't mean it is not a problem.  
   
-[![mosquito fogging and dengue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41ba881f970c.jpg "mosquito fogging and dengue")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41ba881f970c.jpg)  
+![mosquito fogging and dengue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41ba881f970c.jpg)  
   
   
 **WHAT IS DENGUE FEVER?**  
@@ -43,7 +43,7 @@ Dengue is a flu-like viral disease spread by infected mosquitoes and occurs in m
  Dengue is common in Asia, Africa, the Americas, Australia, and the Caribbean. According to WHO reports, dengue has been on the increase in Southeast Asia, despite the regions efforts to combat the mosquito-borne disease. One finds it in Thailand, Malaysia, Laos, Cambodia, Vietnam, Phillippines, India, Singapore, Indonesia, Sri Lanka, Bhutan, Nepal,  China and more.  
   
   
-[![mosquito fogging and dengue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92e5edf970d.jpg "mosquito fogging and dengue")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92e5edf970d.jpg)  
+![mosquito fogging and dengue](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92e5edf970d.jpg)  
   
   
 **HOW TO PREVENT DENGUE**  
@@ -57,7 +57,7 @@ Dengue mosquitoes bite during the day, so dawn and dusk are the time for most pr
 I think the BEST prevention for ANY disease is to have a healthy immune system, which comes from making [good organic food choices](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic food and health") with things like daily [bone broth](http://soultravelers3new.local/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth"), [kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "kefir"), [raw pastured eggs](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html "raw pastured eggs healthy"), [fermented foods like salsa](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "lactofermented salsa") and [mayo](http://soultravelers3new.local/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html "fermented mayo"),and more. I think these eating strategies to [cure a cold or flu](http://articles.mercola.com/sites/articles/archive/2010/11/22/the-common-cold-simple-strategies-for-prevention-and-treatment.aspx "prevent cold or flu"), also will help prevent Dengue and other viruses. If one should get it, then being as healthy as possible should make it less severe with a quick recovery compared to a person eating lots of sugar and processed foods that weaken the body and immune system.  
   
   
-[![mosquito fogging and dengue Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37885386970b.jpg "mosquito fogging and dengue Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37885386970b.jpg)  
+![mosquito fogging and dengue Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37885386970b.jpg)  
   
 **IS FOGGING SAFE?**  
   
@@ -70,7 +70,7 @@ Even Mozart got stuck in it one time when the fogging started when she was out p
   
 "Impairment of the immune system by chemical pesticides can lead to allergies, auto immune disorders such as lupus, and cancer. It may also lead to infections to which one may be normally resistant." World Resources Institute  
   
-[![mosquito fogging and dengue SE Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92e64b6970d.jpg "mosquito fogging and dengue SE Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92e64b6970d.jpg)  
+![mosquito fogging and dengue SE Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee92e64b6970d.jpg)  
   
   
 **DANGERS FROM FOGGING**  
@@ -85,7 +85,7 @@ Considering that these are sprayed at least weekly here  ( and sometimes severa
   
 ( This quote is about USA, but I think it holds true for most countries as not enough people are paying attention to these problems until it is too late. If anything, the laws in developing countries tend to be  even more lacking in environmental ways).  
   
-[![mosquito fogging and dengue Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c378b3ba3970b.jpg "mosquito fogging and dengue Malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c378b3ba3970b.jpg)  
+![mosquito fogging and dengue Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c378b3ba3970b.jpg)  
   
   
 **ARE THESE PESTICIDES SAFE?**  

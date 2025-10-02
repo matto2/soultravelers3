@@ -15,7 +15,7 @@ arrived and hunted for the right campsite.
 
 <!--more-->
 
-[![Img_5251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5251.png "Img_5251")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5251.png)
+![Img_5251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5251.png)
 
 The golden sun slowly set on a  charming, tiled roof  house, perched high on a small rock island in the middle of the azure sea, as we arrived and hunted for the right campsite. I hoped this was a good omen as I have always fantasized about having a little dream house like that some day. We left Delphi early in  
 the morning after spending a few days there and took the easy road down the mountain this time, as we headed towards the Peloponnese.
@@ -36,26 +36,26 @@ One of our happiest moments in this area was finally finding a fan for our motor
 
 Now even on the hottest days we can work inside if need be (with wet heads if need be, next to the fan) and on oppressively hot nights we prop our “Mr.. Cool” up on some pillows and blast that coolness right to our bodies all night long. As a California girl who loves sun but hates heat, who has spent many years now in cool, coastal San Francisco Bay area summers, this has been the hottest summer I ever remember experiencing.  In lieu of air conditioning in a hot place, happiness is a good fan and cold water !!
 
-[![Img_5236](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5236.png "Img_5236")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5236.png)
+![Img_5236](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5236.png)
 
-[![Img_5241](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5241.png "Img_5241")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5241.png)
+![Img_5241](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5241.png)
 
-[![Img_5259](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5259.png "Img_5259")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5259.png)
+![Img_5259](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5259.png)
 
-[![Img_5285](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5285.png "Img_5285")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5285.png)
+![Img_5285](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5285.png)
 
-[![Img_5277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5277.png "Img_5277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5277.png)
+![Img_5277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5277.png)
 
-[![Img_5279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5279.png "Img_5279")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5279.png)
+![Img_5279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5279.png)
 
-[![Img_5297](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5297.png "Img_5297")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5297.png)
+![Img_5297](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5297.png)
 
-[![Img_5340](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5340.png "Img_5340")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5340.png)
+![Img_5340](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5340.png)
 
-[![Img_5331](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5331.png "Img_5331")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5331.png)
+![Img_5331](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5331.png)
 
-[![Img_5315](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5315.png "Img_5315")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5315.png)
+![Img_5315](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5315.png)
 
-[![Img_5325](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5325.png "Img_5325")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5325.png)
+![Img_5325](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5325.png)
 
-[![Img_5309](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_5309.png "Img_5309")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5309.png)
+![Img_5309](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_5309.png)

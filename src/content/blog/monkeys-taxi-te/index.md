@@ -6,7 +6,7 @@ categories:
   - "morocco"
 ---
 
- [![Img_2409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2409.png "Img_2409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2409.png) Monkeys & Taxi Terror  
+ ![Img_2409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2409.png) Monkeys & Taxi Terror  
 April 3, 2007
 
 Perhaps terror is not a good word for this  
@@ -15,7 +15,7 @@ moments on our eight hour drive from Fez
 
 <!--more-->
 
-[![Img_2409_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2409_2.png "Img_2409_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2409_2.png)
+![Img_2409_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2409_2.png)
 
 Perhaps terror is not a good word for this day and age, but that is what I felt at moments on our eight hour drive from Fez to the Sahara dunes near Merzouga. Indeed, there was a terrorist incident the day before in Morocco while we were there, but it was in Casablanca and I believe only the terrorist were killed. It is certainly something that comes to mind when one is traveling and perhaps even more so in an Arab country with images everywhere that we have been inundated with from the media to fear or be cautious around.
 
@@ -64,26 +64,26 @@ I ended up with hepatitis from the clams in Haiti (which was not too bad for me 
 
 As we got nearer Merzouga and the small village Hassa Labiad where we were going and we started to see the desert landscape it got exciting. I felt like I knew Allessandra now after all of our emails and was looking forward to meeting her. I spotted her before the driver did, with a big grin on her face and carrying her sleeping baby on her, waving with her endless enthusiasm. It was like seeing an old friend even though we had never met. We really picked the perfect person for the Sahara!
 
-[![Img_2402](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2402.png "Img_2402")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2402.png)
+![Img_2402](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2402.png)
 
-[![Img_2391](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2391.png "Img_2391")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2391.png)
+![Img_2391](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2391.png)
 
-[![Img_2399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2399.png "Img_2399")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2399.png)
+![Img_2399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2399.png)
 
-[![Img_2406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2406.png "Img_2406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2406.png)
+![Img_2406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2406.png)
 
-[![Img_2484](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2484.png "Img_2484")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2484.png)
+![Img_2484](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2484.png)
 
-[![Img_2417](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2417.png "Img_2417")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2417.png)
+![Img_2417](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2417.png)
 
-[![Img_2415](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2415.png "Img_2415")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2415.png)
+![Img_2415](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2415.png)
 
-[![Img_2421](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2421.png "Img_2421")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2421.png)
+![Img_2421](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2421.png)
 
-[![Img_2422](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2422.png "Img_2422")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2422.png)
+![Img_2422](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2422.png)
 
-[![Img_2443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2443.png "Img_2443")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2443.png)
+![Img_2443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2443.png)
 
-[![Img_2486](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2486.png "Img_2486")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2486.png)
+![Img_2486](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2486.png)
 
-[![Img_2448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/27/img_2448.png "Img_2448")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2448.png)
+![Img_2448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/27/img_2448.png)

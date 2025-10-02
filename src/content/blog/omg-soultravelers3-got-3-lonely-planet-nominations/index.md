@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
- [![IMG_0330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689749fc970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689749fc970c.jpg) 3 Lonely Planet Nominations!  
+ ![IMG_0330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689749fc970c.jpg) 3 Lonely Planet Nominations!  
 February 25, 2009
 
 We are jumping for joy here in Spain!  
@@ -14,7 +14,7 @@ in our 15th century village. Thanks to our
 
 <!--more-->
 
-[![IMG_0330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689806e8970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689806e8970c.jpg)
+![IMG_0330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689806e8970c.jpg)
 
 We are jumping for joy here in Spain! Yep, that's  Mozart at our local playground in our 15th century village. Thanks to our friend [Peace Mitchell](http://twitter.com/peace_) in [Australia,](http://www.cairnsfamilyholidays.com.au/more_info/about_us.htm "blog") we found out this morning that we have been nominated for three, yes THREE different [Lonely Planet travel blogging awards](http://lplabs.com/2009/02/25/voting-open-for-the-2009-travel-blogger-awards/)!
 

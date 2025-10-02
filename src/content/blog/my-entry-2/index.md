@@ -8,7 +8,7 @@ categories:
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0c5b9970b-150x150-1.jpg)
 
-[![IMG_0673](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0c5b9970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0c5b9970b.jpg)Reflecting On Our Family Travel  
+![IMG_0673](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0c5b9970b.jpg)Reflecting On Our Family Travel  
 January 7, 2009
 
 May your year be filled [with blessings](http://www.huffingtonpost.com/john-morton/lost-everything-found-the_b_154513.html "Inspiring article about blessings even to those who feel all is lost")!  
@@ -17,7 +17,7 @@ wanted to thank all of our readers
 
 <!--more-->
 
-[![IMG_0673](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0d875970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0d875970b.jpg)
+![IMG_0673](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0d875970b.jpg)
 
 May your year be filled [with blessings](http://www.huffingtonpost.com/john-morton/lost-everything-found-the_b_154513.html "Inspiring article about blessings even to those who feel all is lost")! I find this a reflective [time of year](http://www.huffingtonpost.com/jason-mannino/6-steps-to-being-less-ove_b_154570.html "6 steps to being less overwhelmed in 2009") and wanted to thank all of our readers for supporting Soultravelers3 and our family travel.  As  we enter into our third year of around-the-world travel, we continue to be amazed by [this life of freedom](http://www.techworld.com.au/article/268463/why_downturn_can_good_digital_nomads?pp=2 "why this recession will be good for digital nomads") and the beauty we find everywhere.
 
@@ -45,7 +45,7 @@ Another two jets to Utah, then Denver where we met the most wonderful family at 
 
 We had to rush back to San Jose, then onto NYC again for a day and then to Paris and onto Malaga. So many people complain about planes, but we ended up with all good flights and it went like clockwork, partly because we traveled with just a [small daypack each](http://twitpic.com/obtr "daypacks in airport"), despite needing 3 seasons of clothes.
 
-[![IMG_0632](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ba3836970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ba3836970c.jpg)
+![IMG_0632](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ba3836970c.jpg)
 
 We love being back in "our" village and it has been exceptionally sunny. Today was the 3 Kings festival and we enjoy that tradition very much. We enjoyed just hanging out together for Christmas and simple pleasures like reading or watching dvd's together snuggled in bed.
 
@@ -53,14 +53,14 @@ Like many of you, we sense a change in the air with 2006. We are trying to learn
 
 DaVinci will also be working on organizing our photos in Flickr and I think I am going to start a photo a day post of random photos. That will give you some fun travel thrills and give me time to do other writing assignments in between these longer  posts. We are still trying to learn the fine art of how to travel and blog all that we are seeing and learning.
 
-[![IMG_0712](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0db99970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0db99970b.jpg)
+![IMG_0712](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0db99970b.jpg)
 
 If there is anything that you would like to see us do, just let us know in the comments. It is that time of year where we are gathering our plan for the year and how we can best serve your needs and ours. Your feedback is really important to us. You can also leave us a comment on our email contact page.
 
 Thanks again for being the best group of blog readers in cyberspace!
 
-[![IMG_0670](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ba39d3970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ba39d3970c.jpg) 
+![IMG_0670](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ba39d3970c.jpg) 
 
-[![IMG_0705](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0db99970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0db99970b.jpg) 
+![IMG_0705](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0db99970b.jpg) 
 
-[![IMG_0665](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0dbff970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0dbff970b.jpg)
+![IMG_0665](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536b0dbff970b.jpg)

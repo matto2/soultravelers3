@@ -15,7 +15,7 @@ cave in Avanos and met a man who spoke excellent English
 
 <!--more-->
 
-[![Img_1282](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1282.png "Img_1282")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1282.png)
+![Img_1282](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1282.png)
 
 The wet clay spun thru Mozart’s fingers in a pottery tradition that dates back to Hittite times in this area!  We had entered a long, dark, huge cave in Avanos and met a man who spoke excellent English who gave us a private tour of his family owned business. After being served Turkish apple tea in the typical cups made out of glass, we watched his nephew give us a demonstration, making a lidded pot with a wheel he spun by kicking his foot.
 
@@ -29,26 +29,26 @@ I captured it on film and a little video and you can see her joy and pride is pa
 
 We also enjoyed watching them paint and make the very intricate designs. What was amazing to us was that they were drawn free hand. We loved looking at all the samples but did not buy anything as we have no space for such things. We were grateful we met these generous people and learned some more about the Cappadocian culture and this art form  and had some fun with clay!
 
-[![Img_1333](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1333.png "Img_1333")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1333.png)
+![Img_1333](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1333.png)
 
-[![Img_1270](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1270.png "Img_1270")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1270.png)
+![Img_1270](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1270.png)
 
-[![Img_1277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1277.png "Img_1277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1277.png)
+![Img_1277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1277.png)
 
-[![Img_1291](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1291.png "Img_1291")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1291.png)
+![Img_1291](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1291.png)
 
-[![Img_1298](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1298.png "Img_1298")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1298.png)
+![Img_1298](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1298.png)
 
-[![Img_1307](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1307.png "Img_1307")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1307.png)
+![Img_1307](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1307.png)
 
-[![Img_1315](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1315.png "Img_1315")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1315.png)
+![Img_1315](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1315.png)
 
-[![Img_1310](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1310.png "Img_1310")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1310.png)
+![Img_1310](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1310.png)
 
-[![Img_1316](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1316.png "Img_1316")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1316.png)
+![Img_1316](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1316.png)
 
-[![Img_1323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1323.png "Img_1323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1323.png)
+![Img_1323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1323.png)
 
-[![Img_1327](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1327.png "Img_1327")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1327.png)
+![Img_1327](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1327.png)
 
-[![Img_2701](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_2701.png "Img_2701")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_2701.png)
+![Img_2701](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_2701.png)

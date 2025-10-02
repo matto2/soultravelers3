@@ -23,7 +23,7 @@ tags:
 ---
 
   
-[![O88A0247](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4fa53a6200b.jpg "O88A0247")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4fa53a6200b.jpg)Heavenly Reyna Sings Christmas  
+![O88A0247](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4fa53a6200b.jpg)Heavenly Reyna Sings Christmas  
 Cover of "Mistletoe"! Merry Xmas!  
   
 Our gift to you! Heavenly Reyna  
@@ -33,7 +33,7 @@ of Justin Bieber's "Mistletoe"
   
 
 <!--more-->  
-[![Heavenly Reyna singer actress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4fa53dc200b.jpg "Heavenly Reyna singer actress")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4fa53dc200b.jpg)  
+![Heavenly Reyna singer actress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4fa53dc200b.jpg)  
 Our gift to you! [Heavenly Reyna](https://www.linkedin.com/in/heavenlyreyna/ "Heavenly Reyna singer actress on LinkedIn") sings a joyful Christmas cover of Justin Bieber's "Mistletoe" & we hope it finds you and yours enjoying this holiday season.  
   
 2019 has been such a hectic year, that it's great to be able to just rest and spend time with family as we prepare for a new year and new decade! Thank you so much for all your support of [Heavenly](https://www.instagram.com/iamheavenlyreyna/ "Heavenly Reyna singer actress on Instagram") and our blog! We are excited about this new decade, are you?   

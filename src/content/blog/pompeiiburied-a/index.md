@@ -15,7 +15,7 @@ with that exact title, “Pompeii....Buried Alive!”
 
 <!--more-->
 
-[![Img_7192_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7192_4.png "Img_7192_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7192_4.png)
+![Img_7192_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7192_4.png)
 
 Mozart has always been fascinated by Pompeii since she read a book about it  
 several years ago with that exact title, “Pompeii....Buried Alive!” Not exactly  
@@ -80,28 +80,28 @@ realize what a sophisticated life the wealthy lived. It will be a great keepsake
 remember our visit to this very special place and for continuing study and  
 contemplation for years to come.
 
-[![Img_7171_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7171_2.png "Img_7171_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7171_2.png)
+![Img_7171_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7171_2.png)
 
-[![Img_7040_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7040_2.png "Img_7040_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7040_2.png)
+![Img_7040_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7040_2.png)
 
-[![Img_6995](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_6995.png "Img_6995")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_6995.png)
+![Img_6995](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_6995.png)
 
-[![Img_7001](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7001.png "Img_7001")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7001.png)
+![Img_7001](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7001.png)
 
-[![Img_7049](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7049.png "Img_7049")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7049.png)
+![Img_7049](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7049.png)
 
-[![Img_7153](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7153.png "Img_7153")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7153.png)
+![Img_7153](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7153.png)
 
-[![Img_7252](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7252.png "Img_7252")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7252.png)
+![Img_7252](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7252.png)
 
-[![Img_7195](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7195.png "Img_7195")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7195.png)
+![Img_7195](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7195.png)
 
-[![Img_7221](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7221.png "Img_7221")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7221.png)
+![Img_7221](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7221.png)
 
-[![Img_7261](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7261.png "Img_7261")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7261.png)
+![Img_7261](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7261.png)
 
   
 
-[![Img_7292](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7292.png "Img_7292")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7292.png)
+![Img_7292](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7292.png)
 
-[![Img_7150](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/04/img_7150.png "Img_7150")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7150.png)
+![Img_7150](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/04/img_7150.png)

@@ -19,7 +19,7 @@ tags:
   - "why-i-wont-visit-austria"
 ---
 
-[![Img_2134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07aafc9970c.png "Img_2134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07aafc9970c.png)Why I Won't Visit Austria Again  
+![Img_2134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07aafc9970c.png)Why I Won't Visit Austria Again  
   
 We have visited many beautiful  
 sights in Europe and went to Austria  
@@ -27,15 +27,15 @@ twice for extended travel around
 
 <!--more-->
 
-[![Beautiful Austria and why I won't visit again](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0c02e970b.png "Beautiful Austria and why I won't visit again")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0c02e970b.png)  
+![Beautiful Austria and why I won't visit again](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0c02e970b.png)  
   
 We have visited many [beautiful sights in Europe](http://soultravelers3new.local/2013/09/best-places-to-visit-in-europe.html "best places to visit in Europe") and went to [Austria](http://soultravelers3new.local/austria/ "Austria travel tips") twice for [extended travel](http://soultravelers3new.local/2008/06/how-to-do-exten.html "how to do extended travel") around this lovely country,  
   
-[![Beautiful Austria and why I will not visit](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0c0ff970b.png "Beautiful Austria and why I will not visit")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0c0ff970b.png)  
+![Beautiful Austria and why I will not visit](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0c0ff970b.png)  
   
 including [Salzburg](http://soultravelers3new.local/2007/10/sassy-salzburg.html "Salzburg travel") where we [celebrated Mozart's 7th birthday](http://soultravelers3new.local/2007/10/super-7-salzbur.html "birthday celebration Europe"), gorgeous [Hallstatt](http://soultravelers3new.local/2007/10/heavenly-hallst.html "hallstatt travel"), loved [autumn in the Alps](http://soultravelers3new.local/2007/10/autumn-in-the-a.html "autumn in the alps"), [Vienna](http://soultravelers3new.local/2008/02/vienna-a-little.html "Vienna music") and it's music, Austrian wine country along the Danube, [Melk](http://soultravelers3new.local/2010/09/prettiest-church-in-the-world-melk-abbey-austria-european-golden-beauty-on-danube-in-wine-country-.html "Melk Abbey") which has one of the prettiest churches in the world, [Graz](http://soultravelers3new.local/2012/09/austria-hidden-travel-gem.html "Graz - Austria hidden travel gem") and more.  
   
-[![Austria at Octoberfest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07ab779970c.png "Austria at Octoberfest")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07ab779970c.png)  
+![Austria at Octoberfest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07ab779970c.png)  
   
   
 **MORE GEMS IN AUSTRIA**  
@@ -54,17 +54,17 @@ SUMPTUOUS SCHONBRUNN](http://soultravelers3new.local/2008/02/sumptuous-schon.htm
 [  
 ADORABLE VIENNA TIEGARDEN ZOO - OLDEST IN THE WORLD](http://soultravelers3new.local/2007/12/precious-pandas.html#more "CUTE TIEGARDEN ZOO IN VIENNA - OLDEST IN WORLD")  
   
-[![Sound of Music tour in Saltzburg Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0bf84970b.png "Sound of Music tour in Saltzburg Austria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0bf84970b.png)  
+![Sound of Music tour in Saltzburg Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6f0bf84970b.png)  
   
 Thus, it is certainly not because we did not like Austria that will keep us from returning. Luckily, we have seen most of the country quite thoroughly.  
   
-[![travel disaster - surgery in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07aba8d970c.png "travel disaster - surgery in Austria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07aba8d970c.png)  
+![travel disaster - surgery in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d07aba8d970c.png)  
   
 Alas, I am still recovering from the [bike wreck I had on the Danube](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html "travel disaster - bike wreck - hospital in foreign land") in Austria where I broke and paralyzed my right arm for over a year and needed surgery which turned me into a bionic worman and it was VERY painful and a long healing process.  
   
 I am grateful for the good doctors who took care of me as I certainly could have landed in a worse spot, but the antibiotics given to me there, started my spiral into a severe digestion and chronic fatigue illness that I am just now slowly recovering from on my [healing journey.](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html "healing journey")  
   
-[![Img_3929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0795ec9f970d.png "Img_3929")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0795ec9f970d.png)  
+![Img_3929](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0795ec9f970d.png)  
   
 It is just no fun going to hospitals and riding in ambulances and almost dying in foreign lands, no matter lovely the country. English is quite rare in Austria and I speak no German.  I almost [bled to death](http://soultravelers3new.local/2007/11/bloody-monday-i.html "beware you can bleed to death from a  nose bleed") on my first visit to Austria, so when I ended up in the hospital AGAIN, my second time, we decided no more Austria for us.  
   

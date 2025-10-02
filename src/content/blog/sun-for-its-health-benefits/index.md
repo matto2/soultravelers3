@@ -12,13 +12,13 @@ tags:
   - "vitamin-d-importance"
 ---
 
-[![IMG_1645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167678e15e6970b.jpg "IMG_1645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167678e15e6970b.jpg)Sun For It's Health Benefits
+![IMG_1645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167678e15e6970b.jpg)Sun For It's Health Benefits
 
 The sun has been worshipped  
 by many cultures for eons  
 due to it's healing benefits
 
-<!--more--> [![IMG_1645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d.jpg "IMG_1645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d.jpg)  
+<!--more--> ![IMG_1645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d.jpg)  
   
   
 The sun has been worshipped by many cultures for eons due to it's healing benefits and therapuetic powers. Yet, we've all been so corporate-media drenched with information about the harms of the sun, that it is easy to forget that there are so [many healing benefits from the sun](http://drbenkim.com/vitamin-d-facts.htm "many healing benefits from the sun").  

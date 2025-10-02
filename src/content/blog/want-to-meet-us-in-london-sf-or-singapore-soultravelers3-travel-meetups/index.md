@@ -16,7 +16,7 @@ tags:
   - "soultravelers3"
 ---
 
- [![IMG_0175](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013487e51c3c970c.jpg "IMG_0175")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013487e51c3c970c.jpg) Want to Meet Us in London, SF or Singapore?October 1, 2010 
+ ![IMG_0175](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013487e51c3c970c.jpg) Want to Meet Us in London, SF or Singapore?October 1, 2010 
 
 If you want to meet us, now  
 is your chance! We have a few  
@@ -24,7 +24,7 @@ great opportunities coming up in 
 
 <!--more-->
 
-[![Family travel London Paddington](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013487e51d40970c.jpg "Family travel London Paddington")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013487e51d40970c.jpg)
+![Family travel London Paddington](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013487e51d40970c.jpg)
 
 If you want to meet us, now is your chance! We have a few great opportunities coming up in London ( on Oct 3rd), San Francisco ( on Oct 5th) and Singapore ( on Nov 14th). I think we will also do a meet up in Sydney, ( we visit between Nov 8th and 12th)  but I do not have a place there yet, so will announce those details later.
 

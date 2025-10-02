@@ -30,7 +30,7 @@ tags:
   - "world-presentation-by-13-year-old"
 ---
 
-[![IMG_0204](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b01429e18970c.jpg "IMG_0204")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b01429e18970c.jpg)Global Citizen, Innovative Kid - 
+![IMG_0204](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b01429e18970c.jpg)Global Citizen, Innovative Kid - 
 Speaker at Global Education Conference!  
   
 Our most well-traveled trilingual  
@@ -38,7 +38,7 @@ child is presenting this week
 at the Global Education Conference
 
 <!--more-->  
-[![global kid, linguist, speaker GEC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b021d2f68970c.png "global kid, linguist, speaker GEC")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b021d2f68970c.png)  
+![global kid, linguist, speaker GEC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b021d2f68970c.png)  
   
 Our [most well-traveled](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled"), [trilingual child](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "growing up trilingual") is presenting this week at the [Global Education Conference](http://www.globaleducationconference.com/ "global education conference") about what it is like to be a ["world schooled"](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school") pioneer and using the planet as your classroom...literally! Having [spent the last 8 years](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "traveling 8 years"), (all of her primary school years) [traveling the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "traveling the world") ( 45 countries on 5 continents so far) and becoming [fluent in Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in Mandarin") and [Spanish](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best tutor for Spanish"), she has much to offer about the experiential value of becoming a [global citizen](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html "global citizen") early in life.  
   
@@ -51,7 +51,7 @@ Our [most well-traveled](http://soultravelers3new.local/2013/09/the-most-well-tr
   
 This is her first world wide speaking engagement so she is excited and a little nervous, so I hope you can join us. It is free and open to everyone with time for Questions and Answers at the end.Just-turned 13 year old Mozart has a passion about wanting to make a difference, so this conference aligns with our goals. The video above is the easiest way to watch her inspiring speech now.  
   
-[![Conference_BadgePresenter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b014467d9970d.jpg "Conference_BadgePresenter")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b014467d9970d.jpg)  
+![Conference_BadgePresenter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b014467d9970d.jpg)  
   
   
   

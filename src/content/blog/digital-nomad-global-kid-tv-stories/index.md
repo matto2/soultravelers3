@@ -22,14 +22,14 @@ tags:
   - "wireless-generation"
 ---
 
-[![IMG_4241](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cae5fd6970c.jpg "IMG_4241")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cae5fd6970c.jpg)Digital Nomad  
+![IMG_4241](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cae5fd6970c.jpg)Digital Nomad  
 Global Kid TV Stories  
   
 OH! THE PLACES YOU WILL  
 GO! When you are a global kid  
 who has been traveling the world
 
-<!--more--> [![digital nomad kid shares her world TV interviews with friends in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c327fd6b6970b.jpg "digital nomad kid shares her world TV interviews with friends in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c327fd6b6970b.jpg)  
+<!--more--> ![digital nomad kid shares her world TV interviews with friends in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c327fd6b6970b.jpg)  
   
 OH! THE PLACES YOU WILL GO! When you are a [global kid](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "global kid") who has been [traveling the world](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling the world long term as a family digital nomad") non-stop for 7 years to 44 countries on 5 continents, [playing violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "playing violin around the world kid") and [piano as you roam](http://soultravelers3new.local/2007/12/pool-play-piano.html "piano and travel"), [learning Mandarin](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "American kid learning Mandarin in Asia") and [Spanish](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "American kid in school in Spain") like a native...sometimes you need a little "show and tell" to help your [best friends](http://soultravelers3new.local/2012/10/best-friends-forever-and-travel-.html "best friends around the world") understand your [travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "travel lifestyle").  
   

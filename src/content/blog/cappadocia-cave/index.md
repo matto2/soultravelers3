@@ -15,7 +15,7 @@ we walked up the stone stairs to our cave home for the next few days at
 
 <!--more-->
 
-[![Img_1443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1443.png "Img_1443")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1443.png)
+![Img_1443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1443.png)
 
 The profusion of bright pink Hollyhocks and a Cherry tree overflowing with perfectly ripe cherries under the bright blue sky, caught my eye as we walked up the stone stairs to our cave home for the next few days at the Local Cave House. ([www.localcavehouse.com](http://www.localcavehouse.com)) In a semi-delirious state from our all night, very long bus ride from Olympos, the environs of Goreme, felt a little like wandering into a wonderland or dream. One look at our cave lodging carved out of stone and we knew we were in for a unique experience.
 
@@ -39,28 +39,28 @@ I have forgotten the name, but it is quite famous in Goreme. One can not miss it
 
 DaVinci was not sure that he wanted to come to Cappadocia  because it adds a lot of time to a trip to Turkey because of its more isolated location, but he was so glad when he got here. It turned out to be one of our favorite places in Turkey and one of our favorite places on the entire trip. We loved it so much that we added more time here and ended up staying a week as it was hard to leave. It is one of those special places on the planet that should not be missed!
 
-[![Img_1023](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1023.png "Img_1023")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1023.png)
+![Img_1023](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1023.png)
 
-[![Img_1337](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1337.png "Img_1337")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1337.png)
+![Img_1337](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1337.png)
 
-[![Img_1084](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1084.png "Img_1084")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1084.png)
+![Img_1084](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1084.png)
 
-[![Img_1476](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1476.png "Img_1476")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1476.png)
+![Img_1476](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1476.png)
 
-[![Img_1121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1121.png "Img_1121")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1121.png)
+![Img_1121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1121.png)
 
-[![Img_1444](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1444.png "Img_1444")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1444.png)
+![Img_1444](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1444.png)
 
-[![Img_1500](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1500.png "Img_1500")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1500.png)
+![Img_1500](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1500.png)
 
-[![Img_1071](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1071.png "Img_1071")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1071.png)
+![Img_1071](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1071.png)
 
-[![Img_1466](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1466.png "Img_1466")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1466.png)
+![Img_1466](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1466.png)
 
-[![Img_1491](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1491.png "Img_1491")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1491.png)
+![Img_1491](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1491.png)
 
-[![Img_1513](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1513.png "Img_1513")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1513.png)
+![Img_1513](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1513.png)
 
-[![Img_1445](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1445.png "Img_1445")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1445.png)
+![Img_1445](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1445.png)
 
-[![Img_1006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_1006.png "Img_1006")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1006.png)
+![Img_1006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_1006.png)

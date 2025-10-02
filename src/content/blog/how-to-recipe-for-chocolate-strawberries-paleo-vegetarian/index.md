@@ -21,7 +21,7 @@ tags:
   - "yummy-vegetarian-dessert"
 ---
 
-[![IMG_4009](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd54b3c970b.jpg "IMG_4009")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd54b3c970b.jpg)How - to Recipe for Chocolate  
+![IMG_4009](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd54b3c970b.jpg)How - to Recipe for Chocolate  
 Strawberries - Paleo/Vegetarian  
   
 Looking for a delish, healthy treat?  
@@ -29,7 +29,7 @@ Paleos and Vegetarians will love this
 chocolate covered strawberries recipe
 
 <!--more-->  
-[![Yum! How -to Recipe for Chocolate Strawberries - Paleo/ Vegetarian](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ee7a970b.png "Yum! How -to Recipe for Chocolate Strawberries - Paleo/ Vegetarian")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ee7a970b.png)  
+![Yum! How -to Recipe for Chocolate Strawberries - Paleo/ Vegetarian](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ee7a970b.png)  
   
   
 Looking for a [delish, healthy treat](http://soultravelers3new.local/2012/07/healthy-snacks-for-kids.html "healthy snacks for kids")? Paleos and Vegetarians will love this chocolate covered strawberry [recipe](http://soultravelers3new.local/recipes/ "healthy recipes")!  
@@ -47,7 +47,7 @@ Don't miss our [healthy chips](http://soultravelers3new.local/2013/06/yummy-heal
 Since we have been not eating ANY grains, legumes, processed food or sugar, with our organic veggie - based WAPF/GAPS/Paleo style diet on our [prevent and cure cavities](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "prevent and cure cavities naturally") health kick, I am always looking for healthy, easy treats for us.  
   
   
-[![organic strawberries - Best Chocolate dippled Strawberries - Paleo/ Vegetarian recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a14f970c.png "organic strawberries - Best Chocolate dippled Strawberries - Paleo/ Vegetarian recipe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a14f970c.png)  
+![organic strawberries - Best Chocolate dippled Strawberries - Paleo/ Vegetarian recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a14f970c.png)  
   
 **TRAVEL AND EASY HEALTHY FOOD**  
   
@@ -56,7 +56,7 @@ Our [travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-t
 Cheap [healthy food and travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy food and travel") IS a challenge, but it can be done even [travel with Paleo/Grain-free/GAPS/WAPF healthy eating](http://soultravelers3new.local/2014/01/travel-and-paleoprimal-grain-free-gapswapf-healthy-eating.html "travel with paleo/grain-free/GAPS/WAPF healthy eating") on the move.  
   
   
-[![recipe ingredients for paleo chocolate dipped strawberries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6eed1970b.png "recipe ingredients for paleo chocolate dipped strawberries")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6eed1970b.png)  
+![recipe ingredients for paleo chocolate dipped strawberries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6eed1970b.png)  
   
 **TOO MANY LIES WITH OUR FOOD SUPPLY**  
   
@@ -71,14 +71,14 @@ What goes into your food ( pesticides, GMO etc) or animal products you eat ( [ra
 [Sugar kills](https://www.youtube.com/watch?v=dBnniua6-oM "sugar kills"), ( and it's not just in sweets but tons in EVERYTHING from ketchup to salad dressings), [process foods kill](http://authoritynutrition.com/9-ways-that-processed-foods-are-killing-people/ "process foods kill") , [vegetable oils kill,](http://wellnessmama.com/2193/why-you-should-never-eat-vegetable-oil-or-margarine/ "vegetable oils kill ") [grains harm.  
 ](http://wellnessmama.com/3486/do-you-have-a-wheat-belly-interview-with-dr-davis/ "grains harm")  
   
-[![#OMG BEST chocolate recipe and healthy paleo sugar free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91d976970d.png "#OMG BEST chocolate recipe and healthy paleo sugar free")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91d976970d.png)  
+![#OMG BEST chocolate recipe and healthy paleo sugar free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91d976970d.png)  
   
 **YUM!**  **SWEET AND HEALTHY**  
   
 Let's get back to the chocolate goodness! This is a fun and easy project for the whole family. We did this for Valentine's Day and my birthday here in our [short stay hotel in Dallas](http://soultravelers3new.local/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "SHORT STAY HOTEL DALLAS - HAWTHORN SUITES").  
   
   
-[![Healthy chocolate dipped strawberry recipe paleo or vegetarian NOM!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a1cb970c.png "Healthy chocolate dipped strawberry recipe paleo or vegetarian NOM!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a1cb970c.png)  
+![Healthy chocolate dipped strawberry recipe paleo or vegetarian NOM!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a1cb970c.png)  
   
 **ORGANIC STRAWBERRIES CHOCOLATE DIPPED HEALTHY**  
   
@@ -86,7 +86,7 @@ We got some delicious, organic strawberries on sale.
   
 Remember that [Best Chocolate Paleo Cake Recipe](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html "BEST CHOCOLATE CAKE PALEO GRAIN-FREE RECIPE")? I just used that easy and VERY quick recipe for the chocolate part to dip the strawberries.  ( Not the cake, just the frosting)  
   
-[![Healthy parlo chocolate dipped organic strawberry foodporn](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ef60970b.png "Healthy parlo chocolate dipped organic strawberry foodporn")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ef60970b.png)  
+![Healthy parlo chocolate dipped organic strawberry foodporn](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ef60970b.png)  
   
   
  **AMAZING AND FAST HEALTHY CHOCOLATE FROSTING RECIPE**  
@@ -107,7 +107,7 @@ Remember that [Best Chocolate Paleo Cake Recipe](http://soultravelers3new.local/
 1) Mix everything in a blender until smooth
 
 4) Keep refrigerated if you want it to harden  
-[![OMG delish healthy easy chocolate dipped strawberries recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91da03970d.png "OMG delish healthy easy chocolate dipped strawberries recipe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91da03970d.png)  
+![OMG delish healthy easy chocolate dipped strawberries recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91da03970d.png)  
   
 **QUICK, EASY, TAKES 30 SECONDS TO MAKE DELISH, HEALTHY RAW CHOCOLATE**  
   
@@ -126,7 +126,7 @@ With enough butter, anything is good.
 With enough butter, anything is good.
 
   
-[![tips for healthy chocolate dipped strawberries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a222970c.png "tips for healthy chocolate dipped strawberries")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a222970c.png)  
+![tips for healthy chocolate dipped strawberries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a222970c.png)  
   
  **USE FRIDGE OR FREEZER TO HARDEN CHOCOLATE**  
   
@@ -145,7 +145,7 @@ That is my ice cream in the white bowl next to it in the fridge, these days I am
 As usual, we have met some great sustainable farmers here who are very concientious about the food they raise and grow. You can see my whole pastured chickens and grass fed beef in the freezer.  
   
   
-[![beautiful healthy chocolate dipped strawberries - easy recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91da5a970d.png "beautiful healthy chocolate dipped strawberries - easy recipe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91da5a970d.png)  
+![beautiful healthy chocolate dipped strawberries - easy recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d91da5a970d.png)  
   
  “You don't have to cook fancy or complicated masterpieces - just good food from fresh ingredients.” -Julia Child  
   

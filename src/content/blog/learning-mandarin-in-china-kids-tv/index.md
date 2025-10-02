@@ -19,14 +19,14 @@ tags:
   - "tv-in-china"
 ---
 
-[![IMG_6426](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55c8c2b970d.jpg "IMG_6426")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55c8c2b970d.jpg)Learning Mandarin  
+![IMG_6426](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55c8c2b970d.jpg)Learning Mandarin  
 in China - Kids TV  
   
 Can you learn Mandarin  
 by watching TV in China?  
 Probably not, but if a child
 
-<!--more--> [![CCTV in China kids show and learning Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3de787b8970c.jpg "CCTV in China kids show and learning Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3de787b8970c.jpg)  
+<!--more--> ![CCTV in China kids show and learning Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3de787b8970c.jpg)  
   
 Can you [learn Mandarin](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "learn mandarin") by watching TV in China? Probably not, but if a child already [knows Mandarin](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "learning Mandarin in China") well and goes to a [Chinese school](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "chinese school in Asia"), it can be another tool to help with the immersion and gaining vocabulary.  When you are [raising a multilingual kid](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "raising a multilingual kid - how to"), I think it is always good to find fun ways to add more language immerstion time.  
   

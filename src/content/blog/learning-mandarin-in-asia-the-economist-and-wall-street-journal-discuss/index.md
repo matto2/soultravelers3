@@ -15,14 +15,14 @@ tags:
   - "why-learn-mandarin"
 ---
 
-[![IMG_4628](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167684ea1bc970b.jpg "IMG_4628")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167684ea1bc970b.jpg)Learning Mandarin in Asia: The Economist  
+![IMG_4628](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167684ea1bc970b.jpg)Learning Mandarin in Asia: The Economist  
 and Wall Street Journal Discuss
 
 As American parents  
 educating our child in  
 a Mandarin School in Asia, we
 
-<!--more--> [![Learning Mandarin in Asia - my kids Chinese history, biology and note books](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177432993e9970d.jpg "Learning Mandarin in Asia - my kids Chinese history, biology and note books")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177432993e9970d.jpg)  
+<!--more--> ![Learning Mandarin in Asia - my kids Chinese history, biology and note books](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177432993e9970d.jpg)  
   
 As American parents [educating our child in a Mandarin School in Asia](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "American educated in Mandarin school in Asia"), we were quite fascinated by the recent articles in both the [Wall Street Journal](http://online.wsj.com/article/SB10001424052702303640804577490671473322992.html?mod=googlenews_wsj "Wall street journal") and [The Economist](http://www.economist.com/blogs/johnson/2012/06/chinese-0 "the Economist learning Mandarin in Asia") about [learning Chinese in Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "learning Chinese in Asia, Penang") and how the passion for it is growing.  
   

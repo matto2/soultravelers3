@@ -16,14 +16,14 @@ tags:
   - "pink-bikes"
 ---
 
-[![IMG_7460](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33bc1cf8970b.jpg "IMG_7460")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33bc1cf8970b.jpg)Beijing Blonde and  
+![IMG_7460](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33bc1cf8970b.jpg)Beijing Blonde and  
 Pink Electric Bike  
   
 Who doesn't love pink? It  
 seems to be a popular color  
 for electic bikes for girls in China.
 
-<!--more--> [![cute electric bike in China with cute kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55fb882970d.jpg "cute electric bike in China with cute kid")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55fb882970d.jpg)  
+<!--more--> ![cute electric bike in China with cute kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55fb882970d.jpg)  
   
 Who doesn't love pink? It seems to be a popular color for electric bikes for [girls in China](http://soultravelers3new.local/2012/11/babies-in-beijing-china-travel-joy.html "girls in China"). We're enjoying all the [bikes in Beijing](http://soultravelers3new.local/2012/11/beijing-bikes-and-beauty.html "bikes in Beijing") and my little pink blonde bunny enjoyed this pink bike. I love those funny mitten things on the handle bars that are very popular.  
   

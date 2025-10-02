@@ -22,7 +22,7 @@ tags:
   - "travel-teen-singer-mozart-song-is-a-hit"
 ---
 
-[![B7QowokCYAA22WJ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07d9bea0970d.jpg "B7QowokCYAA22WJ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07d9bea0970d.jpg)Buy Mozart's Song "You're Not Alone"  
+![B7QowokCYAA22WJ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07d9bea0970d.jpg)Buy Mozart's Song "You're Not Alone"  
 on Itunes, GooglePlay or Amazon!  
   
 You can buy Mozart's beautiful  
@@ -31,7 +31,7 @@ now on itunes, Google Play &
 
 <!--more-->
 
-[![B7QowokCYAA22WJ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0bf7c01970c.jpg "B7QowokCYAA22WJ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0bf7c01970c.jpg)
+![B7QowokCYAA22WJ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0bf7c01970c.jpg)
 
 You can buy [Mozart's](http://soultravelers3new.local/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html "Mozart's song \"You're Not Alone\" in a movie") beautiful heart-touching original [song, "You're Not Alone"](http://soultravelers3new.local/2014/12/mozarts-recording-her-beautiful-song-youre-not-alone.html "beautiful song by Mozart, \"You're Not Alone\"") now on [itunes](https://itunes.apple.com/us/album/youre-not-alone-single/id956381389?ign-mpt=uo%3D4 "teen singer Mozart's \"You're Not Alone\" on itunes"), [Google Play](https://play.google.com/store/music/album/Mozart_You_re_Not_Alone?id=B664dvuahv4qf4hus67tudaqeye&hl=en "Teen singer Mozart's song \"You're Not Alone\" on google play"), or [Amazon](http://www.amazon.com/Youre-Alone-Wolfgang-Amadeus-Mozart/dp/B00RZMMQE4/ref=sr_1_1?s=dmusic&ie=UTF8&qid=1421218554&sr=1-1&keywords=you%27re+not+alone+by+Mozart "Teen singer Mozart's song \"You're Not Alone\" on Amazon")! Just click on the links to the source that works the best for you and download it for just 99 cents and we'd so appreciate it if you'd write a postive review too!  
   

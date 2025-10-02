@@ -22,13 +22,13 @@ tags:
   - "world-school"
 ---
 
-[![IMG_4796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c326dacac970b.jpg "IMG_4796")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c326dacac970b.jpg)American Student - Chinese View  
+![IMG_4796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c326dacac970b.jpg)American Student - Chinese View  
   
 At a time when Chinese students  
 are flocking to U.S. Colleges and  
 rich Chinese love American private
 
-<!--more--> [![American student in a Mandarin Chinese school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c326ed7fa970b.jpg "American student in a Mandarin Chinese school in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c326ed7fa970b.jpg)  
+<!--more--> ![American student in a Mandarin Chinese school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c326ed7fa970b.jpg)  
   
   
 At a time when [Chinese students are flocking to U.S. Colleges](http://www.cnn.com/2012/05/31/opinion/bennett-china-us-schools/index.html "Chinese flocking to USA colleges") and rich [Chinese love American private high schools](http://www.theatlantic.com/international/archive/2012/03/how-chinas-new-love-affair-with-us-private-schools-is-changing-them-both/255154/ "chinese love private american high schools"), it might seem strange that we are    
@@ -46,7 +46,7 @@ I thought you might enjoy some of the quotes from the Chinese perspective from t
   
 She was born in California in 2000. Her beautiful name was given to her 10 years before she was born. "My mother would have named me Traveller if I was a boy".  
   
-[![Our American daughter enjoying her friends at her Mandarin school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c9d4f96970c.jpg "Our American daughter enjoying her friends at her Mandarin school in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c9d4f96970c.jpg)  
+![Our American daughter enjoying her friends at her Mandarin school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c9d4f96970c.jpg)  
   
   
 Like most media, they got some things wrong, which was a good lesson for Mozart to learn, rarely does ANY media ever get the full story. Even history is not what happened, but what was written down and all writers bring their own prejudice to a story.  

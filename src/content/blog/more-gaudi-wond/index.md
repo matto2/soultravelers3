@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_5283_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5283_2.png "Img_5283_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5283_2.png) More Gaudi Wonders  
+ ![Img_5283_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5283_2.png) More Gaudi Wonders  
 May 4, 2007
 
 Curves, colors, sculpture, mosaics and light  
@@ -15,7 +15,7 @@ of Gaudi.
 
 <!--more-->
 
-[![Img_5283_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5283_3.png "Img_5283_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5283_3.png)
+![Img_5283_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5283_3.png)
 
 Curves, colors, sculpture, mosaics and light help shape the magic and mystical genius of Gaudi. His work embodies the creative energy of Barcelona and no where is it more obvious than on a street called Passeig de Gracia in the beautiful L’Eixample area (which was our favorite area).
 
@@ -39,26 +39,26 @@ Mozart insisted on getting some pictures taken of the two of us in one of those 
 
 Later she found a Gaudi-esque mosaic keychain to add to her touring collection which was a frame for a picture. Guess which picture fit perfectly into that frame? It will be a Mother’s Day Souvenir that we will both cherish forever and remind us of this special Mother’s Day on the road in Barcelona.
 
-[![Img_5335](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5335.png "Img_5335")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5335.png)
+![Img_5335](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5335.png)
 
-[![Img_5407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5407.png "Img_5407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5407.png)
+![Img_5407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5407.png)
 
-[![Img_5220](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5220.png "Img_5220")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5220.png)
+![Img_5220](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5220.png)
 
-[![Img_5311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5311.png "Img_5311")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5311.png)
+![Img_5311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5311.png)
 
-[![Img_5349](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5349.png "Img_5349")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5349.png)
+![Img_5349](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5349.png)
 
-[![Img_5446](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5446.png "Img_5446")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5446.png)
+![Img_5446](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5446.png)
 
-[![Img_5273](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5273.png "Img_5273")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5273.png)
+![Img_5273](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5273.png)
 
-[![Img_5300](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5300.png "Img_5300")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5300.png)
+![Img_5300](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5300.png)
 
-[![Img_5336](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5336.png "Img_5336")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5336.png)
+![Img_5336](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5336.png)
 
-[![Img_5421](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5421.png "Img_5421")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5421.png)
+![Img_5421](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5421.png)
 
-[![Img_5386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5386.png "Img_5386")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5386.png)
+![Img_5386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5386.png)
 
-[![Img_5141](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5141.png "Img_5141")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5141.png)
+![Img_5141](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5141.png)

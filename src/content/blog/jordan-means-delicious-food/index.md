@@ -15,13 +15,13 @@ tags:
   - "traditional-food-jordan"
 ---
 
-[![IMG_0275](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302ccca6d970d.jpg "IMG_0275")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302ccca6d970d.jpg)Jordan Means Delicious Food
+![IMG_0275](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302ccca6d970d.jpg)Jordan Means Delicious Food
 
 Out of the many things  
 on our recent family trip  
 to Jordan that truly blew
 
-<!--more--> [![amazingly delicious food in jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c2268d970c.jpg "amazingly delicious food in jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c2268d970c.jpg)  
+<!--more--> ![amazingly delicious food in jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c2268d970c.jpg)  
   
 Out of the many things on our recent [family trip to Jordan](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "family trip to Jordan") that truly blew us away was the food. I'd heard the food was great in Jordan, but didn't expect every meal to be absolutely scrumptious and healthy. It is not unusual to have 30 or 40 dishes served at a meal, so many temptations to please the eye and tickle the palate.  
   

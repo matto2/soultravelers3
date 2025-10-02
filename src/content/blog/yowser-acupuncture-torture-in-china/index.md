@@ -18,14 +18,14 @@ tags:
   - "traditional-chinese-medicine-in-china"
 ---
 
-[![IMG_8289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55fe894970d.jpg "IMG_8289")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55fe894970d.jpg)Yowser! Acupuncture  
+![IMG_8289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55fe894970d.jpg)Yowser! Acupuncture  
 Torture in China!  
   
 Is Traditional Chinese  
 Medicine and Acupuncture  
 different in China? As many
 
-<!--more--> [![painful but effective acupuncture treatment in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e0adadb970c.jpg "painful but effective acupuncture treatment in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e0adadb970c.jpg)  
+<!--more--> ![painful but effective acupuncture treatment in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e0adadb970c.jpg)  
   
   
 Is Traditional Chinese Medicine and Acupuncture different in [China](http://soultravelers3new.local/2012/11/china-parks-and-martial-arts.html#more "china health and fitness")? As many of you know, I am a fan of TCM ( Traditional Chinese Medicine) and I've already experienced it on three continents and recently wrote about the [Acupuncture hospital in Penang](http://soultravelers3new.local/2012/10/traditional-chinese-medicine-in-asia.html "acupuncture hospital in Penang").  

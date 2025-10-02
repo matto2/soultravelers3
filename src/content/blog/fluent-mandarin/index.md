@@ -26,7 +26,7 @@ tags:
   - "winning-mandarin-speech"
 ---
 
-[![IMG_7542](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191030253af970c.jpg "IMG_7542")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191030253af970c.jpg)Fluent Mandarin  
+![IMG_7542](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191030253af970c.jpg)Fluent Mandarin  
   
 Can you be fluent in Mandarin  
 in 3 momths? Can you learn to  
@@ -35,7 +35,7 @@ speak Mandarin fluently 6 months
 <!--more-->  
   
   
-[![Fluent Mandarin - reading, writing, talking like a native](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacaafe9970d.jpg "Fluent Mandarin - reading, writing, talking like a native")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacaafe9970d.jpg)  
+![Fluent Mandarin - reading, writing, talking like a native](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacaafe9970d.jpg)  
   
 Can you be [fluent in Mandarin in 3 months](http://sarajaaksola.com/fluent-mandarin-in-three-months-im-not-convinced/ "fluent in Manarin in 3 months")? Can you learn to [speak Mandarin fluently](http://mandarinsegments.blogspot.com/2009/09/learn-to-speak-mandarin-fluently-in-6.html "speak mandarin fluently 6 months") in 6 months? How long does it take for a native English speaker to become [fluent in Chinese](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "mandarin immersion in China")?  
   
@@ -43,7 +43,7 @@ Can you be [fluent in Mandarin in 3 months](http://sarajaaksola.com/fluent-manda
   
 I love my [polyglot](http://www.fluentin3months.com/ "polyglot") friend [Benny Lewis](http://www.fluentin3months.com/mandarin-mission/ "mandarin fluency") for his enthusiam, talent and love of languages, but his [fluent Mandarin in 3 months](http://www.hackingchinese.com/?p=1028 "mandarin fluency"), is a very different goal than ours for Chinese fluency and literacy for our [trilingual kid](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "growing up bilingual or trilingual").  
   
-[![My kid working on writing Chinese at an airport...I think Bangkok headed to Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103033dd0970c.jpg "My kid working on writing Chinese at an airport...I think Bangkok headed to Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103033dd0970c.jpg)  
+![My kid working on writing Chinese at an airport...I think Bangkok headed to Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019103033dd0970c.jpg)  
   
 Learning ANY language is a lifelong pursuit, (probably even more so for [Mandarin](http://soultravelers3new.local/2012/02/mandarin-chinese-learning-at-home-and-abroad.html "learning mandarin") since it is one of the [world's hardest languages](http://pinyin.info/readings/texts/moser.html "Mandarin world's hardest language")),so the definition of ‘fluency’ depends on each individual’s goals. [Reading and writing well in Chinese](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html "reading and writing in Chinese and Spanish") was part of our goal as well as [speaking Mandarin fluently.](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "speaking Mandarin fluently")  
   
@@ -55,12 +55,12 @@ Our goal has been to get Mozart as close to native level fluency and literacy in
   
  The U.S. State Department’s Foreign Service Institute says Mandarin is one of the five most difficult languages in the world for native English speakers to learn. The British Foreign Service believes that less than 3% of the population is actually able to learn languages of a completely different concept and alphabet, such as Mandarin.  
   
-[![little girl doing Mandarin Chinese homework in Barcelona under the trees](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910303e534970c.jpg "little girl doing Mandarin Chinese homework in Barcelona under the trees")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910303e534970c.jpg)  
+![little girl doing Mandarin Chinese homework in Barcelona under the trees](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910303e534970c.jpg)  
   
   
 There is a myth that says a child who is proficient in speaking a language is fluent, but this is just not so as there are different levels to being "fluent" in a language. Proficiency in face-to-face communication doesn't imply proficiency in more complex academic language needed in a classroom or in life. Mozart has been fluent in Spanish from birth, but [having gone to a local school in Spain](http://soultravelers3new.local/2006/11/first-day-of-sc.html)  for 4 winters where she was totally immersed with teachers who spoke no English, [learning written Spanish](http://soultravelers3new.local/2007/02/spanish-crayons.html "learning spanish writing in spain") and reading Spanish in the same way as locals,  her "fluency" level is much greater than any other way we, as monolinguals could have given her.  
   
-[![American girl at 6 on first day of school in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacc886d970d.png "American girl at 6 on first day of school in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacc886d970d.png)  
+![American girl at 6 on first day of school in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacc886d970d.png)  
   
   
 The same is true about [learning Mandarin in Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "learning Mandarin chinese in Penang") at a [Chinese school](http://soultravelers3new.local/2012/11/chinese-school-fun.html "Chinese school") where our child, at just  10 years old, was the [youngest, smallest, only Caucasian](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "only american in Chinese school asia") to go to this large campus, 1000-kid [Chinese High School](http://soultravelers3new.local/2012/10/american-student-chinese-view.html "Chinese high school - american kid, chinese view") ( with a majority of male pupils) where caning, [after school tutoring,](http://soultravelers3new.local/2012/10/tutoring-in-asia-why-asians-get-superior-test-scores.html "after school tutoring or tuition asia") long hours,6 days a week and a "Dicipline Master" are all  part of the [traditonal](http://soultravelers3new.local/2012/06/chines.html "tea ceremony in chinese school") curriculum.  
@@ -71,7 +71,7 @@ Trust me, we DID worry on that [first day of school in Spain](http://soultravele
   
 Gaining this "American fluent trilingual" status has been a HUGE, long term family goal that has taken a lot of sacrifice and work (similar to raising an Olympic champion). It's not the kind of thing that happens by accident or you'd see a lot of fluent triliingual Amercian kids with monolingual parents.  
   
-[![Only American kid in a Chinese High School](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910303f09d970c.jpg "Only American kid in a Chinese High School")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910303f09d970c.jpg)  
+![Only American kid in a Chinese High School](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910303f09d970c.jpg)  
   
 Many Chinese parents in America and even in Malaysia, do not raise kids who are fluent in Mandarin Chinese, just as many [Hispanic native Spanish speaking parents](http://www.huffingtonpost.com/2012/09/17/latinos-not-speaking-spanish_n_1890501.html "hispanic but no spanish speaking") in America ( and other nationalities) fail to raise their kids as fluent biliguals ( even when they try). Many travelers and expats in [Spain](http://soultravelers3new.local/2011/05/best-southern-spain-holiday/comments/page/2/ "travel spain"), [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel") and everywhere can be there for years or decades and never learn the language. Why? It takes a huge and long commitment with LOTS of hard work to become fully fluent and literate in a second language.  
   
@@ -84,20 +84,20 @@ That is why we are extremely proud that Mozart won the trophy for the [Mandarin 
   
 As much as anything this is a post to acknowledge the VERY hard work Mozart has put in and sacrifices she has made to get this fluency in Mandarin and [Spanish](http://www.youtube.com/watch?v=ONPYysaauQM "american kid reading spanish") while keeping up with other passions like [singing](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "singing solo winning first place"), writing, [reading](http://soultravelers3new.local/2013/03/10-tips-to-raise-a-reader-book-lover.html "reading and how to raise a reader"), advanced maths, [violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "violin playing kid around the world"), [piano](http://soultravelers3new.local/2007/12/pool-play-piano.html "piano and travel"), art, environmental issues etc. We were open to her quitting and even suggested it a few times as the "finish" point is really up to her,  but she wanted to continue.  
   
-[![Girl dressed in Bedoin clothes in Wadi Rum doing Chinese homework](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aace59d4970d.jpg "Girl dressed in Bedoin clothes in Wadi Rum doing Chinese homework")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aace59d4970d.jpg)  
+![Girl dressed in Bedoin clothes in Wadi Rum doing Chinese homework](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aace59d4970d.jpg)  
   
 We are back to [homeschooling](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "homeschooling and travel") now, but she works with an excellent Chinese tutor one-on-one in person four times a week ( plus lots of homework)  and talks to friends in China almost every night for a few hours on Skype. She is almost midway through the fourth grade Primary school curriculum ( having completed the first 3 years) and we will complete through the 6th grade level before leaving ( by early next spring). At this point she can actually go faster outside of the school as she doesn't have to wait for the other students, but can go at her own pace.  
   
 She will likely also take the [Mandarin AP course](http://cty.jhu.edu/ctyonline/courses/advanced_placement/ "mandarin AP course") or exam( for high school and college credit) and [HSK test](http://en.wikipedia.org/wiki/Hanyu_Shuiping_Kaoshi "hsk test mandarin") before we leave ( which I am told she should be able to pass at the highest level 6). Pretty amazing for a 12 year old American kid and allows her eligibilty for University classes in China if she should want that. [Harvard](javascript:mctmp\(0\);), [Yale](javascript:mctmp\(0\);), [Johns Hopkins](javascript:mctmp\(0\);) etc  [already are in China](javascript:mctmp\(0\);) and many say China's Universities are headed for the [global clout of Oxford or Harvard.](javascript:mctmp\(0\);)  
   
-[![Kid in California doing Chinese homework](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aaceae07970d.jpg "Kid in California doing Chinese homework")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aaceae07970d.jpg)  
+![Kid in California doing Chinese homework](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aaceae07970d.jpg)  
   
   
 We have all sacrificed some freedom and travel to help her get this Mandarin. Because of her age ( language learning is easier before puberty) we wanted to get as much deep Mandarin in her as possible, so added it strongly again when she was 9 while in Spain before basing in Penang with [travel to China](http://soultravelers3new.local/2012/12/china-travel-peking-opera.html "travel to china").  
   
 But as you can see by all these photos from [around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world"), whenever we traveled she kept up with her Mandarin practice and homework and skype lessons. She almost never had to be reminded and would do it on her own ( she was also motivated because she wanted to stay with her classmates and not get behind).  
   
-  [![Girl at the Dead Sea doing Chinese writing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d105461970b.jpg "Girl at the Dead Sea doing Chinese writing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d105461970b.jpg)  
+  ![Girl at the Dead Sea doing Chinese writing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901d105461970b.jpg)  
   
 For us, the risk and hard work has paid off and we can almost see the finish line for this commitment and goal and she is excited to start on French next [spring in Franc](http://soultravelers3new.local/2012/06/france-with-kids-exploring-provence.html "travel france provence")e ( after time in Spain with [beloved friends](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "beloved friends and travel")) which should be MUCH easier than Chinese ( because she is fluent in Spanish).  
   
@@ -109,7 +109,7 @@ So if it is correct, that makes Mozart's Mandarin education better than your ave
   
 Interestingly, she has just got her first job at 12...teaching a Danish child Spanish in Asia! I think she will be using these skills for many years to come, what do you think?  
   
-[![American girl wins two trophies for winning Chinese and English eloction contests](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacf679e970d.jpg "American girl wins two trophies for winning Chinese and English eloction contests")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacf679e970d.jpg)  
+![American girl wins two trophies for winning Chinese and English eloction contests](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192aacf679e970d.jpg)  
 We don't get many comments on this blog. I am not sure why.  BUT we sometimes do get lots of comments on Facebook. The trouble with that is they soon disappear and out of site, out of mind.  
   
 I want Mozart to always have these wonderful comments, so I am adding them to this post as a way of keeping it for her as a permanent record. Some may see this as a braggy post, but I see this as an acknowledgement post to a kid who has worked very hard to earn this Mandarin fluency and I probably don't tell her enough in person, just how proud I am of her and honored to be her mom.  

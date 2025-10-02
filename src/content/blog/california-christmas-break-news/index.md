@@ -12,18 +12,18 @@ tags:
   - "home-for-christmas"
 ---
 
-[![IMG_1091](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4ac2349970c.jpg "IMG_1091")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4ac2349970c.jpg)California Christmas Break News!
+![IMG_1091](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4ac2349970c.jpg)California Christmas Break News!
 
 It is hard to surpass  
 the joy of Christmas  
 morning with a kid in
 
-<!--more--> [![opening presents Christmas morning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675fab2a02970b.jpg "opening presents Christmas morning")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675fab2a02970b.jpg)  
+<!--more--> ![opening presents Christmas morning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675fab2a02970b.jpg)  
   
   
 It is hard to surpass the joy of Christmas morning with a kid in the household and these photos of bliss say it all. We feel our [Christmas Break in California](http://soultravelers3new.local/2011/11/home-for-the-holidays.html "Christmas break in California") has been a very rewarding travel experience on many levels. Having been gone for 6 years, [traveling the world as a family](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "traveling the world as a family"), it's been almost like re-exploring a new place. Quality time with family has been priceless.  
   
-[![California Christmas break](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4adbf36970c.jpg "California Christmas break")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4adbf36970c.jpg)  
+![California Christmas break](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4adbf36970c.jpg)  
   
   
 We have had challenges this year, but perhaps that is why we [cherish these blessings](http://soultravelers3new.local/2011/12/holiday-blessings.html "cherish these blessings") even more.  
@@ -32,7 +32,7 @@ I loved this Dr. Dean Ornish quote I recently came upon:
   
 "we sometimes view the time we spend relaxing, meditating, and hanging out with our friends and family as luxuries that we do only after the important stuff in our lives is done...studies make it clear that this _IS_ the important stuff."  
   
-[![Lots of home made gifts of love](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675facd24d970b.jpg "Lots of home made gifts of love")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675facd24d970b.jpg)  
+![Lots of home made gifts of love](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675facd24d970b.jpg)  
   
 My prolonged [travel health crisis](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets") has certainly made this view absolutely clear. I can see in perfect 20/20 hindsight that keeping up with this blog and social media ( even when I had a [paralyzed arm](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html "paralyzed arm") for over a year) added more stress to my life than I probably should have.  
   
@@ -44,7 +44,7 @@ Type A person that I am, I have had to learn the hard way that at almost 60, I n
   
 ](http://soultravelers3new.local/2008/12/i-have-not-forg.html "struggled with how to blog while traveling")I can tell you that 2012 for me...a dragon in a dragon year in Asia...( kidlet is a dragon too in Chinese astrology terms and funnily the description fits us) ...will be dedicated to me getting healthier than I have ever been and losing my excess weight. Asia is a perfect place for that and works well with our goal for kidlet to increase her Mandarin fluency. This illness has been a great wake up call to what my priorities are. I love helping others by sharing our experiences, but the blog has been stealing too much of my precious time, so I will do things differently with the focus on my health first. My body simply refuses to sit for hours any more, getting a simple post like this up. I must find a new way.  
   
-[![Summer clothes for tropical Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4add927970c.jpg "Summer clothes for tropical Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4add927970c.jpg)  
+![Summer clothes for tropical Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e4add927970c.jpg)  
   
   
   
@@ -65,7 +65,7 @@ The good news is my body seems to respond very well to holistic health approache
   
 Our plan is still to get to Asia as soon as possible, but it does look doubtful at this point that we will make our Monday flight. This brings up a whole can of worms because her school starts then and now we have to rearrange all our plans and renew our special health insurance that we get for the USA. BUT, you got to do what you have to do and this seems like our logical next step.  
   
-[![California beach sunrise at Christmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675fadf48d970b.jpg "California beach sunrise at Christmas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675fadf48d970b.jpg)  
+![California beach sunrise at Christmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675fadf48d970b.jpg)  
   
   
   

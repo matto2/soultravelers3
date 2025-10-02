@@ -18,7 +18,7 @@ tags:
   - "taking-kids-to-paris"
 ---
 
-[![IMG_2613](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e322ca33970b.jpg "IMG_2613")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e322ca33970b.jpg)Family Travel Paris, France:  Louvre Sunset Photo  
+![IMG_2613](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e322ca33970b.jpg)Family Travel Paris, France:  Louvre Sunset Photo  
   
 Love experiencing the gorgeous  
 Louvre Museumin Paris at sunset  
@@ -26,7 +26,7 @@ as the golden light shines upon
 
 <!--more-->
 
-[![louvre at sunset photo family travel paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e322cae3970b.jpg "louvre at sunset photo family travel paris")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e322cae3970b.jpg)  
+![louvre at sunset photo family travel paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e322cae3970b.jpg)  
   
 
 Love experiencing the gorgeous [Louvre Museum](http://en.wikipedia.org/wiki/Palais_du_Louvre "Louvre") in Paris at sunset as the golden light shines upon it and the pyramid designed by American architech  I. M. Pei adds a unique perspective.

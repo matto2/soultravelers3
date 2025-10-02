@@ -17,14 +17,14 @@ tags:
   - "serendipity-in-travel"
 ---
 
-[![IMG_5283](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b6fd7970d.jpg "IMG_5283")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b6fd7970d.jpg)Adorable Photo  
+![IMG_5283](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b6fd7970d.jpg)Adorable Photo  
 \- Kids and Bike  
   
 Isn't this an adorable photo  
 of two kids on a bike? One  
 of the fabulous things about
 
-<!--more--> [![adorable art - two kids on bike](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7012970d.jpg "adorable art - two kids on bike")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7012970d.jpg)
+<!--more--> ![adorable art - two kids on bike](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7012970d.jpg)
 
 [Isn't this an adorable photo of two kids on a bike? One of the fabulous things about](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b7012970d-150x150-1.jpg) [world travel](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "RTW world travel") is the serendipity that happens just wandering around a new place. This one was discovered [walking Asia](http://soultravelers3new.local/2012/08/walking-in-asia.html "walking Asia ") and [exploring Georgetown](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Exploring Georgetown, Malaysia") as we do our many errands and as we get to know typical [life in Asia](http://soultravelers3new.local/2012/05/living-in-asia.html "life in Asia").  
   

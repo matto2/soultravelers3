@@ -17,14 +17,14 @@ tags:
   - "visiting-tiananmen-square"
 ---
 
-[![IMG_8855](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4d015f970c.jpg "IMG_8855")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4d015f970c.jpg)Family Travel Beijing - 
+![IMG_8855](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e4d015f970c.jpg)Family Travel Beijing - 
 Tiananmen Square  
   
 Can one go to China  
 and not see Tiananmen  
 Square in Beijing?  We
 
-<!--more--> [![Tiananmen Square](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341e2909970b.jpg "Tiananmen Square")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341e2909970b.jpg)  
+<!--more--> ![Tiananmen Square](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341e2909970b.jpg)  
   
   
 Can one [go to China](http://soultravelers3new.local/2012/11/beautiful-china.html "go to china ..travel ") and not see [Tiananmen Square](http://en.wikipedia.org/wiki/Tiananmen_Square "tiananmen square") in [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "Beijing best of ")?  We didn't think so, although the first time we tried, it was closed to the public because we arrived when the once-every- ten- years government change was going on and much was under more rigid restrictions.  

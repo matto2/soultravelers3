@@ -20,13 +20,13 @@ tags:
   - "visiting-great-wall"
 ---
 
-[![IMG_3834_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3488407f970b.jpg "IMG_3834_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3488407f970b.jpg)The Great Wall of China
+![IMG_3834_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3488407f970b.jpg)The Great Wall of China
 
 No trip to China would be  
 complete without exploring  
 it's iconic Great Wall, one of the 7
 
-<!--more--> [![The Great Wall, China travel photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34884104970b.jpg "The Great Wall, China travel photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34884104970b.jpg)  
+<!--more--> ![The Great Wall, China travel photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34884104970b.jpg)  
   
 No [trip to China](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "trip to China") would be complete without exploring it's i[conic Great Wall](http://en.wikipedia.org/wiki/Great_Wall_of_China "great wall of china"), one of the 7 Wonders of the World and a [UNESCO World Heritage Site](http://whc.unesco.org/en/list/438 "world heritage"). Perhaps this is even more true with [family travel](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family travel") and [Mandarin immersion in Beijing](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "mandarin immersion in Beijing") with a child.  
   

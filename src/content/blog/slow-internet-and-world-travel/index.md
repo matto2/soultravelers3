@@ -14,13 +14,13 @@ tags:
   - "world-travel-and-internet"
 ---
 
-[![Img_5697](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744a29818970d.jpg "Img_5697")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744a29818970d.jpg)Slow Internet and World Travel  
+![Img_5697](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744a29818970d.jpg)Slow Internet and World Travel  
   
 Thanks to tech, today almost  
 any one can work or school  
 any where and we love the
 
-<!--more--> [![luxury laptop living abroad, but internet can be a challenge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744a2c135970d.jpg "luxury laptop living abroad, but internet can be a challenge")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744a2c135970d.jpg)  
+<!--more--> ![luxury laptop living abroad, but internet can be a challenge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744a2c135970d.jpg)  
   
   
 Thanks to tech, today almost any one can work or school any where [around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world travel") and we love the freedom that has afforded us as a [3 laptop family](http://soultravelers3new.local/2008/04/3-laptop-fami-2.html "3 laptop family") and truly enjoy our [exotic travel offices](http://soultravelers3new.local/2008/10/the-traveling-o.html "exotic travel offices around the world").  Sometimes it's great, like this cute cafe in France near a vineyard, but often slow or bad internet is the most challenging part of [world travel.](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "world travel")  

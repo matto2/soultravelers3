@@ -20,13 +20,13 @@ tags:
   - "world-travel-as-a-family"
 ---
 
-[![IMG_2861](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a513f0970d.jpg "IMG_2861")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a513f0970d.jpg)Grocery Shopping in China  
+![IMG_2861](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a513f0970d.jpg)Grocery Shopping in China  
   
 One of the best things about   
 family travel, is just doing  
 ordinary things in extraordinary places.
 
-<!--more--> [![Grocery Shopping in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35018ce0970b.jpg "Grocery Shopping in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35018ce0970b.jpg)  
+<!--more--> ![Grocery Shopping in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35018ce0970b.jpg)  
   
 One of the best things about [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel around the world"), is just doing ordinary things in extraordinary places. Who would guess that just grocery shopping [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world") is part of a [good travel education](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "education and family travel")?  
   

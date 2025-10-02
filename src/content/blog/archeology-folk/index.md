@@ -15,7 +15,7 @@ gives us time and silence to explore more of what we want to look at.
 
 <!--more-->
 
-[![Img_9384](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9384.png "Img_9384")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9384.png)
+![Img_9384](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9384.png)
 
 Drawing and taking pictures of things that she finds interesting in a museum has been a way that helps Mozart to learn as she goes and gives us time and silence to explore more of what we want to look at.  
 We are all having so much fun with this approach that we are thinking about making an extended project/report out of the material we are gathering and perhaps submitting to a children’s magazine later or for a presentation to her school.
@@ -32,26 +32,26 @@ The very best part of the museum was perusing the clay tablets inscribed with Li
 
 The folk museum was entertaining too and allowed Mozart more hands on interaction which she loved. She could pretend like she was baking bread, working in a field or kitchen or hugging a Greek grannie and there was an older woman working on some very colorful embroidery. They were close by to each other, so we felt we had a very fruitful day of wandering.
 
-[![Img_9312](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9312.png "Img_9312")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9312.png)
+![Img_9312](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9312.png)
 
-[![Img_9279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9279.png "Img_9279")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9279.png)
+![Img_9279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9279.png)
 
-[![Img_9319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9319.png "Img_9319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9319.png)
+![Img_9319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9319.png)
 
-[![Img_9306](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9306.png "Img_9306")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9306.png)
+![Img_9306](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9306.png)
 
-[![Img_9280](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9280.png "Img_9280")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9280.png)
+![Img_9280](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9280.png)
 
-[![Img_9361](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9361.png "Img_9361")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9361.png)
+![Img_9361](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9361.png)
 
-[![Img_9364](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9364.png "Img_9364")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9364.png)
+![Img_9364](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9364.png)
 
-[![Img_9339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9339.png "Img_9339")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9339.png)
+![Img_9339](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9339.png)
 
-[![Img_9393](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9393.png "Img_9393")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9393.png)
+![Img_9393](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9393.png)
 
-[![Img_9329](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9329.png "Img_9329")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9329.png)
+![Img_9329](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9329.png)
 
-[![Img_9369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9369.png "Img_9369")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9369.png)
+![Img_9369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9369.png)
 
-[![Img_9433](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/04/img_9433.png "Img_9433")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9433.png)
+![Img_9433](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/04/img_9433.png)

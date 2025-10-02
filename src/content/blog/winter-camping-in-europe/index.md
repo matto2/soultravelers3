@@ -16,13 +16,13 @@ tags:
   - "winter-camping-europe"
 ---
 
-[![11981187](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee88ba9d3970d.jpg "11981187")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee88ba9d3970d.jpg)Winter Camping in Europe  
+![11981187](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee88ba9d3970d.jpg)Winter Camping in Europe  
   
 Can you camp in Europe in the winter  
 time? Absolutely! Just as there are  
 "snowbirds" who head south to winter
 
-<!--more--> [![camping Europe - low budget and fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4117e192970c.jpg "camping Europe - low budget and fun!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4117e192970c.jpg)  
+<!--more--> ![camping Europe - low budget and fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4117e192970c.jpg)  
   
 Can you [camp in Europe in the winter](http://soultravelers3new.local/2013/01/camping-spain.html "camp in europe in winter") time? Absolutely! Just as there are "snowbirds" who head south to winter in the USA, one finds the same thing in [Europe.](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best Europe vacations") LOTS of bargains about as well for long term campers who settle in when there are no crowds.  
   

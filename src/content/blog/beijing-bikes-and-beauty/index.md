@@ -21,13 +21,13 @@ tags:
   - "travel-to-china"
 ---
 
-[![IMG_6884](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5400c79970d.jpg "IMG_6884")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5400c79970d.jpg)Beijing, Bikes and Beauty  
+![IMG_6884](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee5400c79970d.jpg)Beijing, Bikes and Beauty  
   
 Bikes, temples and beauty  
 remain a big part of  
 Beijing today, despite the
 
-<!--more--> [![Bicycle in Beijing near an ancient temple](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3dcb0be3970c.jpg "Bicycle in Beijing near an ancient temple")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3dcb0be3970c.jpg)  
+<!--more--> ![Bicycle in Beijing near an ancient temple](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3dcb0be3970c.jpg)  
   
 Bikes, temples and beauty remain a big part of [Beijing today](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "best of Beijing travel"), despite the traffic, new buildings and fast pace of this city. Electric bikes are also VERY popular and the mass transit is excellent, super modern and fairly easy even for a foriegner ( although [having Mandarin](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "mandarin immersion in China") helps a LOT).  
   

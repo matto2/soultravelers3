@@ -16,13 +16,13 @@ tags:
   - "travel-to-china"
 ---
 
-[![IMG_2897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6679925970d.jpg "IMG_2897")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6679925970d.jpg)Making Friends in China  
+![IMG_2897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6679925970d.jpg)Making Friends in China  
   
 What was the very best part  
 of our trip to China? The amazing  
 friends we made along the way!
 
-<!--more--> [![China travel and meeting local friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ef30b62970c.jpg "China travel and meeting local friends")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ef30b62970c.jpg)  
+<!--more--> ![China travel and meeting local friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ef30b62970c.jpg)  
   
 What was the very best part of our [trip to China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "trip to china")? The amazing [friends](http://soultravelers3new.local/2012/12/big-sister-in-china.html "China trip for language") we made along the way! We decided not to do a typical [tour around China](http://soultravelers3new.local/2012/11/getting-a-tourism-visa-for-china-adventure.html "China adventure") like most do (because the language makes it a challenging country for most Western folks). Plus, we tend to favor the freedom of independent travel and living more like a local.  
   

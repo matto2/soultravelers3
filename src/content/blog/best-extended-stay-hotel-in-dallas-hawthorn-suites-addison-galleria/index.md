@@ -18,7 +18,7 @@ tags:
   - "best-temporary-housing-dallas"
 ---
 
-[![IMG_4149](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51174f2f6970c.jpg "IMG_4149")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51174f2f6970c.jpg)Best Extended Stay Hotel in Dallas?  
+![IMG_4149](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51174f2f6970c.jpg)Best Extended Stay Hotel in Dallas?  
 Hawthorn Suites Addison Galleria  
   
 Are you looking for the best extended  
@@ -26,7 +26,7 @@ stay hotel in Dallas? If you're
 looking to stay for a few months or
 
 <!--more-->  
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77adc970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77adc970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77adc970b.png)  
   
 Are you looking for the best [extended stay](http://soultravelers3new.local/2008/06/how-to-do-exten.html "extended stay travel") hotel for Dallas? If you are looking to stay for a few months or a few days; whether you are a family on vacation, a business traveler, relocating, or looking for a couples romantic getaway, you can't beat [Hawthorn Suites by Wyndham at Addison Galleria](http://www.hawthorn.com/hotels/texas/addison/hawthorn-suites-by-wyndham-addison-galleria/hotel-overview "Hawthorn Suites Addison Galleria, Dallas, Texas") with all the comforts of home!  
   
@@ -34,7 +34,7 @@ Are you looking for the best [extended stay](http://soultravelers3new.local/2008
   
 We looked at TONS of long-stay hotels, short-term rental apartments, temporary housing and vacation homes in Dallas and there is a reason why this [Hawthorn Suites](http://www.hawthorn.com/ " Hawthorn Suites") gets glowing reviews and were the recipient of 2013 TripAdvisor Cerificate of Excellence Award. Friendly, excellent service from the general manager to the maids and superb amenities that dazzle.  
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77af2970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77af2970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77af2970b.png)  
   
 
 You will love their clean, spacious, contemporary apartment-style suites with fully equipped kitchen and full sized fridge, comfy living rooms, stylish bathrooms and the most luxuriously, comfortable beds we have ever slept in! It is more like an apartment complex with the services of a hotel - best of both worlds.  
@@ -43,7 +43,7 @@ This quote from a happy customer from TripAdvisor says it all:
   
 "They always take care of my needs, and they always treat me like family! I have stayed at this hotel many times, and the first time was as good as the last! I highly recommend this hotel! I won't stay anywhere else when I come to this city!"  
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria breakfast](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829cf6970d.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria breakfast")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829cf6970d.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria breakfast](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829cf6970d.png)  
   
 **FOOD AND DRINKS**  
   
@@ -53,21 +53,21 @@ We are totally spoiled here, almost everything you might need is provided.
   
 There is an amazing complementary, well-balanced hot buffet breakfast (  sausage, bacon, eggs, potatoes, gravy, bagel, whole wheat toast, pastries, coffee, juice, tea, chocolate milk, hot cocoa, yogurt, oatmeal, cold cereals.fresh fruit etc. and even easy make-yourself wafffles in the shape of Texas that delights kids and adults alike) served in a relaxing room with a view of the pool.  
   
-[![Hawthorn Suites Addison Galleria waffle breakfast shaped like Texas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b54970b.png "Hawthorn Suites Addison Galleria waffle breakfast shaped like Texas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b54970b.png)  
+![Hawthorn Suites Addison Galleria waffle breakfast shaped like Texas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b54970b.png)  
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d2d970d.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d2d970d.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d2d970d.png)  
   
 **KITCHEN AND BBQ**  
   
 With a fully equipped kitchen in each spacious suite and an outdoor grill by the pool one also  has the option to make your own special meals, anytime, which works really well for us and our strict dietary needs. ( We can walk to Whole Foods).  
   
-[![best extended stay hotel Dallas Hawthorn Suites  Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d42970d.png "best extended stay hotel Dallas Hawthorn Suites  Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d42970d.png)  
+![best extended stay hotel Dallas Hawthorn Suites  Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d42970d.png)  
   
 **COMPLEMENTARY DINNER SNACKS, WINE, BEER**  
   
 Don't feel like cooking? They have a free evening Reception Monday through Thursday which includes wine, beer and dinner snacks like hot dogs, salads, soups and tacos to munch and mingle with other residents. ( Not to mention the endless restaurants in the area including one across the street.)  
   
-[![ Dallas Hawthorn Suites Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b7b970b.png " Dallas Hawthorn Suites Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b7b970b.png)  
+![ Dallas Hawthorn Suites Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b7b970b.png)  
   
   
  The kitchen is very well equipped which is great for a cook like me to take advantage of the full size refrigerator, microwave, dishwasher, lots of utensils/silverware/crockery, dish soap, linens, toaster, garbarge disposal etc., plus no worries with housekeeping or taking out the garbage.  
@@ -75,27 +75,27 @@ Don't feel like cooking? They have a free evening Reception Monday through Thurs
  **"HOME" NOT A "HOTEL"**  
   
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b95970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b95970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b95970b.png)  
   
   
 It is a "home" not a "hotel" as we like to choose places that we WANT to live. [Life on the road](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "life on the road of a traveling family") needs to be about pleasure, coziness, luxury, healing, and ease, with all the comforts of home...more about LIFE than the road, to give us a place to replenish, stick to routines, "cocoon" in, as we explore the new.  
   
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba0970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba0970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba0970b.png)  
   
 **WE ARE EXPERTS ON EXTENDED STAY TRAVEL**  
   
 As an [8-plus-year](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "kid traveling world 8 years")\-non-stop [world traveling family](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "round the world traveling family"), we are probably the  "poster child" for extended stay or affordable long-stay acommodations and have done it extensively around the world from [Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "how to winter in southeast Asia cheaply") to [Spain](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "winter in spain"), but we found it quite challenging to find what we needed in Dallas.  
   
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba7970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba7970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba7970b.png)  
   
 **HUNTING DOWN A DALLAS LONG STAY ACCOMMODATION**  
   
 We haven't seen the other [Hawthorn Suites](http://www.hawthorn.com/hotels/destinations "Hawthorn Suites locations") in Dall as, but we did see all the other extended stay competitors in this area, and this one wins hands down. One well known brand that was recommended was absolutely scary inside, so we were discouraged at first about trying to find our "Dallas Home".  
   
   
-[![happy in our new home, but squinting in the sun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d73970d.png "happy in our new home, but squinting in the sun")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d73970d.png)  
+![happy in our new home, but squinting in the sun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829d73970d.png)  
   
 **BEST SERVICE**  
   
@@ -104,7 +104,7 @@ After [arriving in Dallas at the Four Seasons](http://soultravelers3new.local/20
   
   
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria BBQ Pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77be2970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria BBQ Pool")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77be2970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria BBQ Pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77be2970b.png)  
   
 **A SPECIAL PLACE**  
   
@@ -112,26 +112,26 @@ After [arriving in Dallas at the Four Seasons](http://soultravelers3new.local/20
   
 We are experienced business people, boomers and traveling family with discriminating taste and this is precisely the kind of place that appeals to and satisfies us.  
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77beb970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria sunset")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77beb970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77beb970b.png)  
   
 **BEAUTIFUL SUNSET FROM OUR ROOM**  
   
 This is the sunset out our window and it gives me much pleasure to be bathed in these colors as I prepare dinner for my family. I seem to have an unconscious knack for finding places around the world with divine [sunrises](http://soultravelers3new.local/2012/07/sunrise-sunset.html "sunrise photo and quote") and [sunsets](http://soultravelers3new.local/2012/10/sweet-sunset.html "sunsets and inspiration")  
   
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77bf4970b.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77bf4970b.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77bf4970b.png)  
   
 **DELIGHTFUL SURROUNDINGS**  
   
 The indoor and outdoor public spaces like the dining room and lobby are relaxing with coffee, tea,  snacks and wifi always available, free daily newspapter and a 24/7 Business Center with complimentary computer, internet access and printing.  
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51177646c970c.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51177646c970c.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51177646c970c.png)  
   
   
 They even have an in house Sunday church service for those interested.  
   
   
-[![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829db3970d.png "best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829db3970d.png)  
+![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d829db3970d.png)  
   
 **ADDISON AND DALLAS DESTINATIONS**  
   

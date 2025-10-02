@@ -7,7 +7,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1890](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1890.png "Img_1890")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1890.png) Long Day into Africa  
+ ![Img_1890](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1890.png) Long Day into Africa  
 March 28, 2007
 
 We woke up at four in the morning and took  
@@ -16,7 +16,7 @@ took a regular bus,ferry, taxi, six hour train
 
 <!--more-->
 
-[![Img_1890_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1890_2.png "Img_1890_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1890_2.png)
+![Img_1890_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1890_2.png)
 
 We woke up at four in the morning and took a taxi, express bus, walked, taxied again, took a regular bus,ferry, taxi, six hour train ride, taxi and then were led into the ancient medina of Fez which is a maze straight out of the middle ages. Mozart was so excited to be traveling all day, she thought that was a great adventure in itself. A kid’s enthusiasm is a great reminder that getting up in the dark is a fun thing.
 
@@ -49,18 +49,18 @@ Mozart really enjoyed the train ride although she slept most of the first three 
 
 I was very grateful that the people who said that one must have a guide to do this were dead wrong. It is an expensive country if you do not want to risk getting sick or picking up bed bugs or such and we just did not want to spend the extra money on a guide to hold our hands. I thought we could do it on our own as many do, but of course one worries some when facing the unknown. It was a great relief off my shoulders as it was one of my big concerns about this trip. We were going to make it to Fez long before nightfall and everything had gone exceedingly smooth.
 
-[![Img_1874](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1874.png "Img_1874")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1874.png)
+![Img_1874](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1874.png)
 
-[![Img_1879](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1879.png "Img_1879")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1879.png)
+![Img_1879](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1879.png)
 
-[![Img_1883](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1883.png "Img_1883")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1883.png)
+![Img_1883](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1883.png)
 
-[![Img_1885](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1885.png "Img_1885")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1885.png)
+![Img_1885](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1885.png)
 
-[![Img_1888](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1888.png "Img_1888")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1888.png)
+![Img_1888](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1888.png)
 
-[![Img_1897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1897.png "Img_1897")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1897.png)
+![Img_1897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1897.png)
 
-[![Img_1899](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1899.png "Img_1899")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1899.png)
+![Img_1899](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1899.png)
 
-[![Img_1977](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/07/img_1977.png "Img_1977")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1977.png)
+![Img_1977](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/07/img_1977.png)

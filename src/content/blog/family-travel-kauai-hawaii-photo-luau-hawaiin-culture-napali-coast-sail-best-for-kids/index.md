@@ -15,14 +15,14 @@ tags:
   - "vacation-hawaii-with-kids"
 ---
 
- [![IMG_8943](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f52a264d970b.jpg "IMG_8943")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f52a264d970b.jpg) Family Travel Kauai, Hawaii Photo  
+ ![IMG_8943](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f52a264d970b.jpg) Family Travel Kauai, Hawaii Photo  
 October 18, 2010
 
 Family travel is about learning  
 to appreciate different cultures,  
 even when it is in your own country!
 
-<!--more--> [![family travel Kauai Hawaii ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f5278b3b970b.jpg "family travel Kauai Hawaii ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f5278b3b970b.jpg)
+<!--more--> ![family travel Kauai Hawaii ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f5278b3b970b.jpg)
 
 [Family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) is about learning to appreciate different cultures, even when it is in your own country! Thanks to the amazing people at Hawaiian Tourist Board ( HVCB) and Kauai Visitors Bureau , we are in gorgeous [Kauai, Hawaii](http://www.kauaidiscovery.com/) right now, having an absolutely blissful experience. I will be telling you much more about it, but we are [traveling fast now](http://soultravelers3new.local/2010/10/want-to-meet-us-in-london-sf-or-singapore-soultravelers3-travel-meetups-.html#more), so I will just have to do short photo posts until we slow down.
 

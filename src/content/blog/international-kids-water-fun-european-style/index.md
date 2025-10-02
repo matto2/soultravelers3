@@ -16,13 +16,13 @@ tags:
   - "water-play"
 ---
 
-[![IMG_4691](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1f2689970d.jpg "IMG_4691")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1f2689970d.jpg) International Kids: Water Fun European style
+![IMG_4691](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b1f2689970d.jpg) International Kids: Water Fun European style
 
 Pools, water slides, water  
 guns and water balloons,  
 just all part of the fun
 
-<!--more--> [![kids summer water fun camping in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912b77bb970b.jpg "kids summer water fun camping in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912b77bb970b.jpg)  
+<!--more--> ![kids summer water fun camping in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912b77bb970b.jpg)  
   
   
 [Pools](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "pools"), [water slides](http://soultravelers3new.local/2007/05/tuscany-camping.html "water slides"), water balloons, [surfing](http://soultravelers3new.local/2011/01/family-travel-hawaii-learning-to-surf-in-kauai.html "surfing kid"), water guns, [fountains](http://soultravelers3new.local/2009/09/family-travel-photo-austria-melk-joy-in-water.html "fountain joy") and [beaches galore](http://soultravelers3new.local/2011/07/costa-brava-and-barcelona.html "barcelona beaches").... just all part of the fun while [camping in Europe](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "Camping Europe")! What could be more fun on a hot summer day? It was an international group of boys and girls, the week our [friends from Sweden](http://soultravelers3new.local/2010/03/funniest-kids-soultravelers3-family-travel-best-funny-youtube-global-kids-hilarious-sweden-trumpet-v.html "friends from sweden") visited us in [Barcelona](http://soultravelers3new.local/2007/05/barcelona-beach.html "barcelona").  

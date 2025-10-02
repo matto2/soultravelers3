@@ -10,7 +10,7 @@ categories:
 [  
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ccfe21970c-768x576-1.jpg)
 
- [![IMG_1604](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ccfe21970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ccfe21970c.jpg) Family Travel Photo-Germany  
+ ![IMG_1604](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ccfe21970c.jpg) Family Travel Photo-Germany  
 January 13, 2009
 
 We are starting a new category today,  
@@ -19,7 +19,7 @@ come along for a little armchair travel!
 
 <!--more-->
 
- [![IMG_1604](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ccf520970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ccf520970c.jpg) 
+ ![IMG_1604](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536ccf520970c.jpg) 
 
 We are starting a new category today, so settle back in a comfy spot and come along for a little armchair travel! We will be having these new Family Travel  Photo moments on  a regular basis every few days and sometimes daily, in between longer posts. They will be from random places on our travels as we tour the world.
 

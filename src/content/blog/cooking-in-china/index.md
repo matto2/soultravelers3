@@ -22,13 +22,13 @@ tags:
   - "xian"
 ---
 
-[![IMG_3642](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9cc40a5970d.jpg "IMG_3642")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9cc40a5970d.jpg)Cooking in China  
+![IMG_3642](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9cc40a5970d.jpg)Cooking in China  
   
 Cooking in China and the  
 food in China is quite fascinating.  
 Cooking in all of Asia, is very
 
-<!--more--> [![cooking in China on Silk Road](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3829148b970b.jpg "cooking in China on Silk Road")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3829148b970b.jpg)  
+<!--more--> ![cooking in China on Silk Road](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3829148b970b.jpg)  
   
 Cooking in [China](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html "China family vacation"), [restaurants](http://soultravelers3new.local/2013/01/chinese-restaurants-in-china-.html "Chinese restaurants in China") and the [food in China](http://soultravelers3new.local/2012/11/food-in-china.html "food in China") is quite fascinating. Cooking in all of [Asia](http://soultravelers3new.local/2012/08/awesome-asian-coconut-rickshaw-photo.html "Asia photo"), seems very different than the west. We [traveled to China in the fall](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel in fall") and returned to [tropical Asia](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html "escaping winter in tropical Asia") just before [Christmas](http://soultravelers3new.local/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "Christmas abroad"), so it was very cold by the time we left. This didn't stop people from cooking and eating outside...a very popular activity all over Asia.  
   

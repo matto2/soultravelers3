@@ -13,13 +13,13 @@ tags:
   - "why-travel-to-italy-in-the-fall"
 ---
 
-[![IMG_5000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf849ef970c.jpg "IMG_5000")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf849ef970c.jpg)Italy in Autumn  
+![IMG_5000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf849ef970c.jpg)Italy in Autumn  
   
 The early fall is a  
 wonderful time to visit  
 Italy, as the summer high
 
-<!--more--> [![Visiting Italy in the fall](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf85150970c.jpg "Visiting Italy in the fall")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf85150970c.jpg)
+<!--more--> ![Visiting Italy in the fall](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf85150970c.jpg)
 
  The early fall is a wonderful time to visit Italy, as the summer high season crowds have thinned considerably, along with the high prices and the cooler temperatures make it easier to tour. The food is always delicious, but autumn foods like mushrooms and truffles, add to the delight.  
   

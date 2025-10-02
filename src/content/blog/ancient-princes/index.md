@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1318](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1318.png "Img_1318")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1318.png) Ancient Princess  
+ ![Img_1318](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1318.png) Ancient Princess  
 March 20, 2007
 
 Playing the part of a Moorish Princess at  
@@ -15,7 +15,7 @@ Mozart and she just loved it and cherishes
 
 <!--more-->
 
-[![Img_1318_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1318_2.png "Img_1318_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1318_2.png)
+![Img_1318_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1318_2.png)
 
 Playing the part of a Moorish Princess at the Alhambra made history come alive for Mozart and she just loved it and cherishes these pictures. It is a very touristy thing to do, but then we are tourists. We had watched some craftsmen working on  mosaic wood inlay pieces in Moorish style  and then discovered this shop and decided to go for it.
 
@@ -25,26 +25,26 @@ Funny, how a little thing like this can make a difference. Now when we talk or r
 
 The area around Granada is world famous for making guitars and we would have really enjoyed watching those craftsmen work. Alas, things were all closed when we walked by them, but we liked looking in the windows. DaVinci wanted to make sure I got a picture of where the world famous Spanish classical guitarist Andres Segovia (whom he loves) buys his guitars (which our friend pointed out to us as we passed it and several guitar making places). A very simple looking place called A. Morales guitarreria. Maybe we will find it open on our next visit as we know we will be back to Granada & the Alhambra.
 
-[![Img_0734](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0734.png "Img_0734")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0734.png)
+![Img_0734](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0734.png)
 
-[![Img_0740](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0740.png "Img_0740")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0740.png)
+![Img_0740](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0740.png)
 
-[![Img_0725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0725.png "Img_0725")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0725.png)
+![Img_0725](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0725.png)
 
-[![Img_1311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1311.png "Img_1311")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1311.png)
+![Img_1311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1311.png)
 
-[![Img_0722](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0722.png "Img_0722")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0722.png)
+![Img_0722](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0722.png)
 
-[![Img_0708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0708.png "Img_0708")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0708.png)
+![Img_0708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0708.png)
 
-[![Img_0707](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0707.png "Img_0707")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0707.png)
+![Img_0707](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0707.png)
 
-[![Img_1254](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1254.png "Img_1254")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1254.png)
+![Img_1254](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1254.png)
 
-[![Img_1264](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1264.png "Img_1264")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1264.png)
+![Img_1264](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1264.png)
 
-[![Img_1162](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1162.png "Img_1162")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1162.png)
+![Img_1162](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1162.png)
 
-[![Img_0887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0887.png "Img_0887")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0887.png)
+![Img_0887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0887.png)
 
-[![Img_0704](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_0704.png "Img_0704")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0704.png)
+![Img_0704](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_0704.png)

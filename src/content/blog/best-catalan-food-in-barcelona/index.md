@@ -12,13 +12,13 @@ tags:
   - "good-eating-in-barcelona"
 ---
 
-[![IMG_5046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153915c9666970b.jpg "IMG_5046")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153915c9666970b.jpg) Best Catalan Food in Barcelona  
+![IMG_5046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153915c9666970b.jpg) Best Catalan Food in Barcelona  
   
 Before we left Barcelona,  
 we had an amazing authetic  
 and typical Catalan meal  
 
-<!--more--> [![Enjoying Catalan restaurant in Barcelona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435301f0f970c.jpg "Enjoying Catalan restaurant in Barcelona")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435301f0f970c.jpg)  
+<!--more--> ![Enjoying Catalan restaurant in Barcelona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015435301f0f970c.jpg)  
   
   
 Before we left [Barcelona](http://soultravelers3new.local/2011/07/costa-brava-and-barcelona.html "Barcelona travel"), we had an amazing authetic and typical Catalan meal with our dear [friends who live in Barcelona](http://soultravelers3new.local/2011/06/delicious-dinner-in-barcelona.html "friends who live in Barcelona") at the beach. They all speak both Spanish and Catalan and took us to one of their favorite [Catalan](http://en.wikipedia.org/wiki/Catalonia "Catalan") restaurants in the country side near the cava vineyards as we have been talking about various aspects of [Catalan cuisine](http://en.wikipedia.org/wiki/Catalan_cuisine "Catalan cuisine") for a while.  

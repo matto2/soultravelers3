@@ -7,7 +7,7 @@ categories:
   - "videos"
 ---
 
- [![GetAttachment-1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685db365970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685db365970c.jpg) Our Chocolate Valentine in Koeln!  
+ ![GetAttachment-1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685db365970c.jpg) Our Chocolate Valentine in Koeln!  
 February 12, 2009
 
 Mmmm!  The delicious chocolate fragrance  
@@ -16,7 +16,7 @@ impressive neo-eclectic structure on the
 
 <!--more-->
 
-[![Mozart & soultravelers3 in Kohn/Cologne Germany Chocolate Museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685db457970c.jpg "Mozart & soultravelers3 in Kohn/Cologne Germany Chocolate Museum")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685db457970c.jpg)
+![Mozart & soultravelers3 in Kohn/Cologne Germany Chocolate Museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685db457970c.jpg)
 
 Mmmm! The delicious chocolate fragrance  greeted us as we enter the door of this impressive neo-eclectic structure on the Rhine and the oozing chocolate fountain with scrumptious free samples delighted Mozart to no end!
 

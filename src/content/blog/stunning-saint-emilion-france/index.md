@@ -18,13 +18,13 @@ tags:
   - "vacation-in-france"
 ---
 
-[![IMG_5547](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d44902970b.jpg "IMG_5547")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d44902970b.jpg)Stunning Saint-Émilion, France
+![IMG_5547](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d44902970b.jpg)Stunning Saint-Émilion, France
 
 The beautiful UNESCO World  
 Heritage Site, Saint-Emilion is  
 by far the prettiest French
 
-<!--more--> [![stunning St. Emilion, France ancient rooftops and vineyards](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead6c8d7970c.jpg "stunning St. Emilion, France ancient rooftops and vineyards")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead6c8d7970c.jpg)
+<!--more--> ![stunning St. Emilion, France ancient rooftops and vineyards](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead6c8d7970c.jpg)
 
  The beautiful UNESCO World Heritage Site, [Saint-Emilion](http://en.wikipedia.org/wiki/Saint-%C3%89milion "st Emilion") is by far the prettiest French town in the Bordeaux region of France. It is a perfect base for a bike holiday or [France vineyards cycling vacation](http://soultravelers3new.local/2009/05/biking-st-emilion-bordeaux-vineyards-in-france-wine-country.html "France vineyards cycling vacation") like we did as a family.  
   

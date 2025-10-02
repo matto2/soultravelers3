@@ -13,14 +13,14 @@ tags:
   - "world-friendhships"
 ---
 
-[![IMG_2252](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765e6e4d3970b.jpg "IMG_2252")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765e6e4d3970b.jpg)Best Friends Around The World - 
+![IMG_2252](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765e6e4d3970b.jpg)Best Friends Around The World - 
 Traveling With School-Age Kids
 
 "A journey is best measured  
 in friends, rather than miles"  
 Our 11 year old daughter
 
-<!--more--> [![best friends around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304f3bd3c970d.jpg "best friends around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304f3bd3c970d.jpg)  
+<!--more--> ![best friends around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304f3bd3c970d.jpg)  
   
 "A journey is best measured in friends, rather than miles" Tim Cahill  
   
@@ -32,7 +32,7 @@ I adore how she used her three languages in the description..using the [Mandarin
   
 Our tween is a very social child and her long term friendships as well as her [education](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html "education through travel") are very important to us and we didn't want to just have the "bubble" of International schools, but local friends from around the world from every aspect and class who don't move around.  [Eclectic homeschooling](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "Eclectic homeschooling travel") and [dipping into local schools](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "dipping into foreign local schools") in three countries has been enriching for her languages, cultural immersion and social life..returning regularly has made all the difference.  
   
-[![drawing of friends international friends at Mandarin school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304f40a8e970d.jpg "drawing of friends international friends at Mandarin school in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304f40a8e970d.jpg)  
+![drawing of friends international friends at Mandarin school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304f40a8e970d.jpg)  
   
   
 **LONG TERM FRIENDSHIPS FOR A TRAVELING CHILD**  

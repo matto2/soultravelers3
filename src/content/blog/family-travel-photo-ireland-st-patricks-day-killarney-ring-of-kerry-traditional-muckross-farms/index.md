@@ -16,7 +16,7 @@ tags:
   - "st-patricks-day"
 ---
 
- [![IMG_7963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a9491ca9970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a9491ca9970b.jpg) Family Travel Photo - Ireland  
+ ![IMG_7963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a9491ca9970b.jpg) Family Travel Photo - Ireland  
 March 17, 2010
 
 Family travel sometimes means  
@@ -25,7 +25,7 @@ through travel by walking or biking  the land
 
 <!--more-->
 
-[![IMG_7963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a9491da7970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a9491da7970b.jpg)  
+![IMG_7963](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a9491da7970b.jpg)  
 
 Family travel sometimes means learning about one's cultural heritage through travel by walking or biking  the land and connecting with the people and the traditional ways. Mozart and I are part [Irish](http://soultravelers3new.local/2010/01/family-travel-photo-ireland-dingle-fusia-red-flower-green-landscape.html), so we really [enjoyed exploring](http://soultravelers3new.local/2009/10/family-travel-photo-ireland-blarney-stone-castles-exploring-adventure-motorhome.html) all around [Ireland, summer](http://soultravelers3new.local/2009/08/family-travel-photo-ireland-rock-of-cashel-st-pat.html) before last. ( Still have many photos and stories to share on that tour). We were surprised to find out  it is colder in Ireland in the summer than Spain in the winter, (which is also part of Mozart's heritage as she is a mongrel like most Americans).
 

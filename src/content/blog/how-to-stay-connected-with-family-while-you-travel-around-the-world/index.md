@@ -15,14 +15,14 @@ tags:
   - "using-webcams-to-connect-families"
 ---
 
-[![IMG_4830](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761753f0b8970c.jpg "IMG_4830")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761753f0b8970c.jpg)How to Stay Connected with Family  
+![IMG_4830](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761753f0b8970c.jpg)How to Stay Connected with Family  
 While You Travel Around the World  
   
 How do you stay in touch  
 with family and friends around  
 the world? It's easier than ever
 
-<!--more--> [![Using tech to stay close to family at a distance](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443a869c970d.jpg "Using tech to stay close to family at a distance")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443a869c970d.jpg)  
+<!--more--> ![Using tech to stay close to family at a distance](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443a869c970d.jpg)  
   
 How do you stay in touch with family and friends [around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world family")? It's easier than ever today, thanks to tech and doesn't cost anything. Here you see our 11 year old having a Skype video conversation in Asia  with her Grandma in California. She is using the webcam to give her a tour of her imaginary world from a fancy but free minimalist dollhouse made from a thrown out cardboard box.  
   

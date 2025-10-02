@@ -17,13 +17,13 @@ tags:
   - "traditional-ireland"
 ---
 
-[![IMG_7977](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2e0e87970b.jpg "IMG_7977")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2e0e87970b.jpg) Family Travel Ireland: Exploring Roots  
+![IMG_7977](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2e0e87970b.jpg) Family Travel Ireland: Exploring Roots  
   
 The romance of old Ireland  
 can still be found today and  
 makes the Emerald Isle a
 
-<!--more--> [![exploring roots in Ireland, traditional farm and horses Kilarney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2e10e0970b.jpg "exploring roots in Ireland, traditional farm and horses Kilarney")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2e10e0970b.jpg)
+<!--more--> ![exploring roots in Ireland, traditional farm and horses Kilarney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2e10e0970b.jpg)
 
 The romance of old [Ireland](http://en.wikipedia.org/wiki/Ireland "ireland") can still be found today and makes the Emerald Isle a wonderful choice for family travel. Like so many Americans, we have genetic roots in Ireland. We loved the popular  [Ring of Kerry](http://en.wikipedia.org/wiki/Ring_of_Kerry) in [Killarney](http://en.wikipedia.org/wiki/Killarney) National [Park](http://homepage.eircom.net/%7Eknp/muckross/index.htm) where they have traditional farms and gardens at the 19th century [Muckross House](http://www.muckross-house.ie/) that is like an open air museum with natives reenacting the lifestyle.  
   

@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Img_6895](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/06/img_6895.png "Img_6895")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_6895.png) Carnival 2008 Andalucia  
+ ![Img_6895](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_6895.png) Carnival 2008 Andalucia  
 April 12, 2008
 
 We were surprised by the extent of the  

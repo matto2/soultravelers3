@@ -18,13 +18,13 @@ tags:
   - "travel-to-italy"
 ---
 
-[![IMG_5173](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e70170ae970c.jpg "IMG_5173")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e70170ae970c.jpg)Italian Style
+![IMG_5173](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e70170ae970c.jpg)Italian Style
 
 It is hard not  
 to love the European  
 style and glamour of Italy,
 
-<!--more--> [![Italian style in Portofino makes me smile](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e70174f7970c.jpg "Italian style in Portofino makes me smile")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e70174f7970c.jpg)  
+<!--more--> ![Italian style in Portofino makes me smile](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e70174f7970c.jpg)  
   
 It is hard not to love the [European style](http://soultravelers3new.local/2011/12/rv-in-europe-road-trip-europe-camping-european-style.html "European style") and [glamour of Italy](http://soultravelers3new.local/2010/09/family-travel-italy-verona-opera-carmen-aida-domingo-zeffirelli-family-friendly-educational-travel.html "glamour Italy"), so we have returned many times on our [family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world tour") to this great country where I once lived for a year as a young women. I think that year is when I fell [in love with Europe](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html "in love with europe") and it's many charms.  
   

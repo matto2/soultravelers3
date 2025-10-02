@@ -16,7 +16,7 @@ tags:
   - "travel-with-kids"
 ---
 
- [![IMG_2635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a63007b1970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a63007b1970c.jpg)Family Travel Photo - Finland  
+ ![IMG_2635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a63007b1970c.jpg)Family Travel Photo - Finland  
 October 21, 2009
 
 There is nothing like great books to  
@@ -25,7 +25,7 @@ libraries in Scandinavia that all seem
 
 <!--more-->
 
-[![IMG_2635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d957de970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d957de970b.jpg)
+![IMG_2635](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5d957de970b.jpg)
 
 There is nothing like great books to enhance family travel! We loved the libraries in Scandinavia that all seem to also have a great selection of kid's books in English, which pleased seven year old Mozart to no end! This was a beautiful library  with lots of windows with gorgeous sea views in Finland in a tiny town on the [Aland islands](http://en.wikipedia.org/wiki/%C3%85land_Islands) that we visited [last September.](http://soultravelers3new.local/2009/07/family-travel-photo-finland-aland-islands-pancakes.html)
 

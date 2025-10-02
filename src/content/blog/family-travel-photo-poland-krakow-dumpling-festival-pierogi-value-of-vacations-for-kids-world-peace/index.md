@@ -18,7 +18,7 @@ tags:
   - "value-of-vacations"
 ---
 
-[![23327580-5](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133eca97d65970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133eca97d65970b.jpg) Family Travel Photo - Poland  
+![23327580-5](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133eca97d65970b.jpg) Family Travel Photo - Poland  
 April 13, 2010
 
 One of the great values of family travel  

@@ -18,13 +18,13 @@ tags:
   - "photo-auckland"
 ---
 
-[![IMG_2781](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60244bd5970c.jpg "IMG_2781")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60244bd5970c.jpg) Beautiful New Zealand- Kia Kaha
+![IMG_2781](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60244bd5970c.jpg) Beautiful New Zealand- Kia Kaha
 
 Have you been to beautiful  
 New Zealand? Now is a perfect  
 time to go or plan a trip. We've
 
-<!--more--> [![beautiful New zealand kia kaha](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60244cdc970c.jpg "beautiful New zealand kia kaha")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60244cdc970c.jpg)  
+<!--more--> ![beautiful New zealand kia kaha](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e60244cdc970c.jpg)  
   
 
 Have you been to beautiful New Zealand? Now is a perfect time to go or plan a trip. We've heard from many travelers, including travel icon [Wendy Perrin and her husband when we visited them for Halloween](http://soultravelers3new.local/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "wendy perrin visiting them in october"), that New Zealand is one of the most beautiful places on earth. Thus it's long been on our bucket list and we finally made it this year.  

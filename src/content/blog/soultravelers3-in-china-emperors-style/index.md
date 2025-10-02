@@ -20,14 +20,14 @@ tags:
   - "visiting-forbidden-city"
 ---
 
-[![IMG_9083](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dfd21970b.jpg "IMG_9083")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dfd21970b.jpg)Soultravelers3 in China  
+![IMG_9083](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dfd21970b.jpg)Soultravelers3 in China  
 Emperors Style  
   
 Who can resist an  
 opportunity to dress up  
 in traditional dress in a
 
-<!--more--> [![Soultravelers3 visit China in Emperors Style and Traditional Clothes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dfda5970b.jpg "Soultravelers3 visit China in Emperors Style and Traditional Clothes")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dfda5970b.jpg)  
+<!--more--> ![Soultravelers3 visit China in Emperors Style and Traditional Clothes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dfda5970b.jpg)  
   
 Who can resist an opportunity to dress up in traditional dress in a new country? I can't! What a joy to be able to fly [all over China](http://soultravelers3new.local/2012/11/beautiful-china.html "beauty all over china- travel") while [visiting the Forbidden City](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "visiting the forbidden city") in [Beijing](http://soultravelers3new.local/2012/11/yum-loving-the-food-in-beijing.html "Beijing"). Perfect for [family travel](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html#more "family world travel and homeschool").  
   

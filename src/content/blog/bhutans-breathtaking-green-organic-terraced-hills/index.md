@@ -13,14 +13,14 @@ tags:
   - "travel-to-bhutan"
 ---
 
-[![IMG_8013](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9da32970c.jpg "IMG_8013")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9da32970c.jpg)Bhutan's Breathtaking Green  
+![IMG_8013](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9da32970c.jpg)Bhutan's Breathtaking Green  
 Organic Terraced Hills
 
 To visit this magical  
 kingdom of Bhutan,  
 tucked into the Himalayan
 
-<!--more--> [![breathtaking Bhutan's verdant organic farms and pristine forests](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d484e4970d.jpg "breathtaking Bhutan's verdant organic farms and pristine forests")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d484e4970d.jpg)  
+<!--more--> ![breathtaking Bhutan's verdant organic farms and pristine forests](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d484e4970d.jpg)  
   
   
 To visit this magical kingdom of Bhutan, tucked into the Himalayan mountains between China and India takes ones breath away at every turn and gives us a glimpse of an isolated land, untouched in many ways by the 21st century.  

@@ -20,13 +20,13 @@ tags:
   - "travel-to-scandinavia"
 ---
 
-[![IMG_7577](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630503106d970d.jpg "IMG_7577")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630503106d970d.jpg)Kid-Friendly Scandinavia  
+![IMG_7577](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630503106d970d.jpg)Kid-Friendly Scandinavia  
   
 Scandinavia is a wonderful  
 destination for family  
 travel especially in the
 
-<!--more--> [![Scandinavian Travel in Bergen, Dad and son](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf8979f970c.jpg "Scandinavian Travel in Bergen, Dad and son")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf8979f970c.jpg)
+<!--more--> ![Scandinavian Travel in Bergen, Dad and son](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf8979f970c.jpg)
 
 Scandinavia is a wonderful destination for family travel especially in the summer months when the days are long. This photo was taken in Bergen, Norway during our trip to Scandinavia. These are expensive destinations, but we found ways to do it on the low budget of our [family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world tour").  
   

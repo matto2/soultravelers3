@@ -19,7 +19,7 @@ tags:
   - "vagabonding"
 ---
 
-[![IMG_1025](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f5398a6970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f5398a6970c.jpg)Family Travel Photo - Spain  
+![IMG_1025](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f5398a6970c.jpg)Family Travel Photo - Spain  
 March 2, 2010
 
 Family travel must include relaxation  
@@ -28,7 +28,7 @@ nature that surround us like this
 
 <!--more-->
 
-[![Sunset Spain, tree, family travel & reminders from Tim Ferriss, Rolf Potts, 4hww](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8ecce5f970b.jpg "Sunset Spain, tree, family travel & reminders from Tim Ferriss, Rolf Potts, 4hww")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8ecce5f970b.jpg)
+![Sunset Spain, tree, family travel & reminders from Tim Ferriss, Rolf Potts, 4hww](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8ecce5f970b.jpg)
 
 Family travel must include relaxation and enjoying the awesome gifts of nature that surround us like this beautiful sunset just out our door in [Andalusia, Spain](http://en.wikipedia.org/wiki/Andalusia). We've experienced some of the [most beautiful sunset](http://www.flickr.com/photos/soultravelers3/2524899259/)s [in the world](http://www.typicallyspanish.com/news/publish/article_23325.shtml) here on a regular basis. I love the sounds of birds chirping  like a symphony providing the perfect back drop music as the colors explode and shift. 
 

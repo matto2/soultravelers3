@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
- [![Img_6766_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_6766_2.jpg "Img_6766_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/02/img_6766_2.jpg)OMG! Best Travel Blog!  
+ ![Img_6766_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/02/img_6766_2.jpg)OMG! Best Travel Blog!  
 December 2, 2008
 
 I am stunned! Out of a small, select list  

@@ -7,7 +7,7 @@ categories:
   - "sweden"
 ---
 
- [![IMG_5526](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116884adfe970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116884adfe970c.jpg) Family Travel Photo- Sweden!  
+ ![IMG_5526](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116884adfe970c.jpg) Family Travel Photo- Sweden!  
 February 18th, 2009
 
 On a warm, sunny summer day, we  
@@ -16,7 +16,7 @@ and entered an air locked chamber that
 
 <!--more-->
 
-[![IMG_5526](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116884f531970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116884f531970c.jpg)
+![IMG_5526](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116884f531970c.jpg)
 
 On a warm, sunny summer day in [Stockholm](http://en.wikipedia.org/wiki/Stockholm), we donned fur-lined, futuristic parka-capes and entered an air locked double-doored tunnel that leads into the [Absolut Ice Bar's](http://www.nordicseahotel.se/en/The-hotel/Food-and-drink/Absolut-Icebar-Stockholm/)  magical igloo-like chamber that delighted our whole family! Who knew this was perfect family travel entertainment?
 

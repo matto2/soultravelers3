@@ -15,7 +15,7 @@ our favorite spots mean “Land of the Great Mother”
 
 <!--more-->
 
-[![Img_0432](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0432.png "Img_0432")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0432.png)
+![Img_0432](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0432.png)
 
 The kaleidoscope of images from our Blue Voyage float through my mind like a dream. I was intrigued that the ancient names of two of our favorite spots mean “Land of the Great Mother” and “Land of the Mother Goddess” in the Luwi language of the original inhabitants. This Turkish coast is such a rich repository of layers of ancient civilizations- a route known to emperors, sultans, and ancient Greeks, Romans and Egyptians.
 
@@ -43,26 +43,26 @@ The only thing I would do differently, if we did a Blue Voyage again, would be t
 
 We managed to ignore the rude ones and stuck close to the crew and the decent people aboard which helped. Still, I never learned to “suffer fools gladly” and found some of it shameful, especially when they had sweet Natalie in tears by the end. That is the one bad thing about just hiring out a cabin on a gulet as you never know who you will spend your four days with. Live and learn! Luckily, the boat was large enough that we could escape away from the nonsense most of the time and we were enriched by the sweet ones.
 
-[![Img_0756](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0756.png "Img_0756")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0756.png)
+![Img_0756](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0756.png)
 
-[![Img_0163](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0163.png "Img_0163")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0163.png)
+![Img_0163](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0163.png)
 
-[![Img_0409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0409.png "Img_0409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0409.png)
+![Img_0409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0409.png)
 
-[![Img_0815](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0815.png "Img_0815")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0815.png)
+![Img_0815](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0815.png)
 
-[![Img_0749](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0749.png "Img_0749")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0749.png)
+![Img_0749](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0749.png)
 
-[![Img_0754](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0754.png "Img_0754")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0754.png)
+![Img_0754](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0754.png)
 
-[![Img_0761](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0761.png "Img_0761")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0761.png)
+![Img_0761](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0761.png)
 
-[![Img_0902](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0902.png "Img_0902")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0902.png)
+![Img_0902](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0902.png)
 
-[![Img_0770](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0770.png "Img_0770")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0770.png)
+![Img_0770](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0770.png)
 
-[![Img_0822](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0822.png "Img_0822")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0822.png)
+![Img_0822](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0822.png)
 
-[![Img_0766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0766.png "Img_0766")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0766.png)
+![Img_0766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0766.png)
 
-[![Img_0886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0886.png "Img_0886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0886.png)
+![Img_0886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0886.png)

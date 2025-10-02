@@ -17,14 +17,14 @@ tags:
   - "spanish-immersion-spanish-in-spain"
 ---
 
-[![IMG_2829](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765b7403c970b.jpg "IMG_2829")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765b7403c970b.jpg)Global Citizens = Spanish  
+![IMG_2829](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765b7403c970b.jpg)Global Citizens = Spanish  
 and Mandarin Immersion
 
 Mandarin Chinese and  
 Spanish are two of this  
 planet's most important
 
-<!--more--> [![these global kids are trilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eab95797970c.jpg "these global kids are trilingual")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eab95797970c.jpg)  
+<!--more--> ![these global kids are trilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eab95797970c.jpg)  
   
   
 Mandarin Chinese and Spanish are two of this planet's most important and widely spoken languages and according to the 2000 U.S. Census, Chinese is the third most common spoken language in the United States after English and Spanish. The ability to read, write and speak the dominant languages of our planet, opens many doors and is an essential part in being a true [global citizen](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "global citizen").  

@@ -6,7 +6,7 @@ categories:
   - "slovenia"
 ---
 
- [![Img_0561](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/06/img_0561.png "Img_0561")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_0561.png) Lovely Ljublijana, Slovenia  
+ ![Img_0561](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/06/img_0561.png) Lovely Ljublijana, Slovenia  
 October 3, 2007
 
 Lost in the dark in a foreign city, is not  
@@ -15,7 +15,7 @@ in Istria on the way here, so that made
 
 <!--more-->
 
-[![Img_0561](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0561.png "Img_0561")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0561.png)
+![Img_0561](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0561.png)
 
 Lost in the dark in a foreign city, is not our idea of fun, but we lingered too long in Istria on the way here, so that made finding our campground in Ljubljana in the dark a stressful entry. On top of that we have been passing colds around the family since I picked up a bug in Split and DaVinci, our driver had a the worst version thus far. We also had to get out the heater as the nights were getting cold and camping is always a little harder in the fall as there is more drizzle and mud to contend with.
 
@@ -45,26 +45,26 @@ We happily stumbled across a cafe for dead people that was filled with bones and
 
   
 
-[![Img_0324](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0324.png "Img_0324")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0324.png)
+![Img_0324](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0324.png)
 
-[![Img_0365](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0365.png "Img_0365")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0365.png)
+![Img_0365](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0365.png)
 
-[![Img_0325](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0325.png "Img_0325")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0325.png)
+![Img_0325](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0325.png)
 
-[![Img_0472](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0472.png "Img_0472")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0472.png)
+![Img_0472](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0472.png)
 
-[![Img_0520](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0520.png "Img_0520")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0520.png)
+![Img_0520](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0520.png)
 
-[![Img_0395](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0395.png "Img_0395")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0395.png)
+![Img_0395](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0395.png)
 
-[![Img_0406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0406.png "Img_0406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0406.png)
+![Img_0406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0406.png)
 
-[![Img_0415](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0415.png "Img_0415")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0415.png)
+![Img_0415](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0415.png)
 
-[![Img_0435](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0435.png "Img_0435")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0435.png)
+![Img_0435](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0435.png)
 
-[![Img_0450](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0450.png "Img_0450")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0450.png)
+![Img_0450](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0450.png)
 
-[![Img_0543](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0543.png "Img_0543")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0543.png)
+![Img_0543](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0543.png)
 
-[![Img_0589](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/25/img_0589.png "Img_0589")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0589.png)
+![Img_0589](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/25/img_0589.png)

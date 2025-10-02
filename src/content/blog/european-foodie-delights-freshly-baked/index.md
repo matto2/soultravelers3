@@ -20,14 +20,14 @@ tags:
   - "travel-and-food"
 ---
 
-[![IMG_4822](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912cf960970b.jpg "IMG_4822")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912cf960970b.jpg)European Foodie  
+![IMG_4822](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912cf960970b.jpg)European Foodie  
 Delights: Freshly Baked
 
 One of the fantastic  
 things about Europe  
 is the fresh baked bread,
 
-<!--more--> [![Europe bakery](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912cfc08970b.jpg "Europe bakery")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912cfc08970b.jpg)  
+<!--more--> ![Europe bakery](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153912cfc08970b.jpg)  
   
   
 One of the fantastic things [about Europe](http://soultravelers3new.local/2011/06/road-trip-europe-plan-then-improvise.html "about Europe") is the fresh baked bread, baguettes, "pan" and croissants. Every morning when I take my walk near the sea, I smell the bread and pastries being baked. We didn't know before our [family world tour](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family world tour") that almost all of the [campsites in Europe](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "campsites in europe") have freshly baked bread and croissants at very cheap prices.  

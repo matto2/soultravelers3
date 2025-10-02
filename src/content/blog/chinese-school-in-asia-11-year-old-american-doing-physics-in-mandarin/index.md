@@ -8,14 +8,14 @@ categories:
   - "language-learning"
 ---
 
-[![IMG_4612](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743286047970d.jpg "IMG_4612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743286047970d.jpg)Chinese School in Asia - 11 Year Old  
+![IMG_4612](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743286047970d.jpg)Chinese School in Asia - 11 Year Old  
 American Doing Physics in Mandarin!  
   
 As the only American in her Mandarin  
 school in Asia, we are learning as  
 we go as we immerse her deeply
 
-<!--more--> [![Learning physics in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743286107970d.jpg "Learning physics in Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743286107970d.jpg)  
+<!--more--> ![Learning physics in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743286107970d.jpg)  
   
 **MANDARIN PHYSICS BOOK**
 
@@ -31,7 +31,7 @@ Not just for the Mandarin, [studies show that bilinguals](http://www.nytimes.com
   
 Our thought is why not three while young as a foundation?  
   
-[![Chinese school books in Asia..biology](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616556f92970c.jpg "Chinese school books in Asia..biology")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616556f92970c.jpg)  
+![Chinese school books in Asia..biology](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616556f92970c.jpg)  
   
 **MANDARIN BIOLOGY BOOK**  
   
@@ -43,7 +43,7 @@ She still spoke too much English in that class in my opinion, because that was t
   
 She returned to join this same class group this February, and in this second year they are no longer in the foundation class, but more Thai students, mostly boys were added to the class. The Thai kids have a really hard time adjusting to the Chinese style of discipline, can't speak English or Mandarin well, so they are quite wild and get caned many times every day.  
   
-[![learning physics in Mandarin in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761655a4c6970c.jpg "learning physics in Mandarin in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761655a4c6970c.jpg)  
+![learning physics in Mandarin in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761655a4c6970c.jpg)  
   
 **PHYSICS IN MANDARIN AND HER NOTES**  
   
@@ -53,7 +53,7 @@ I had some concerns about this class, but we tried it, partly because then she w
   
 She really enjoyed the social aspects of this class, but I started worrying about how much English she was getting and communicating in all day long. The local students talked to each other in Mandarin, but since they are very strong in English and she is weaker in Mandarin, they often talked in English together. The Koreans also talked in English mostly as they are use to that. She was hearing lots of Mandarin, but also too much English in my view.  
   
-[![Learning Chinese history in Asia in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676860c449970b.jpg "Learning Chinese history in Asia in Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676860c449970b.jpg)  
+![Learning Chinese history in Asia in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676860c449970b.jpg)  
   
 **MANDARIN HISTORY BOOK**  
   
@@ -63,7 +63,7 @@ Deep Chinese immersion for many years along with deep and regular study of the l
   
 We had a similar problem with English class in Spain, but finally got her out of it after several years. Dealing with any school can be challenging because they are made for mass learning, not individual needs, but I must say that both this school in Penang and the one in Spain have been very generous and helpful to us and our odd way of schooling around the world which has us coming and going on our terms. ( More helpful than American schools we attended, where we found virtually no flexibility other than allowing her to begin several years early based on her advanced abilitiies...which they don't usually do).  
   
-[![Our daughter working on Mandarin while in Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676861497c970b.jpg "Our daughter working on Mandarin while in Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676861497c970b.jpg)  
+![Our daughter working on Mandarin while in Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676861497c970b.jpg)  
   
   
 **MANDARIN WRITING IS HARD TO LEARN**  
@@ -83,7 +83,7 @@ In a sense, Chinese has a kind of 40,000 letter alphabet."
   
    
   
-[![Mandarin Chinese school books -history](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177433c7848970d.jpg "Mandarin Chinese school books -history")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177433c7848970d.jpg)  
+![Mandarin Chinese school books -history](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177433c7848970d.jpg)  
   
   
 **WHY MANDARIN TAKES SO LONG**  
@@ -96,7 +96,7 @@ And it also explains our delimma and challenges  at this juncture. We moved our
   
 Poor kid has to go after school every day to work with a tutor one-on-one ( what they call "tuition" here and it is common) to bridge what she is missing and help her catch up in Mandarin. We've asked her to also only talk Mandarin while in school except for English class and to do lunch with these new kids ( who are much weaker in English) in Mandarin rather than with her friends who are fluent in English.  We start the day with Mandarin movies and go to bed with them and plan to do even more of Mandarin Pop Karoke and movies for entertainment.  
   
-[![Learning biology in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176165668dc970c.jpg "Learning biology in Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176165668dc970c.jpg)  
+![Learning biology in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176165668dc970c.jpg)  
   
 It is a very hard decision for basically unschoolers like us who like to have a lot of time together and believe in lots of play and self directed free time as learning, but we are three weeks into it now and it feels right for her Mandarin. She wakes up at 6 A.M and comes home from school around 5 or 6 P.M., so they are long days, so very typical Chinese schooling. She even goes on Saturday, although that is primarily co-curriculum ( choir) for her which she enjoys. We will most likely try this until the end of the year and see how she improves.  
   

@@ -15,7 +15,7 @@ tags:
   - "traveling-cheap-baby-boomers"
 ---
 
-[![6a00e5502a95078833017d42838e75970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b046a6734970d.jpg "6a00e5502a95078833017d42838e75970c-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b046a6734970d.jpg)Baby Boomer Travel  
+![6a00e5502a95078833017d42838e75970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b046a6734970d.jpg)Baby Boomer Travel  
   
 A  recent survey showed that 80%  
 of Baby Boomers hoped to travel  
@@ -23,7 +23,7 @@ when they retire and many polls
 
 <!--more-->  
   
-[![American baby boomers traveling the world ...like China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fbde58ab970b.png "American baby boomers traveling the world ...like China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fbde58ab970b.png)  
+![American baby boomers traveling the world ...like China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fbde58ab970b.png)  
   
 A  recent survey showed that 80% of Baby Boomers hoped to travel when they retire and many polls rank travel as the number one leisure activity for this age range. We [retired early to travel the world](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "retire early to travel the world") and are living proof that one doesn't have to be rich to [explore the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "explore the world") on a [permanent vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html "permanent vacation") ( after 8 plus years of non-stop travel to 46 countries on 5 continents on just $23/day per person).  
   

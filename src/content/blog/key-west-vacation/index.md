@@ -14,13 +14,13 @@ tags:
   - "key-west-with-kids"
 ---
 
-[![IMG_5965](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e6dc54ee970c.jpg "IMG_5965")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e6dc54ee970c.jpg)Key West Vacation
+![IMG_5965](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e6dc54ee970c.jpg)Key West Vacation
 
 Historic Key West,  
 Florida is the southern  
 most city in the continental
 
-<!--more--> [![Key West Vacation](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016761db06d4970b.jpg "Key West Vacation")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016761db06d4970b.jpg)  
+<!--more--> ![Key West Vacation](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016761db06d4970b.jpg)  
   
   
 Historic Key West Florida is the southern most city in the continental United States and an exciting destinations for [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel"). The drive alone can be a thrill as we took the [famous Overseas Highway](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "florida road trip") which links all the towns and islands of the Florida Keys with the mainland.  

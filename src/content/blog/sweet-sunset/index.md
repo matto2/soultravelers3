@@ -7,13 +7,13 @@ categories:
   - "malaysia"
 ---
 
-[![IMG_1837_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3f95e28970d.jpg "IMG_1837_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3f95e28970d.jpg)Sweet Sunset and Inspiration
+![IMG_1837_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3f95e28970d.jpg)Sweet Sunset and Inspiration
 
 As many of you wake up,  
 we're already basking in  
 the beautiful sunset here in
 
-<!--more-->   [![beautiful sunset and inspiration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3f95da9970d.jpg "beautiful sunset and inspiration")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3f95da9970d.jpg)  
+<!--more-->   ![beautiful sunset and inspiration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3f95da9970d.jpg)  
 
   
 As many of you wake up, we're already basking in the beautiful [sunset here in Asia](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "APARTMENT IN PENANG SUNSET VIEWS"), taking in those relaxation vibes to [celebrate life](http://soultravelers3new.local/2012/09/mother-daughter-bonding-tips-for-tweens.html "MOTHER DAUGHTER BONDING RITUALS") this weekend. We're getting excited about and inspired by our upcoming trip to China and busy doing lots of prep to get ready as it will be here before we know it.  

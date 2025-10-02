@@ -15,7 +15,7 @@ Both his grandparents and his father before him were gondoliers
 
 <!--more-->
 
-[![Img_6935](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6935.png "Img_6935")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6935.png)
+![Img_6935](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6935.png)
 
 As the gondola swayed on the Grand Canal, Mozart donned her Venetian mask and played her violin which our gondolier Roberto just loved!  Both his grandparents and his father before him were gondoliers and  
 his good friend was a violin prodigy and still plays here in Venice. This will definitely be a place on the violin-playing-around-the-world video that we are making, that will be obvious where it is, instantly.
@@ -38,26 +38,26 @@ Of course, never one to be left out, she decided she needed a kissing shot too, 
 
 I was happy that DaVinci got a good one of Roberto pushing off from a wall which is a move that fascinated us along with how very close he would come to other boats negotiating his way, yet never hitting any. DaVinci was particularly amazed at his adroit manipulation of the boat thru hectic situations and would shout out a “bravo” from time to time. I love the photos we got of Roberto and Mozart together which was a spontaneous move we could have easily missed. I think we have more than enough great pictures and video to remember this special once-in-a-lifetime moment.
 
-[![Img_6895](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6895.png "Img_6895")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6895.png)
+![Img_6895](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6895.png)
 
-[![Img_6943](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6943.png "Img_6943")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6943.png)
+![Img_6943](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6943.png)
 
-[![Img_6960](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6960.png "Img_6960")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6960.png)
+![Img_6960](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6960.png)
 
-[![Img_6988](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6988.png "Img_6988")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6988.png)
+![Img_6988](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6988.png)
 
-[![Img_6996](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6996.png "Img_6996")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6996.png)
+![Img_6996](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6996.png)
 
-[![Img_6966](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6966.png "Img_6966")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6966.png)
+![Img_6966](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6966.png)
 
-[![Img_6957](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6957.png "Img_6957")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6957.png)
+![Img_6957](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6957.png)
 
-[![Img_6990](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6990.png "Img_6990")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6990.png)
+![Img_6990](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6990.png)
 
-[![Img_6962](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_6962.png "Img_6962")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6962.png)
+![Img_6962](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_6962.png)
 
-[![Img_7001](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_7001.png "Img_7001")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_7001.png)
+![Img_7001](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_7001.png)
 
-[![Img_7000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_7000.png "Img_7000")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_7000.png)
+![Img_7000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_7000.png)
 
-[![Img_7043](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/06/img_7043.png "Img_7043")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_7043.png)
+![Img_7043](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/06/img_7043.png)

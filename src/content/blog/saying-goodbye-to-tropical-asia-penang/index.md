@@ -17,7 +17,7 @@ tags:
   - "wintering-in-penang"
 ---
 
-[![IMG_5554](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e873fefb5970d.jpg "IMG_5554")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e873fefb5970d.jpg) Saying Goodbye to Tropical Asia & Penang
+![IMG_5554](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e873fefb5970d.jpg) Saying Goodbye to Tropical Asia & Penang
 
 We have had the most  
 wonderful winter winter in  
@@ -25,7 +25,7 @@ tropical Asia, Penang has been
 
 <!--more-->
 
-[![delights of tropical asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3bfae88970b.jpg "delights of tropical asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3bfae88970b.jpg)  
+![delights of tropical asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e3bfae88970b.jpg)  
   
   
 

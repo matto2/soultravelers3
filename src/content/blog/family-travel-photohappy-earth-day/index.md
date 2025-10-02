@@ -7,7 +7,7 @@ categories:
   - "family-travel-photo"
 ---
 
- [![Img_9602](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703cf607970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703cf607970b.jpg) Family Travel Photo-Happy Earth Day!  
+ ![Img_9602](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703cf607970b.jpg) Family Travel Photo-Happy Earth Day!  
 April 22, 2009
 
 In honor of Earth Day, I thought this  
@@ -16,7 +16,7 @@ spontaneously while playing in
 
 <!--more-->
 
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f47b817970b-768x576-1.jpg)[![IMG_9602](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703d8763970b.png)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703d8763970b.png)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f47b817970b-768x576-1.jpg)![IMG_9602](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703d8763970b.png)  
 
   
 In honor of Earth Day, I thought this nature collage that Mozart did spontaneously while playing in [Plitvice Park in Croatia](http://soultravelers3new.local/2007/09/peaceful-pretty.html) captures the spirit! She loves to make such things in her play and they remind us a bit of [Andy Goldsworthy's](http://en.wikipedia.org/wiki/Andy_Goldsworthy) wonderful [art that we love](http://images.google.es/images?q=andy+goldsworthy&oe=utf-8&rls=org.mozilla:en-US:official&client=firefox-a&um=1&ie=UTF-8&ei=O_fuSYnIG8WMjAfSwKUb&sa=X&oi=image_result_group&resnum=4&ct=title).

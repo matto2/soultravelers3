@@ -25,14 +25,14 @@ tags:
   - "tcm-tourism"
 ---
 
-[![IMG_1731](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c347fff57970b.jpg "IMG_1731")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c347fff57970b.jpg)[Confucius Temple](http://en.wikipedia.org/wiki/Temple_of_Confucius "Temple of Confucius") in Beijing  
+![IMG_1731](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c347fff57970b.jpg)[Confucius Temple](http://en.wikipedia.org/wiki/Temple_of_Confucius "Temple of Confucius") in Beijing  
 and TCM Tourism  
   
 Confucius, Lao Tzu, Taoism  
 and ancient Chinese  
 philosophy and wisdom is alive
 
-<!--more--> [![Confucius temple Beijing China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c347fffbf970b.jpg "Confucius temple Beijing China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c347fffbf970b.jpg)
+<!--more--> ![Confucius temple Beijing China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c347fffbf970b.jpg)
 
 Confucius, Lao Tzu, Taoism and ancient Chinese philosophy and wisdom is alive, well and thriving in China today!  
   

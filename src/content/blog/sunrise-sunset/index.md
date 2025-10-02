@@ -17,13 +17,13 @@ tags:
   - "sunset"
 ---
 
-[![IMG_3164](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177437fab51970d.jpg "IMG_3164")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177437fab51970d.jpg)Sunrise, Sunset
+![IMG_3164](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177437fab51970d.jpg)Sunrise, Sunset
 
 Sunrise, sunset, swiftly flow  
 the days! Blues, purples,  
 pinks light the dawn each
 
-<!--more--> [![stunning sunrise - morning has broken](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768a47d37970b.jpg "stunning sunrise - morning has broken")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768a47d37970b.jpg)  
+<!--more--> ![stunning sunrise - morning has broken](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768a47d37970b.jpg)  
   
   
 Sunrise, [sunset](http://soultravelers3new.local/2010/03/family-travel-photo-spain-family-travel-sunset-on-road-trip-in-europe-andalusia-4hww-rolf-potts-tim-.html "stunning sunset"), swiftly flow the days! Blues, purples, pinks, yellows and reds light the dawn each day here as the sun rises and I am grateful for another day on this tropical island. It's such a peaceful time of day and I enjoy taking it in from our terrace daily, letting the cool morning breeze caress my face.  

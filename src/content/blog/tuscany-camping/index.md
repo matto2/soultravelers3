@@ -15,7 +15,7 @@ it from Rome, as we have gotten spoiled by the luxury campgrounds
 
 <!--more-->
 
-[![Img_6046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6046.png "Img_6046")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6046.png)
+![Img_6046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6046.png)
 
 Norcenni Girasole ([www.ecvacanze.it](http://www.ecvacanze.it)) was named as the only four star campsite in Tuscany in our guide book, so we made a bee line to it from Rome, as we have gotten spoiled by the luxury campgrounds of Europe and especially enjoy them off season. Dutch, French, Italian, German and UK voices abound in this camping village south of Florence, but we did not find one American voice and the Scottish waitress said that she had never met any here.
 
@@ -37,26 +37,26 @@ Speaking of bathrooms, the same people who made the kids bathroom and showers in
 
 Her hair is already lightening up again as it does every summer in the sun (now to try to keep the pool chlorine from giving it a greenish cast). She is thrilled to have the opportunity to ride her bike when ever she wants in our little corner. Besides playing with her loose teeth with her tongue and fingers, her favorite task at the moment is making herself sandwiches with ritz crackers or bread and organic peanut butter or Nutella. (For those that do not know, Nutella is a chocolate and hazel nut spread that is very popular with kids in Europe as they do not tend to do peanut butter, which we have from home.)
 
-[![Img_6012](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6012.png "Img_6012")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6012.png)
+![Img_6012](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6012.png)
 
-[![Img_6029](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6029.png "Img_6029")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6029.png)
+![Img_6029](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6029.png)
 
-[![Img_6030](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6030.png "Img_6030")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6030.png)
+![Img_6030](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6030.png)
 
-[![Img_6036](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6036.png "Img_6036")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6036.png)
+![Img_6036](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6036.png)
 
-[![Img_6068](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6068.png "Img_6068")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6068.png)
+![Img_6068](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6068.png)
 
-[![Img_6072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6072.png "Img_6072")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6072.png)
+![Img_6072](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6072.png)
 
-[![Img_6083](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6083.png "Img_6083")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6083.png)
+![Img_6083](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6083.png)
 
-[![Img_6106](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6106.png "Img_6106")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6106.png)
+![Img_6106](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6106.png)
 
-[![Img_6113](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6113.png "Img_6113")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6113.png)
+![Img_6113](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6113.png)
 
-[![Img_6034](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6034.png "Img_6034")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6034.png)
+![Img_6034](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6034.png)
 
-[![Img_6085](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6085.png "Img_6085")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6085.png)
+![Img_6085](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6085.png)
 
-[![Img_6125](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/07/img_6125.png "Img_6125")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6125.png)
+![Img_6125](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/07/img_6125.png)

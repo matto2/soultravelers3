@@ -16,7 +16,7 @@ tags:
   - "travel"
 ---
 
- [![IMG_1244](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7731cc7970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7731cc7970b.jpg)How to Enjoy Family Travel Abroad at Xmas!  
+ ![IMG_1244](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7731cc7970b.jpg)How to Enjoy Family Travel Abroad at Xmas!  
 December 22, 2009
 
 Ever wonder how travelers,  
@@ -25,13 +25,13 @@ the holiday season far from home?
 
 <!--more-->
 
-[![traditional clothes Christmas Spain Pastore ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a77310a1970b.jpg "traditional clothes Christmas Spain Pastore ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a77310a1970b.jpg)  
+![traditional clothes Christmas Spain Pastore ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a77310a1970b.jpg)  
 
 Ever wonder how travelers, digital nomads or expats handle the holiday season far from home? This is our fourth Christmas in Spain and we really love it. Hard not to like an area so beautiful with ideal warm winter weather where we are ten minutes from  the Mediterranean sea and an hour's drive from snow skiing.
 
 This is the Christmas view out our window that I took just took while decorating our tree!
 
-[![Beautiful med sea view, palms, spain, mediterranean ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7731b69970b.jpg "Beautiful med sea view, palms, spain, mediterranean ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7731b69970b.jpg) 
+![Beautiful med sea view, palms, spain, mediterranean ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7731b69970b.jpg) 
 
 Still, some people do get lonely while traveling no matter where they are. Recently I was surprised to [read this post](http://www.gadling.com/2009/12/16/five-reasons-why-life-on-the-road-can-sometimes-suck/) at [Gadling](http://www.gadling.com/) ( but enjoyed [this rebuttal](http://www.gadling.com/2009/12/20/five-reasons-why-life-on-the-road-doesnt-suck?icid=sphere_blogsmith_inpage_gadling)). I was even more surprised to  read "It’s been really lonely on the road so far" by cyber friend Baker at [ManvsDebt](http://manvsdebt.com/) in his [recent post](http://manvsdebt.com/is-travel-worth-it/) about traveling as a family.
 
@@ -49,7 +49,7 @@ This is partly how we bring [our home with us](http://soultravelers3new.local/20
 
 When we watched them all again a few days ago, I wanted to find a way to share it with you. Not an easy task, but after many trials and a call to the company at home that helped us make our personal dvd, we found a way. It's a bit like inviting you over to cuddle on the couch with us! Grin.
 
-[![IMG_1152](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287676bf92970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287676bf92970c.jpg)  
+![IMG_1152](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287676bf92970c.jpg)  
 
 Our ritual at home was to go to a tree farm and cut down a tree, then go have Chinese food at our favorite restaurant. This is the last tree that we cut down and at four, Mozart had become an expert and already knew the rituals.
 
@@ -59,11 +59,11 @@ Sorry about the quality ( it was taken with our old video camera and then transf
 
 **2) EMBRACE THE NEW**
 
-[![IMG_1087](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287676cd1d970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287676cd1d970c.jpg)  
+![IMG_1087](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287676cd1d970c.jpg)  
 
 Chocolate  advent calendar? Yum! Not something we had at home, but definitely a European tradition that Mozart adapted to immediately. Part of the joy of extended travel and deep immersion is to experience another culture in a profound way, so learning [new traditions](http://soultravelers3new.local/2007/02/most-magical-mu.html) and [participating in festivals](http://soultravelers3new.local/2008/03/three-kings-in.html#more) is part of the charm.
 
-[![IMG_1206](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a77567e2970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a77567e2970b.jpg)
+![IMG_1206](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a77567e2970b.jpg)
 
 Yesterday Mozart sang a little solo at her local school in the annual Christmas concert that they put on every year on the last day of school before Xmas break. Remember our videos from the first winter in 2006 where she [sang in her tradition outfit](http://soultravelers3new.local/2008/04/spanish-kids-si.html#more) and did [flamenco](http://soultravelers3new.local/2008/04/flamenco.html)? Time flies when you are having fun. She was 6 and in [first grade that first year,](http://soultravelers3new.local/2006/12/flamenco-christ.html#more) now she is in fourth grade and turned 9 this fall!
 
@@ -71,11 +71,11 @@ Yesterday Mozart sang a little solo at her local school in the annual Christmas 
 
 They partied all day at the school and did a "secret Santa". Not so different than at home except totally in Spanish and with a Spanish flair. By coming back to this village every year we have a "home away from home" that helps us connect to the holiday customs [that are similar](http://soultravelers3new.local/2006/12/xmas-evela-noch.html#more) and [not so similar.](http://soultravelers3new.local/2007/02/happy-new-year.html) We keep or [modify ours](http://soultravelers3new.local/2007/01/santa-come-or-p.html) and add theirs. I wholeheartedly agree with my friend [Maya Frost](http://www.mayafrost.com/blog/) who recently wrote about the importance of [flexibility in lifestyle design](http://www.mayafrost.com/blog/2009/12/17/frugality-flexibility-expat/). 
 
-[![IMG_1050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876789376970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876789376970c.jpg)  
+![IMG_1050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876789376970c.jpg)  
 
 On that note, let us demo the art of a Christmas tree in Spain, which you can see is a totally different process than how we use to cut down our trees at home that you see on the video. The good news for frugal types is it is very cheap, just 6 or 7 euros at the local hypermarket compared to 60 to 80 dollars at the tree farm.
 
-[![IMG_1060](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7759e42970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7759e42970b.jpg) 
+![IMG_1060](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7759e42970b.jpg) 
 
 First you buy the tree that comes with dry root ball, pot and potting soil.
 
@@ -83,11 +83,11 @@ First you buy the tree that comes with dry root ball, pot and potting soil.
 
 Unwrap tree and add a little soil to the bottom of the pot.  
 
-[![IMG_1077](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7759f1d970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7759f1d970b.jpg) 
+![IMG_1077](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7759f1d970b.jpg) 
 
 Put the tree in and squish down the root ball and potting mix.
 
-[![IMG_1082](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a091970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a091970b.jpg) 
+![IMG_1082](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a091970b.jpg) 
 
 This year we used a hammer to move things around before watering, but usually not needed.
 
@@ -97,7 +97,7 @@ Then you decorate! We have very minimal decorations that we store here with a fe
 
 Yes, those are organic seed packages that arrived with our Christmas gifts from home, that we added to the tree. When we take our tree down after the [big 3 Kings celebrations](http://soultravelers3new.local/2007/02/most-magical-mu.html) here on January 6th, we will plant our winter garden using this pot & others on our balcony. Even travelers can be gardeners!
 
-[![Christmas presents, gifts under tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a325970b.jpg "Christmas presents, gifts under tree")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a325970b.jpg) 
+![Christmas presents, gifts under tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a325970b.jpg) 
 
 **3) USE WEBCAM CALLS & INTERNET TO CONNECT WITH FAMILY & FRIENDS**
 
@@ -107,7 +107,7 @@ Even this post lets our family, friends and readers connect to our lives. I prob
 
 It is hard for me to understand how anyone can get lonely today while traveling. Looking at my Mom's, other relatives or friends faces on the webcam,  full size on our laptop screens, it is easy to forget [how many miles we are apart.](http://www.youtube.com/watch?v=0Ar90wOnWnM) The only thing missing is the hugs!
 
-[![Angel made by child christmas tree topper frugal craft](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a3ba970b.jpg "Angel made by child christmas tree topper frugal craft")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a3ba970b.jpg)
+![Angel made by child christmas tree topper frugal craft](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a3ba970b.jpg)
 
 **4) IMPROVISE, POSITIVE FOCUS & PLAYFULNESS**
 
@@ -115,7 +115,7 @@ We always had a beautiful angel on top of our Christmas tree,  but we didn't wa
 
 I think it illustrates well the principles of improvisation, positive focus and playfulness that will not only keep you from feeling depressed and lonely while doing extended travel during the holidays, but will support your life in many ways.
 
-[![world globe christmas tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a444970b.jpg "world globe christmas tree")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a444970b.jpg) 
+![world globe christmas tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a444970b.jpg) 
 
 **5) GRATITUDE** **AND OPTIMISM**  
 

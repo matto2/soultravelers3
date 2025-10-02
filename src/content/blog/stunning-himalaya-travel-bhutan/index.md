@@ -19,13 +19,13 @@ tags:
   - "trekking-bhutan"
 ---
 
-[![IMG_7691](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154351f1bff970c.jpg "IMG_7691")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154351f1bff970c.jpg) Stunning Himalayas Travel - Bhutan
+![IMG_7691](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154351f1bff970c.jpg) Stunning Himalayas Travel - Bhutan
 
 Himalaya..the very name  
 is evocative. Bhutan, land  
 of the thunder dragon, is
 
-<!--more--> [![Himalaya travel Bhutan breathtaking vista](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153914bd8d8970b.jpg "Himalaya travel Bhutan breathtaking vista")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153914bd8d8970b.jpg)  
+<!--more--> ![Himalaya travel Bhutan breathtaking vista](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153914bd8d8970b.jpg)  
   
 [Himalayas.](http://en.wikipedia.org/wiki/Himalayas "Himalayas").the very name is evocative. [Bhutan, land of the thunder dragon](http://en.wikipedia.org/wiki/Bhutan "Bhutan land of the thunder dragon"), is the last Himalayan kingdom, a Buddhist country with unique culture, exotic sacred architecture, biodiversity  and incredible beauty  like no other place on earth.  
   

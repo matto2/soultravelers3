@@ -18,14 +18,14 @@ tags:
   - "stunning-stone-house"
 ---
 
-[![IMG_0386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c707ae45970b.jpg "IMG_0386")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c707ae45970b.jpg)Stunning French Stone House Photo  
+![IMG_0386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c707ae45970b.jpg)Stunning French Stone House Photo  
   
 You just don't see stunning stone  
 houses like this one in France any  
 where in the world like you do in
 
 <!--more-->  
-[![stunning stone house in France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07acf3bb970d.png "stunning stone house in France")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07acf3bb970d.png)  
+![stunning stone house in France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07acf3bb970d.png)  
   
 You just don't see stunning stone houses like this one in [France](http://soultravelers3new.local/france/ "travel france tips") any where in the world like you do in [Europe](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "camping Europe, best sites") and it is one of the reasons we love that continent so much. I thought you'd enjoy this [travel photo](http://soultravelers3new.local/2012/12/the-ultimate-travel-photo.html "travel photo") as much as I do.  
   

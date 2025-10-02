@@ -22,7 +22,7 @@ tags:
   - "visiting-china-for-mandarin-learning"
 ---
 
-[![IMG_1696](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccfb619970b.jpg "IMG_1696")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccfb619970b.jpg)Immersion Visit to China  
+![IMG_1696](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccfb619970b.jpg)Immersion Visit to China  
   
 If you want to be fluent in Mandarin,  
 an immersion visit to China  
@@ -30,7 +30,7 @@ is very important. Learning Mandarin
 
 <!--more-->  
   
-[![Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ce74970b.png "Immersion visit to China to learn Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ce74970b.png)  
+![Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ce74970b.png)  
   
 If you want to be [fluent in Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in Mandarin how-to"), an [immersion visit to China](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "immersion visit to China") is very important.  
   
@@ -47,20 +47,20 @@ If you want to be [fluent in Mandarin](http://soultravelers3new.local/2013/06/fl
   
 Doing a [Beijing homestay](http://soultravelers3new.local/2013/01/best-homestay-living-with-a-family-in-china.html "best beijing homestay") combined with her boarding at the school during the week, added a lot of exposure to the language. [Living with locals](http://soultravelers3new.local/2013/01/homestay-china-living-with-locals-whats-it-like-.html "homestay China - living with locals") makes a huge difference in learning the language, understanding the culture and making friends for life.  
   
-[![Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51183b306970c.png "Immersion visit to China to learn Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51183b306970c.png)  
+![Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51183b306970c.png)  
   
 **RAISING MULTILINGUAL GLOBAL KIDS**  
   
 We've written before about the importance of immersion in our [Raising a Multilingual Child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "raising a multilingual child") series and [How and Why to Raise a Global Kid](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "why raise a global kid").[  
   
 ](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html "learning mandarin in Beijing best school")  
-[![Beauty in China - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51183b323970c.png "Beauty in China - Immersion visit to China to learn Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51183b323970c.png)  
+![Beauty in China - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51183b323970c.png)  
   
 **ANCIENT CHINESE CULTURE**  
   
 Exploring the many [World Heritage Sites in China](http://whc.unesco.org/en/statesparties/CN/ "world heritage sites") in cities like [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "best of Beijing travel"), [Shanghai](http://soultravelers3new.local/2012/11/shanghai-with-kids.html "Shanghai with kids") and [Xi'an](http://soultravelers3new.local/2012/12/making-friends-in-china-.html "Visiting Xian and making friends in China") with ancient places like the [Terra Cotta Warriors](http://soultravelers3new.local/2012/12/terracotta-army.html "terra cotta warriors") makes a life long impact on one studying Chinese.  
   
-[![Chinese festival - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ceaa970b.png "Chinese festival - Immersion visit to China to learn Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ceaa970b.png)  
+![Chinese festival - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ceaa970b.png)  
   
 **CHINESE FESTIVALS AND TCM**  
   
@@ -68,11 +68,11 @@ Don't miss any of the festivals and Chinese celebrations if you get a chance, li
   
 Also experiencing [Traditional Chinese Medicine travel](http://soultravelers3new.local/2013/04/traditional-chinese-medicine-travel-in-china.html "traditional chinese medicine travel") while in China is like no where else in the world.  
   
-[![Great Wall - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ceca970b.png "Great Wall - Immersion visit to China to learn Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ceca970b.png)  
+![Great Wall - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3ceca970b.png)  
   
 Or a trip to see [the Great Wall](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html "the great wall of china"). We were lucky to experience it without the crowds.  
   
-[![Trilingual Mozart Walking city wall in Xi'an - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3cf03970b.png "Trilingual Mozart Walking city wall in Xi'an - Immersion visit to China to learn Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3cf03970b.png)  
+![Trilingual Mozart Walking city wall in Xi'an - Immersion visit to China to learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd3cf03970b.png)  
   
 **LEARN MANDARIN AT HOME AND ABROAD**  
   

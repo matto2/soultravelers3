@@ -16,13 +16,13 @@ tags:
   - "rving-europe"
 ---
 
-[![IMG_6080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630501ea03970d.jpg "IMG_6080")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630501ea03970d.jpg)Motorhoming Travels in Europe
+![IMG_6080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630501ea03970d.jpg)Motorhoming Travels in Europe
 
 Motorhoming around  
 Europe is the very best  
 way to see and explore it
 
-<!--more--> [![Camping Europe - fun for families!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630501eac9970d.jpg "Camping Europe - fun for families!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630501eac9970d.jpg)  
+<!--more--> ![Camping Europe - fun for families!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630501eac9970d.jpg)  
   
   
 [Motorhoming around Europe](http://soultravelers3new.local/2007/05/tuscany-camping.html "motorhoming around Europe") is the very best way to see and explore it in my opinion, particularly wonderful if you are [traveling Europe as a family](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "traveling Europe as a family") or want to [get to know Europeans](http://soultravelers3new.local/2011/01/how-to-make-paella-in-spain-the-valencia-way-recipe-for-travel-foodie-lovers-of-traditional-food.html "get to know europeans"). Why? Cheap, no packing and unpacking, [save a bundle on food](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "eating cheap in Europe") by cooking most of your own, being outside, living a resort life, have a never ending supply of [friends for the kids](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends for kids while traveling") and fun things to do when not touring like pools, playgrounds, [free kids clubs](http://soultravelers3new.local/2010/08/camping-europe-with-kids-free-kids-clubs-family-friendly-international-travel-tips.html "camping europe free kids clubs") etc..  

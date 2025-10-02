@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1393](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1393.png "Img_1393")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1393.png) Doctors and Dentists  
+ ![Img_1393](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1393.png) Doctors and Dentists  
 March 22, 2007
 
 I heard all kinds of weird stories about  
@@ -15,7 +15,7 @@ did not know what to expect.
 
 <!--more-->
 
-[![Img_1393_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1393_2.png "Img_1393_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1393_2.png)
+![Img_1393_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1393_2.png)
 
 I heard all kinds of weird stories about doctors and dentists in Europe, so we did not know what to expect. Luckily we have had nothing but good experiences. We are paying out of pocket, but are still spending less for health care here than we do in the States and it is comparable for treatment, if not better in some ways.
 
@@ -47,8 +47,8 @@ We have been very impressed with the caring and personal attention that one gets
 We all got check ups before we left last September, but we wanted to take advantage of the facilities we have here before hitting the road for seven months. We are a healthy crew that never seem to get sick, but  
 we just wanted to start off with a clean slate.
 
-[![Img_1436](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_1436.png "Img_1436")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1436.png)
+![Img_1436](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_1436.png)
 
-[![Img_5306](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_5306.png "Img_5306")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_5306.png)
+![Img_5306](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_5306.png)
 
-[![Img_5308](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/08/img_5308.png "Img_5308")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_5308.png)
+![Img_5308](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/08/img_5308.png)

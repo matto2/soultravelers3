@@ -21,14 +21,14 @@ tags:
   - "travel-to-harry-potter-locations"
 ---
 
-[![IMG_7188](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6f666970d.jpg "IMG_7188")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6f666970d.jpg)Harry Potter Books and  
+![IMG_7188](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743e6f666970d.jpg)Harry Potter Books and  
 Family Travel Tips
 
 Are you a die-hard Harry Potter  
 fan and star struck muggle?  
 Have you or your child read
 
-<!--more--> [![harry potter books and travel locations](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761700a3e5970c.jpg "harry potter books and travel locations")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761700a3e5970c.jpg)
+<!--more--> ![harry potter books and travel locations](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761700a3e5970c.jpg)
 
  Are you a die-hard Harry Potter fan and star struck muggle? Have you or your child read every book repeatedly and have seen all the movies umpteen times? Then you will love the [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel around the world how-to") opportunities that involve both!  
   
@@ -40,7 +40,7 @@ Obviously, the UK is the top spot for discovering Harry Potter locations while y
   
 She had a blast reading Harry Potter books all through the UK at seven. It was fun to see her reading while on one of those double decker red buses in [London](http://soultravelers3new.local/2012/04/camping-in-london-best-low-budget-travel.html "camping London"), on a punt in Cambridge and waiting for a [Shakespeare play](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "Shakespeare at the Globe theatre London") in [Stratford upon Avon](http://soultravelers3new.local/2009/02/swimming-with-swans-stratforduponavon-england-uk.html "stratford upon Avon travel"). (We had an agreement that she read the books before seeing the films, but now she repeats both regularly in Spanish and English and knows them by heart).  
   
-[![Our 7 year old reading Harry Potter on a punt in Cambridge, UK](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743fbe7e1970d.jpg "Our 7 year old reading Harry Potter on a punt in Cambridge, UK")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743fbe7e1970d.jpg)  
+![Our 7 year old reading Harry Potter on a punt in Cambridge, UK](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743fbe7e1970d.jpg)  
   
   
 We enjoyed visiting sites that are in the book and films all over the UK at seven and our many other trips to [Great Britain](http://soultravelers3new.local/2012/03/travel-kids-london-hamleys-toy-store.html "London with kids") on [our world tour.](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "Our world tour") Our favorite was at Hogwarts!  

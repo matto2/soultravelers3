@@ -19,13 +19,13 @@ tags:
   - "visiting-china"
 ---
 
-[![IMG_6911](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee550e447970d.jpg "IMG_6911")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee550e447970d.jpg)Beautiful China  
+![IMG_6911](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee550e447970d.jpg)Beautiful China  
   
 The beauty of China is  
 touching our hearts on  
 these sunny, autumn days
 
-<!--more--> [![Loving the natural beauty and symbolism in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33ad8b93970b.jpg "Loving the natural beauty and symbolism in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33ad8b93970b.jpg)  
+<!--more--> ![Loving the natural beauty and symbolism in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33ad8b93970b.jpg)  
   
 The [beauty of China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "the beauty of China travel") is touching our hearts on these sunny, autumn days [exploring Beijing](http://soultravelers3new.local/2012/11/china-parks-and-martial-arts.html "exploring Beijing"). We've become more familiar with [Chinese traditions](http://soultravelers3new.local/2012/04/the-beauty-of-traditional-chinese-culture.html "chinese traditions") and symbology while [living in Penang](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "living in Penang") and with our child in a [Mandarin school in Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Mandarin school in Asia"), but being in [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "Best of Beijing") brings more appreciation of this [ancient culture](http://soultravelers3new.local/2012/06/chines.html "chinese culture - tea ceremony").  
   

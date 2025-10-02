@@ -16,7 +16,7 @@ award at Divine Caroline!
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/12/picture_1_3.png)
 
-[![Picture_1_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/picture_1_2.png "Picture_1_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/13/picture_1_2.png)
+![Picture_1_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/13/picture_1_2.png)
 
   
 

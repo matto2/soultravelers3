@@ -6,7 +6,7 @@ categories:
   - "morocco"
 ---
 
- [![Img_2074](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2074.png "Img_2074")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2074.png) Made By Hand  
+ ![Img_2074](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2074.png) Made By Hand  
 April 2, 2007
 
 We were very impressed with the wonderful  
@@ -50,29 +50,29 @@ in a few times and saw that she was enjoying herself like a little princess. I u
 
 I have always been a person who loves hands and what they can do. I love my mom’s hands and my husbands. How they look and what they can do with them. Morocco is a place where people do marvelous things with their hands and we relished seeing that and learning more about those skills.
 
-[![Img_2134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2134.png "Img_2134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2134.png)
+![Img_2134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2134.png)
 
-[![Img_2150](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2150.png "Img_2150")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2150.png)
+![Img_2150](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2150.png)
 
-[![Img_2155](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2155.png "Img_2155")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2155.png)
+![Img_2155](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2155.png)
 
-[![Img_2254](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2254.png "Img_2254")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2254.png)
+![Img_2254](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2254.png)
 
-[![Img_2187](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2187.png "Img_2187")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2187.png)
+![Img_2187](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2187.png)
 
-[![Img_2217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2217.png "Img_2217")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2217.png)
+![Img_2217](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2217.png)
 
-[![Img_2223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2223.png "Img_2223")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2223.png)
+![Img_2223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2223.png)
 
-[![Img_2244](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2244.png "Img_2244")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2244.png)
+![Img_2244](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2244.png)
 
-[![Img_2181](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2181.png "Img_2181")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2181.png)
+![Img_2181](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2181.png)
 
-[![Img_3551](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_3551.png "Img_3551")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_3551.png)
+![Img_3551](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_3551.png)
 
-[![Img_2234](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2234.png "Img_2234")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2234.png)
+![Img_2234](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2234.png)
 
-[![Img_2270](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2270.png "Img_2270")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2270.png)
+![Img_2270](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2270.png)
 
   
   

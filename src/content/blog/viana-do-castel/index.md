@@ -26,7 +26,7 @@ We will have to do a video just on all the amazing playgrounds that she has enjo
 
 So we said good bye to Portugal for now, jumped on the AP9 and were soon enjoying the beautiful views of [Vigo](http://www.planetware.com/spain/vigo-e-gal-vig.htm) ....our first glance at Galicia, Spain. Instantly, we could see that this green, [Celtic Spain](http://usuarios.lycos.es/Celtic_Galiza/index.html) was the polar opposite of  our beloved Andalusia and looked very different than anything else we have seen on the Iberia Peninsula. We did not stay long in Vigo because I read there was not much to see there, but it is a beautiful place to pass through and the views  of the sea enthralled us as we headed towards Santiago.
 
-[![Img_1896](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1896.jpg "Img_1896")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1896.jpg)
+![Img_1896](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1896.jpg)
 
 [![Img_1885](http://soultravelers3new.local/images/2008/08/19/img_1885.jpg "Img_1885")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1885.jpg)
 

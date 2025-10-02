@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
- [![IMG_3816](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685920fe970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685920fe970c.jpg) Twitter & Travel 2.0  
+ ![IMG_3816](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111685920fe970c.jpg) Twitter & Travel 2.0  
 February 10, 2009
 
 Some of you probably do not even know  
@@ -14,7 +14,7 @@ would know about them if it was not for our
 
 <!--more-->
 
- [![IMG_3816](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330105371e682a970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330105371e682a970b.jpg)
+ ![IMG_3816](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330105371e682a970b.jpg)
 
 Some of you probably do not even know what Travel 2.0 or Twitter is. I don't think I would know about them if it was not for our world tour. Some how it has flung us into a whole new world called [web2.0](http://en.wikipedia.org/wiki/Web_2.0 "wikipedia defining web2.0") because we are living lives as a [3 laptop family](http://soultravelers3new.local/2008/04/3-laptop-fami-2.html "soultravelers3 geeky explanations") which makes us traveling [digital nomads!](http://www.digitalnomads.com/ "Digital Nomads")
 

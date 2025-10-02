@@ -15,14 +15,14 @@ tags:
   - "natural-deodorant-solution"
 ---
 
-[![IMG_4918](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d68ff970b.jpg "IMG_4918")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d68ff970b.jpg)How to Make DIY Homemade  
+![IMG_4918](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d68ff970b.jpg)How to Make DIY Homemade  
 Deodorant - Easy, Cheap, Healthy  
   
 Why make your own world's  
 best deodorant? First, because  
 it is so much healthier for you
 
-<!--more--> [![best natual and cheap homemade deodorant](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d69fa970b.jpg "best natual and cheap homemade deodorant")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d69fa970b.jpg)
+<!--more--> ![best natual and cheap homemade deodorant](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d69fa970b.jpg)
 
 Why make your own world's best deodorant? First, because it is so much healthier for you and also because it is cheaper and so easy to do. We're living in the tropics, I take saunas every day, so since this works for my husband and I, it surely will work for anyone.  
   
@@ -32,7 +32,7 @@ We already use a natural toothpaste that we make and natural shampoo and creme r
   
 I was wrong, making your own deodorant is sooo easy! If you want something fancier, I saw [this one](http://www.crunchybetty.com/solving-the-worlds-deodorant-crisis-a-new-soothing-recipe "homemade deodorant") and this one [made with probiotics](http://frugallysustainable.com/2011/11/homemade-probiotic-deodorant-that/ "probiotics homemade deodorant") online, but the one I make is so much easier and I am into simplicity and ease. Less is more in my world, but your mileage may vary. You can actually make a deodorant with each of these separately, but I like them together.  
   
-[![natural baking soda and organic virgin coconut oil](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761763fc42970c.jpg "natural baking soda and organic virgin coconut oil")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761763fc42970c.jpg)  
+![natural baking soda and organic virgin coconut oil](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761763fc42970c.jpg)  
   
 **SUPER EASY 2 INGREDIENT DIY HEALTHY DEODORANT**  
   

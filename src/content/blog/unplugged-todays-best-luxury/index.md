@@ -17,13 +17,13 @@ tags:
   - "unplugging-todays-luxury"
 ---
 
-[![Img_1583](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630629959a970d.jpg "Img_1583")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630629959a970d.jpg)Unplugged - Today's Best Luxury?  
+![Img_1583](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630629959a970d.jpg)Unplugged - Today's Best Luxury?  
   
 "The greatest luxury of  
 the 21st century will be  
 dropping off the grid.
 
-<!--more--> _[![Unplugged life or alway on? Can digital nomads unplug?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016306641aad970d.jpg "Unplugged life or alway on? Can digital nomads unplug?")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016306641aad970d.jpg)  
+<!--more--> _![Unplugged life or alway on? Can digital nomads unplug?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016306641aad970d.jpg)  
   
   
 _"The greatest luxury of the 21st century will be dropping off the grid. Black-hole resorts will be notable for the total absence of the internet - even walls will be impervious to wireless signals." _Travel and Leisure_  

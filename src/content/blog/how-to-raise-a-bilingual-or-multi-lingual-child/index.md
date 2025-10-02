@@ -17,14 +17,14 @@ tags:
   - "travel-and-language-learning"
 ---
 
- [![IMG_2865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88f63fc0970d.jpg "IMG_2865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88f63fc0970d.jpg) How to Raise a Bilingual  
+ ![IMG_2865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88f63fc0970d.jpg) How to Raise a Bilingual  
 or Multi-lingual Child
 
 I think one of the best gifts  
 that you can give your child  
 is the gift of multi-languages
 
-<!--more--> [![Our trilingual child doing Mandarin school work in Wadi Rum, Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f031857970b.jpg "Our trilingual child doing Mandarin school work in Wadi Rum, Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f031857970b.jpg)  
+<!--more--> ![Our trilingual child doing Mandarin school work in Wadi Rum, Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f031857970b.jpg)  
   
   
   
@@ -73,7 +73,7 @@ We started at three months pregnant as that is when babies can hear and start to
   
  It was part of our nightly ritutal and bonding process as we nested and waited. We wanted a before womb and after womb continuum of familiarity and hoped to help build a love of language and reading from the start.  
   
-[![Very pregnant with Mozart in our garden, she was already multi-lingual!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432d6cec6970c.jpg "Very pregnant with Mozart in our garden, she was already multi-lingual!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432d6cec6970c.jpg)  
+![Very pregnant with Mozart in our garden, she was already multi-lingual!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432d6cec6970c.jpg)  
   
   
   

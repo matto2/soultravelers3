@@ -7,7 +7,7 @@ categories:
   - "family-travel-photo"
 ---
 
- [![IMG_0038](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115710a45be970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115710a45be970c.jpg) Family Travel Photo-England  
+ ![IMG_0038](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115710a45be970c.jpg) Family Travel Photo-England  
 July 28, 2009
 
 Doesn't that look delicious? It  
@@ -16,7 +16,7 @@ tell you those fresh blueberries
 
 <!--more-->
 
-[![food market, fresh fruit, berries, England, baskets, store, Cotswolds](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115710a48a2970c.jpg "food market, fresh fruit, berries, England, baskets, store, Cotswolds")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115710a48a2970c.jpg)
+![food market, fresh fruit, berries, England, baskets, store, Cotswolds](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115710a48a2970c.jpg)
 
 Doesn't that look delicious? It says summer to me and let me tell you those fresh blueberries were delicious! Family travel often means grabbing some scrumptious fruit for a picnic or even a nibble as one roams with a kidlet in tow.
 

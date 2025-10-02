@@ -16,7 +16,7 @@ tags:
   - "travel-gifts"
 ---
 
- [![6a00e5502a950788330120a775a325970b-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348997c342970c.jpg "6a00e5502a950788330120a775a325970b-500wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348997c342970c.jpg) Cyber Monday: Best Travel Gifts and Deals!  
+ ![6a00e5502a950788330120a775a325970b-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348997c342970c.jpg) Cyber Monday: Best Travel Gifts and Deals!  
 November 29, 2010 
 
 Everybody looks for great deals on  
@@ -27,7 +27,7 @@ especially in this economic climate, so
 
  
 
-[![Christmas tree presents, bargains, deals, travel gifts, cybermonday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013489936ec8970c.jpg "Christmas tree presents, bargains, deals, travel gifts, cybermonday")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013489936ec8970c.jpg)  
+![Christmas tree presents, bargains, deals, travel gifts, cybermonday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013489936ec8970c.jpg)  
   
 
 Everybody looks for [great deals on Black Friday](http://www.amazon.com/b?node=283155&tag=soultravelers-20&camp=15329&creative=385873&linkCode=ur1&adid=1M3Z2HSXD282PFXFPMZ3& "great deals on black friday") and [Cyber Monday,](http://www.amazon.com/Black-Friday-After-Thanksgiving-Sale/b/ref=nav_swm_cmon_nov282010?ie=UTF8&node=384082011&pf_rd_p=1279022442&pf_rd_s=nav-sitewide-msg&pf_rd_t=4201&pf_rd_i=navbar-4201&pf_rd_m=ATVPDKIKX0DER&pf_rd_r=06188GJ0K1HQ46EBRAHC "cyber monday") especially in this economic climate, so why should travelers and those with wanderlust be any different? I'm not really partial to shopping, prefer to hang out in my jammies or comfies and we live a digital globetrotting lifestyle, so I do [most of my shopping online](http://www.amazon.com/Black-Friday-After-Thanksgiving-Sale/b/ref=nav_swm_cmon_nov282010?ie=UTF8&node=384082011&pf_rd_p=1279022442&pf_rd_s=nav-sitewide-msg&pf_rd_t=4201&pf_rd_i=navbar-4201&pf_rd_m=ATVPDKIKX0DER&pf_rd_r=06188GJ0K1HQ46EBRAHC "most of my shopping online"). I've suggested [travel gifts for Christmas](http://soultravelers3new.local/2009/12/-gifts-for-travelers-with-soul-digital-nomad-gear-mac-familytravel-adventure.html "travel gifts for Christmas") before, but this year I found some new things and fabulous deals that might interest you, your favorite travelers or even non-travelers on your holiday list.

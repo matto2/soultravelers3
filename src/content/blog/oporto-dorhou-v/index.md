@@ -45,13 +45,13 @@ I bet this area looks stunning in great weather, as we find that weather really 
 
 [![Img_1586](http://soultravelers3new.local/images/2008/08/11/img_1586.jpg "Img_1586")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1586.jpg)
 
-[![Img_1601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1601.jpg "Img_1601")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1601.jpg)
+![Img_1601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1601.jpg)
 
-[![Img_1616](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1616.jpg "Img_1616")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1616.jpg)
+![Img_1616](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1616.jpg)
 
 [![Img_1611](http://soultravelers3new.local/images/2008/08/11/img_1611.jpg "Img_1611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1611.jpg)
 
-[![Img_1711](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1711.jpg "Img_1711")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1711.jpg)
+![Img_1711](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1711.jpg)
 
 [![Img_1811](http://soultravelers3new.local/images/2008/08/11/img_1811.jpg "Img_1811")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1811.jpg)
 
@@ -59,6 +59,6 @@ I bet this area looks stunning in great weather, as we find that weather really 
 
 [![Img_1727_2](http://soultravelers3new.local/images/2008/08/11/img_1727_2.jpg "Img_1727_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1727_2.jpg)
 
-[![Img_1804_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1804_2.jpg "Img_1804_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1804_2.jpg)
+![Img_1804_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1804_2.jpg)
 
 [![Img_1838_2](http://soultravelers3new.local/images/2008/08/11/img_1838_2.jpg "Img_1838_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1838_2.jpg)

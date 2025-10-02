@@ -15,14 +15,14 @@ tags:
   - "vote-for-best-travel-blog"
 ---
 
-[![IMG_6831](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3daec76a970c.jpg "IMG_6831")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3daec76a970c.jpg)Yea! Soultravlers3 Nominated  
+![IMG_6831](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3daec76a970c.jpg)Yea! Soultravlers3 Nominated  
 for Favorite Travel Blogger!  
   
 Please vote for Soultravelers3!  
 Elliot.org is having a  
 favorite travel blogger vote
 
-<!--more--> [![Jumping for joy in Beijing in traditional Chinese clothes at Forbidden City](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338042c1970b.jpg "Jumping for joy in Beijing in traditional Chinese clothes at Forbidden City")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338042c1970b.jpg)  
+<!--more--> ![Jumping for joy in Beijing in traditional Chinese clothes at Forbidden City](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c338042c1970b.jpg)  
   
 Please vote for Soultravelers3! [Elliott.org is having a favorite travel blogger](http://www.elliott.org/blog/please-vote-for-your-favorite-travel-blogger/ "elliott.org favorite travel blogger vote") vote that ends this Friday at 5pm EST ( November 16, 2012) and each person can vote with a simple click.  
   

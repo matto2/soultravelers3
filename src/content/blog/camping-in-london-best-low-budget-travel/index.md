@@ -14,14 +14,14 @@ tags:
   - "campsite-review-london"
 ---
 
-[![IMG_0803](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303f7d061970d.jpg "IMG_0803")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303f7d061970d.jpg)Camping in London - 
+![IMG_0803](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303f7d061970d.jpg)Camping in London - 
 Best Low Budget Travel  
   
 Looking for cheap  
 accommodations in  
 expensive London for
 
-<!--more--> [![Camping in London in August](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303f7e024970d.jpg "Camping in London in August")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303f7e024970d.jpg)  
+<!--more--> ![Camping in London in August](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303f7e024970d.jpg)  
   
   
 Looking for cheap accommodations in expensive London for your family or going to the Olympics? Most people don't think about [camping in Europe](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "camping Europe") or camping in London, but it's a fantastic budget way to travel and very popular with European budget travelers. Or should I say like the Brits... travellers and holiday makers?  

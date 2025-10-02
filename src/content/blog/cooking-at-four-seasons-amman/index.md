@@ -17,13 +17,13 @@ tags:
   - "kids-cooking"
 ---
 
-[![IMG_3370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ef52183970b.jpg "IMG_3370")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ef52183970b.jpg) Cooking at Four Seasons Amman
+![IMG_3370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ef52183970b.jpg) Cooking at Four Seasons Amman
 
 Family travel is often about  
 great food, but making chocolate  
 chip cookies with an award winning
 
-<!--more--> [![cooking at Four Seasons Amman Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ef52252970b.jpg "cooking at Four Seasons Amman Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ef52252970b.jpg)  
+<!--more--> ![cooking at Four Seasons Amman Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ef52252970b.jpg)  
   
 [](http://twitter.com/search?q=%23fun "#fun")  
 [Family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel") is often about savoring fabulous food, but making chocolate chip cookies with an award winning chef and his staff in the huge deluxe pastry kitchen at the [Four Seasons Amman](http://www.fourseasons.com/amman/ "Four Seasons Amman") was an awesome opportunity that our ten year old will never forget. OMG were they good to eat too and we have the recipe forever!  

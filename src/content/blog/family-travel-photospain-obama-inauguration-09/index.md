@@ -7,7 +7,7 @@ categories:
   - "spain"
 ---
 
- [![IMG_0755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536e90e62970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536e90e62970c.jpg) Family Travel Photo-Spain  
+ ![IMG_0755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536e90e62970c.jpg) Family Travel Photo-Spain  
 January 21, 2009
 
 In a tiny 15th century village in Spain where  
@@ -16,7 +16,7 @@ by side in peace for 800 years, our 8 year
 
 <!--more-->
 
-[![IMG_0755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536dfca68970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536dfca68970b.jpg)
+![IMG_0755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833010536dfca68970b.jpg)
 
 In a tiny 15th century village in Spain where Jews, Muslims and Christians lived side by side in peace for 800 years, our 8 year old watched America's first multi-cultural, mixed-race President's Inauguration. We watched it live from the BBC on our SkyTV right in our home here as fireworks exploded outside to emphasize this historic day that the Spanish press called "¡Una Nueva Era!".  
   

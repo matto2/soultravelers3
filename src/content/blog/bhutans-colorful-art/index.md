@@ -17,13 +17,13 @@ tags:
   - "visiting-bhutan"
 ---
 
-[![IMG_7962_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d4561d970d.jpg "IMG_7962_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d4561d970d.jpg)Bhutan's Colorful Art
+![IMG_7962_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d4561d970d.jpg)Bhutan's Colorful Art
 
 One of the great joys of  
 visiting Bhutan, an exotic kingdom  
 in the midst of the Himalayas
 
-<!--more--> [![Visiting beautiful Bhutan and it's colorful culture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d456d1970d.jpg "Visiting beautiful Bhutan and it's colorful culture")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d456d1970d.jpg)  
+<!--more--> ![Visiting beautiful Bhutan and it's colorful culture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d456d1970d.jpg)  
   
   
 One of the great joys of [visiting Bhutan](http://soultravelers3new.local/2011/09/stunning-himalaya-travel-bhutan.html "visiting Bhutan"), an exotic kingdom in the midst of the Himalayas, is enjoying the culture and colorful art. This pristine and deeply Buddhist land is no ordinary place. Daily prayer is a constant part of life, traditional clothing ( a tunic called [gho](http://en.wikipedia.org/wiki/Gho "Gho") for men and kera for women ) is worn at work and school, [breathtaking scenery](breathtaking scenery surrounds you "Bhutan breathtaking scenery") surrounds you, and the unique Bhutanese architecture plus the [phallic art](http://soultravelers3new.local/2012/03/bhutan-means-penis-art-and-phallus-paintings.html "Bhutan penis art") is like no where else on earth.  

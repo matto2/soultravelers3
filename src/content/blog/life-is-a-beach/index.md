@@ -15,7 +15,7 @@ of the Manoulas restaurant, at Agios Yiannis beach where the movie,
 
 <!--more-->
 
-[![Img_4679](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4679.png "Img_4679")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4679.png)
+![Img_4679](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4679.png)
 
 The cool wet sand squished thru her fingers as she dug deeper in front of the Manoulas restaurant, at Agios Yiannis beach where the movie, “Shirley Valentine ”was filmed. It is right next to the Mykonos Grand which many say is the best hotel on the island and that this is the best beach.
 
@@ -35,26 +35,26 @@ We took a taxi back to our hotel and spent the evening relaxing after a swim in 
 
 We had spent a fortune on the hotel, so decided to take advantage of that and spend the day at the beach and in the pool. Our ferry to Santorini did not leave until evening, so we had all day to play in these lovely surroundings. Unfortunately, we left all three of our bathing suits sitting in the sun to dry, when we ate dinner and then forgot all about them when we had to rush out for our ride. Of course, I remembered our suits just before we boarded the ferry, but it was too late. We ended up buying new ones in Santorini as that was cheaper than having them sent and waiting for them to arrive.
 
-[![Img_4547](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4547.png "Img_4547")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4547.png)
+![Img_4547](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4547.png)
 
-[![Img_4566](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4566.png "Img_4566")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4566.png)
+![Img_4566](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4566.png)
 
-[![Img_4570](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4570.png "Img_4570")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4570.png)
+![Img_4570](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4570.png)
 
-[![Img_4576](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4576.png "Img_4576")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4576.png)
+![Img_4576](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4576.png)
 
-[![Img_4583](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4583.png "Img_4583")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4583.png)
+![Img_4583](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4583.png)
 
-[![Img_4601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4601.png "Img_4601")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4601.png)
+![Img_4601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4601.png)
 
-[![Img_4624](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4624.png "Img_4624")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4624.png)
+![Img_4624](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4624.png)
 
-[![Img_4629](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4629.png "Img_4629")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4629.png)
+![Img_4629](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4629.png)
 
-[![Img_4645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4645.png "Img_4645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4645.png)
+![Img_4645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4645.png)
 
-[![Img_4660](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4660.png "Img_4660")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4660.png)
+![Img_4660](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4660.png)
 
-[![Img_4666](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4666.png "Img_4666")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4666.png)
+![Img_4666](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4666.png)
 
-[![Img_4625](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/28/img_4625.png "Img_4625")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4625.png)
+![Img_4625](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/28/img_4625.png)

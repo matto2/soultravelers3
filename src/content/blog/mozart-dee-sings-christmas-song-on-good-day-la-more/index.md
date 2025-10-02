@@ -29,14 +29,14 @@ tags:
   - "xmas-holiday-music"
 ---
 
-[![CW9wTiHUsAA2nZ0](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09dd77a3970d.jpg "CW9wTiHUsAA2nZ0")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09dd77a3970d.jpg)Mozart Dee Sings Christmas  
+![CW9wTiHUsAA2nZ0](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09dd77a3970d.jpg)Mozart Dee Sings Christmas  
 Songs on Good Day LA & More!  
   
 If you want to get into that  
 holiday season mood, watch  
 Mozart Dee sing on Good Day LA 
 
-<!--more--> [![Mozart Dee Sings Christmas Song on Good Day LA & More! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c93b53a1970b.png "Mozart Dee Sings Christmas Song on Good Day LA & More! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c93b53a1970b.png)  
+<!--more--> ![Mozart Dee Sings Christmas Song on Good Day LA & More! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c93b53a1970b.png)  
 If you want to get into that [holiday season](http://soultravelers3new.local/2014/12/cut-your-own-christmas-tree-sustainable-family-fun-tradition.html "How to cut your own Christmas tree ") mood, watch [Mozart Dee sing](http://soultravelers3new.local/2017/11/mozart-dee-sings-on-born-this-way-tv-show-.html#more "Mozart Dee singer and actress") on [Good Day LA](http://www.foxla.com/good-day-la) with her prestigious National Children's Choir! She performed last week with Grammy-winning composer and conductor [Eric Whitacre](https://ericwhitacre.com) at the Walt Disney Concert Hall with the LA Master Chorale and will again this weekend.   
   
 

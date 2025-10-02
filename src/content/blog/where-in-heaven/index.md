@@ -17,7 +17,7 @@ categories:
   - "videos"
 ---
 
- [![Img_6935](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_6935.png "Img_6935")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_6935.png) Where in Heaven is Mozart?  
+ ![Img_6935](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_6935.png) Where in Heaven is Mozart?  
 April 16, 2008  
   
 This is our little "Mozart" and she is 18  

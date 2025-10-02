@@ -13,14 +13,14 @@ tags:
   - "thanksgiving-around-the-world"
 ---
 
-[![IMG_0201](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b01a0099d970d.jpg "IMG_0201")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b01a0099d970d.jpg)Giving Thanks and Thanksgiving  
+![IMG_0201](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b01a0099d970d.jpg)Giving Thanks and Thanksgiving  
 Around the World  
   
 Gratitude is one of the biggest  
 keys to a happy and successful  
 life, and one of the reasons I love
 
-<!--more--> [![A heart full of gratitude on Thanksgiving and always](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b019faba6970c.jpg "A heart full of gratitude on Thanksgiving and always")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b019faba6970c.jpg)  
+<!--more--> ![A heart full of gratitude on Thanksgiving and always](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b019faba6970c.jpg)  
   
 Gratitude is one of the biggest keys to a happy and successful life, and one of the reasons I love [Thankgiving](http://soultravelers3new.local/2009/11/thanksgiving-blessings-in-spain-.html "Thankgiving blessings") or taking time to give thanks no matter what day it is. Life is an amazing gift and we have been blessed in so many ways.  
   

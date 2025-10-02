@@ -14,13 +14,13 @@ tags:
   - "winter-escape"
 ---
 
-[![IMG_4694](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7df85e5970d.jpg "IMG_4694")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7df85e5970d.jpg)Tropical Island Paradise?  
+![IMG_4694](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7df85e5970d.jpg)Tropical Island Paradise?  
   
 Is it Bora Bora, Moorea,  
 north shore Kauai, Florida  
 Keys or some other tropical
 
-<!--more--> [![beautiful tropical paradise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d406b5130970c.jpg "beautiful tropical paradise")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d406b5130970c.jpg)  
+<!--more--> ![beautiful tropical paradise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d406b5130970c.jpg)  
   
 Is it [Bora Bora](http://soultravelers3new.local/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "bora bora travel"), [Moorea](http://soultravelers3new.local/2011/09/moorea-cheap-and-amazing.html "Moorea travel cheap"), [Kauai](http://soultravelers3new.local/2011/01/family-travel-hawaii-learning-to-surf-in-kauai.html "Kauai travel surfing"), [Bahia Honda](http://soultravelers3new.local/2013/01/best-budget-tropical-escape-bahia-honda-by-key-west.html "Bahia Honda") in the [Florida Keys](http://soultravelers3new.local/2012/02/tropical-paradise-at-budget-prices.html "Florida keys") or some other quaint, rural tropical Paradise we have yet to discover? We are in [Penang](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "Penang rental apartment") to help our child [immerse in her Mandarin](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "immerse in Mandarin in Asia") in a local [Chinese school](http://soultravelers3new.local/2012/11/chinese-school-fun.html "Chinese school")l, as we [world school](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school ") through [travel around the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel around the world").  
   

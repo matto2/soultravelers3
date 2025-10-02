@@ -19,14 +19,14 @@ tags:
   - "retiring-early"
 ---
 
-[![IMG_7655](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ed14c75970b.jpg "IMG_7655")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ed14c75970b.jpg)Secrets for a  
+![IMG_7655](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ed14c75970b.jpg)Secrets for a  
 Permanent Vacation  
   
 Is it possible to take a permanent  
 vacation? YES! We've been on an  
 endless vacation for 8 years and
 
-<!--more--> [![Permanent vacation means a view like this out your window!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ed14ca9970b.jpg "Permanent vacation means a view like this out your window!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ed14ca9970b.jpg)  
+<!--more--> ![Permanent vacation means a view like this out your window!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ed14ca9970b.jpg)  
   
 Is it possible to take a [permanent vacation](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "amazing world tour")? YES! We've been on an [endless vacation](http://soultravelers3new.local/2012/10/endless-summer-joy-of-tropical-winter-travel.html "endless summer, endless vacation") for 8 years and loving it still. We sold our [California dream home](http://soultravelers3new.local/2006/08/home-and-hous-1.html "california dream  home") in 2005 and decided to take the risk of [retiring early](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "retire and travel the world") to [travel the world](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family world trip") and [educate](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "education and travel") our ( now [fluently trilingual](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "growing up bilingual or trilingual")) child with [world schooling](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school or unschool").  
   
@@ -36,7 +36,7 @@ For us, it's been the best decision we ever made and I do think it is a doable g
   
 We [travel the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel the world RTW as a family") for less than we could live at home..on just $23/day and have seen 45 countries on 5 continents so far. We think we're giving our child the [best possible education](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "best possible education...homeschool and travel") and love our time together.  
   
-[![Permanent vacation around the world as a family means raising a global kid who is multilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901f04343b970b.jpg "Permanent vacation around the world as a family means raising a global kid who is multilingual")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901f04343b970b.jpg)  
+![Permanent vacation around the world as a family means raising a global kid who is multilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901f04343b970b.jpg)  
   
   
 **BEST TIPS FOR LONG TERM TRAVEL OR PERMANENT VACATION**  
@@ -69,7 +69,7 @@ LONG TERM FAMILY TRAVEL - MOST IMPORTANT ITEM](http://soultravelers3new.local/20
   
 “Normal is getting dressed in clothes that you buy for work and driving through traffic in a car that you are still paying for - in order to get to the job you need to pay for the clothes and the car, and the house you leave vacant all day so you can afford to live in it.” Goodman  
   
-[![Permanent vacation means life is a beach...like this private one on Bora Bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104fa1a1c970c.jpg "Permanent vacation means life is a beach...like this private one on Bora Bora")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104fa1a1c970c.jpg)  
+![Permanent vacation means life is a beach...like this private one on Bora Bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019104fa1a1c970c.jpg)  
   
   
 **WANT TO LEAVE THE RAT RACE?**  
@@ -87,7 +87,7 @@ In case others want to know, I don't want this lost in the [comments](http://sou
 Don't get disheartened ...I know planning a [long term trip](http://soultravelers3new.local/2010/02/15-best-tips-for-family-friendly-travel-airplanes-airports-vacation-roadtrips-long-term-family-trave.html "BEST TIPS FAMILY FRIENDLY TRAVEL") can seem daunting and totally overwhelming...but there are now a TON of people doing it...even many families...so YOU can too. If there is a will there is always a way!  
 
   
-[![Endless vacation means enjoying the spectacular beauty of this world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc334fd970d.jpg "Endless vacation means enjoying the spectacular beauty of this world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc334fd970d.jpg)
+![Endless vacation means enjoying the spectacular beauty of this world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc334fd970d.jpg)
 
 Alas, there are as many ways of doing it as there are people doing it..so each must find their own route.
 
@@ -107,7 +107,7 @@ Some even get rich ( like [Tim Ferris](http://soultravelers3new.local/2010/03/th
 
 BUT most don't get rich...they do it for the freedom.  
   
-[![Permacation in Tahiti...on  a cheap budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901f043adc970b.jpg "Permacation in Tahiti...on  a cheap budget")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901f043adc970b.jpg)
+![Permacation in Tahiti...on  a cheap budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901f043adc970b.jpg)
 
 **SLOW TRAVEL TIPS**  
   
@@ -123,7 +123,7 @@ Much depends on your comfort levels and goals. Like most people who retire early
   
 "You don't have to be rich to live a rich life." Tim Ferris ( about Soultravelers3)  
   
-[![Permanent family vacation means endless family fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc33837970d.jpg "Permanent family vacation means endless family fun")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc33837970d.jpg)  
+![Permanent family vacation means endless family fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc33837970d.jpg)  
   
 **TRAVEL WILL NOT TAKE PROBLEMS AWAY**
 
@@ -137,7 +137,7 @@ So like most things in life...the fantasy of a [travel lifestyle](http://soultra
 
 For us it is a great choice..but obviously not every body loves this lifestyle..for this long.  
   
-[![Life is a beach when you are on a permanent vacation...kiddo enjoying Barcelona pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc33b43970d.jpg "Life is a beach when you are on a permanent vacation...kiddo enjoying Barcelona pool")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc33b43970d.jpg)  
+![Life is a beach when you are on a permanent vacation...kiddo enjoying Barcelona pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc33b43970d.jpg)  
   
 **CHOOSING A PERMANENT VACATION IS EASY ONCE YOU COMMIT**
 
@@ -149,7 +149,7 @@ If it doesn't work out, you can go to plan B,C,D etc or go back home.
 
 If we had not liked our choice...that is what we would have done...gone back home and made up a new plan...but obviously we like this better.  
   
-[![kids and families can travel the world together and enjoy a permanent vacation lifestyle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc349d1970d.jpg "kids and families can travel the world together and enjoy a permanent vacation lifestyle")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc349d1970d.jpg)  
+![kids and families can travel the world together and enjoy a permanent vacation lifestyle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192acc349d1970d.jpg)  
   
 
 **WANT A PRIVATE CONSULT ON HOW TO TRAVEL THE WORLD ON A LOW BUDGET?**

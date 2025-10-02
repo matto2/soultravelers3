@@ -17,13 +17,13 @@ tags:
   - "worlds-happiest-place"
 ---
 
- [![IMG_0120](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b5a77c970c.jpg "IMG_0120")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b5a77c970c.jpg) Bhutan, Happiest Place on Earth?
+ ![IMG_0120](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b5a77c970c.jpg) Bhutan, Happiest Place on Earth?
 
 In my post _Tiger's Nest in  
 Paro, Bhutan_,  a reader  
 asked, "So is Bhutan the
 
-<!--more--> [![Is Bhutan the happiest place on earth? Our driver and friend in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b5a7f1970c.jpg "Is Bhutan the happiest place on earth? Our driver and friend in Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b5a7f1970c.jpg)  
+<!--more--> ![Is Bhutan the happiest place on earth? Our driver and friend in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b5a7f1970c.jpg)  
   
   
 In my post [_Tiger's Nest in Paro, Bhutan_](http://soultravelers3new.local/2011/07/tigers-nest-in-paro-bhutan.html#more "Tiger's Nest in Paro, Bhutan"),  a reader asked, "So is [Bhutan the happiest place](http://soultravelers3new.local/2011/06/family-travel-bhutan-nomads.html "family travel bhutan") on earth? In the _Geography of Bliss_ it leaves one eager to find out!"  
@@ -34,7 +34,7 @@ This photo was taken while my husband and 10 year old child climbed to the top o
   
 I snapped this top photo spontaneously and candidly as our driver came upon  a friend on our trek and they stopped to chat. I think you can see how the happiness shines out from them in this simple every day moment.  
   
-[![Our Bhutanese guide and driver at an ancient Buddhist temple](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b60463970c.jpg "Our Bhutanese guide and driver at an ancient Buddhist temple")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b60463970c.jpg)  
+![Our Bhutanese guide and driver at an ancient Buddhist temple](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433b60463970c.jpg)  
   
   
 **Our driver and guide taught us much about [Bhutan, Buddhism](http://soultravelers3new.local/2011/05/buddhist-bhutan-bliss.html "Bhutan Buddhism") and happiness.**  

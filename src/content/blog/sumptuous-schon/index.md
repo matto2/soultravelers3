@@ -13,7 +13,7 @@ In 1762, six-year-old Wolfgang Amadeus Mozart played his very first concert befo
 
 <!--more-->
 
-[![Img_4258](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4258.png "Img_4258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4258.png)
+![Img_4258](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4258.png)
 
 In 1762, six-year-old Wolfgang Amadeus Mozart played his very first concert before Empress Maria Teresa  in the Hapsburg’s Schonbrunn palace, Vienna’s homage to Versailles. Thus, a few weeks after her seventh birthday, our little Mozart did not want to miss the opportunity of playing at this “Emperor’s yellow” beloved summer palace too  and managed to gather a small audience and photographers.
 
@@ -25,26 +25,26 @@ We wandered and played all day and enjoyed the rose garden, still managing to bl
 
 Until I catch up, I am going to do my best to be brief, so that I can get this blog back up to date and in real time. We were in Vienna around October 17th, but due to delays here, I am still behind. Our Christmas letter will interrupt the flow, but I will finish Italy as soon as I can.
 
-[![Img_4223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4223.png "Img_4223")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4223.png)
+![Img_4223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4223.png)
 
-[![Img_4228](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4228.png "Img_4228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4228.png)
+![Img_4228](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4228.png)
 
-[![Img_4240](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4240.png "Img_4240")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4240.png)
+![Img_4240](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4240.png)
 
-[![Img_4250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4250.png "Img_4250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4250.png)
+![Img_4250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4250.png)
 
-[![Img_4249](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4249.png "Img_4249")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4249.png)
+![Img_4249](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4249.png)
 
-[![Img_4235](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4235.png "Img_4235")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4235.png)
+![Img_4235](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4235.png)
 
-[![Img_4253](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4253.png "Img_4253")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4253.png)
+![Img_4253](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4253.png)
 
-[![Img_4277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4277.png "Img_4277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4277.png)
+![Img_4277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4277.png)
 
-[![Img_4294](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4294.png "Img_4294")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4294.png)
+![Img_4294](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4294.png)
 
-[![Img_4317](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4317.png "Img_4317")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4317.png)
+![Img_4317](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4317.png)
 
-[![Img_4310](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4310.png "Img_4310")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4310.png)
+![Img_4310](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4310.png)
 
-[![Img_4336](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/23/img_4336.png "Img_4336")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4336.png)
+![Img_4336](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/23/img_4336.png)

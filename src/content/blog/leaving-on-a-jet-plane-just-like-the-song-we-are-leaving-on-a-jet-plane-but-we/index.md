@@ -13,13 +13,13 @@ tags:
   - "upcoming-travel"
 ---
 
-[![IMG_4024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153904f0a5d970b.jpg "IMG_4024")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153904f0a5d970b.jpg)Leaving On a Jet Plane
+![IMG_4024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153904f0a5d970b.jpg)Leaving On a Jet Plane
 
 Just like the song,  
 we are leaving on  
 a jet plane, but we
 
-<!--more--> [![leaving on a jet plane, family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a424f53970d.jpg "leaving on a jet plane, family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a424f53970d.jpg)  
+<!--more--> ![leaving on a jet plane, family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a424f53970d.jpg)  
   
 
 Just like the song, we are [leaving on a jet plane](http://en.wikipedia.org/wiki/Leaving_on_a_Jet_Plane "leaving on a jet plane"), but we know when we will be back. We're scheduled to fly out of Barcelona on Tuesday and we head to exotic and beautiful [Transylvania](http://en.wikipedia.org/wiki/Transylvania "transylvania") to find [Dracula's castle](http://en.wikipedia.org/wiki/Bran_Castle "Dracula's castle") and explore the region with friends we met online.  

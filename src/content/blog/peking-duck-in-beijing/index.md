@@ -19,13 +19,13 @@ tags:
   - "peking-duck-photo"
 ---
 
-[![IMG_7040](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee54f7b99970d.jpg "IMG_7040")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee54f7b99970d.jpg)Peking Duck in Beijing\- 北京烤鸭  
+![IMG_7040](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee54f7b99970d.jpg)Peking Duck in Beijing\- 北京烤鸭  
   
 Don't miss the famous  
 Peking duck when you  
 come to Beijing as it's
 
-<!--more--> [![Yum! Delicious peking duck in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33abf420970b.jpg "Yum! Delicious peking duck in Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33abf420970b.jpg)  
+<!--more--> ![Yum! Delicious peking duck in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33abf420970b.jpg)  
   
 Don't miss the [famous Peking duck](http://en.wikipedia.org/wiki/Peking_Duck "Peking duck") when you [come to Beijing](http://soultravelers3new.local/2012/11/yum-loving-the-food-in-beijing.html "visiting Beijing and food") as it's a 600 year old tradition started in the imperial era and one of [China's](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "china travel") national foods that has spread [around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world travel").  
   

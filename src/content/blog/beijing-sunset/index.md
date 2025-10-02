@@ -18,13 +18,13 @@ tags:
   - "trip-to-china"
 ---
 
-[![IMG_8378](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9782cf0970d.jpg "IMG_8378")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9782cf0970d.jpg)Beautiful Beijing Sunset and Tips  
+![IMG_8378](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9782cf0970d.jpg)Beautiful Beijing Sunset and Tips  
   
 We were blessed with mostly  
 clear skies while in China, which  
 made this cityscape Beijing sunset
 
-<!--more--> [![beautiful Beijing sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d42044b68970c.jpg "beautiful Beijing sunset")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d42044b68970c.jpg)  
+<!--more--> ![beautiful Beijing sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d42044b68970c.jpg)  
   
 We were blessed with mostly clear skies [while in China](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html "china family vacation"), which made this cityscape Beijing sunset beautiful despite being in the relentless traffic. Perhaps not as beautiful as the [Summer Palace sunset](http://soultravelers3new.local/2012/11/-summer-palace-sunset-in-beijing-china.html "SUMMER PALACE SUNSET"), nor as [spectacular a skyline as Shanghai](http://soultravelers3new.local/2012/12/shanghai-skyline-worlds-best-.html "shanghai world's best skyline"), but very lovely none the less and it made us smile.  
   

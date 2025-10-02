@@ -14,13 +14,13 @@ tags:
   - "what-to-see-in-bhutan"
 ---
 
-[![IMG_8542](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a50f4bc970d.jpg "IMG_8542")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a50f4bc970d.jpg) Bhutan Food Markets
+![IMG_8542](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a50f4bc970d.jpg) Bhutan Food Markets
 
 We found the food  
 markets fascinating  
 in Bhutan. This photo
 
-<!--more--> [![bhutan food market](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434311e33970c.jpg "bhutan food market")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434311e33970c.jpg)  
+<!--more--> ![bhutan food market](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434311e33970c.jpg)  
   
   
 We found the food markets fascinating in [Bhutan](http://en.wikipedia.org/wiki/Bhutan "Bhutan"). This photo is of a small one in the central part of the country, but we also loved the huge market in Thimpu and every small one we explored. There were many things we had never seen before and I will write a detailed report later.  

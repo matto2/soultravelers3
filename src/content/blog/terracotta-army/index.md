@@ -18,13 +18,13 @@ tags:
   - "xian-terracotta-warriors"
 ---
 
-[![IMG_3460](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3501e685970b.jpg "IMG_3460")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3501e685970b.jpg)Terracotta Army
+![IMG_3460](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3501e685970b.jpg)Terracotta Army
 
 The Terracotta Warriors and  
 horses are a must-see on a trip  
 to China as well as 3000 year old
 
-<!--more--> [![terracotta Army highlights of trip to China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3501e71b970b.jpg "terracotta Army highlights of trip to China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3501e71b970b.jpg)  
+<!--more--> ![terracotta Army highlights of trip to China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3501e71b970b.jpg)  
   
 The [Terracotta warriors](http://en.wikipedia.org/wiki/Terracotta_Army "terra cotta amry") and horses are a must-see on a [trip to China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "trip to China") as well as 3000 year old Xi'an which was the capitol of China from the first Emperor who united this ancient country and then many important dynasties.  
   

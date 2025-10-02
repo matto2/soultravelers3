@@ -36,28 +36,28 @@ tags:
   - "world-school"
 ---
 
-[![Chinese New year celebrating Lunar New Year ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278806908d5200d.jpg "Chinese New year celebrating Lunar New Year ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278806908d5200d.jpg)Happy Lunar New Year 2022,  
+![Chinese New year celebrating Lunar New Year ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278806908d5200d.jpg)Happy Lunar New Year 2022,  
 Year of the Tiger Chinese New Year!  
   
 We have been blessed to celebrate  
 Chinese New Year in Asia, USA and  
 many places around the world so
 
-<!--more--> [![Chinese New year celebrating Lunar New Year ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a11c200b.jpg "Chinese New year celebrating Lunar New Year ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a11c200b.jpg)[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278806bb849200d-150x150-1.jpg)
+<!--more--> ![Chinese New year celebrating Lunar New Year ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a11c200b.jpg)[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278806bb849200d-150x150-1.jpg)
 
 We have been blessed to celebrate [Chinese New Year in Asia](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html), USA and many places around the world so it has special meaning to us because we raised our daughter [Heavenly Reyna](https://www.heavenlyreyna.com) as a [global citizen](https://frugaltraveler.blogs.nytimes.com/2009/11/11/qa-with-jeanne-dee-the-nomadic-family-traveler/?mtrref=undefined&gwh=6B8973A9992D2EE29F7408B5D0C75922&gwt=pay&assetType=PAYWALL "NYT interviews soultravelers 3 global nomad pioneers"), [digital nomad](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) and trilingual, thus she is [fluent in Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html) so we have all immersed in the culture! As we prepare to set off this spring for longterm [van life travel in Europe](http://soultravelers3new.local/2022/01/americans-van-life-in-europe-2022.html#more), we welcome these memories that invigorate us for a new year and new decade of [world travel](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html)!   
   
-[![American blond kid learning Mandarin in Asia ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f96c238200c.jpg "American blond kid learning Mandarin in Asia ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f96c238200c.jpg)  
+![American blond kid learning Mandarin in Asia ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f96c238200c.jpg)  
   
 We really loved our years in Asia, [China](http://soultravelers3new.local/china/) and Penang immersing deeply into the culture and really got to see [spectacular Lunar New Year celebrations](https://www.youtube.com/watch?v=fwbU_OGfSQg)! We even celebrated Chinese New Year via [3 Generations travel](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html) when "grandma" at 83 traveled from California to live with us for 6 weeks in Asia.   
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f9a8c46200c-300x203-1.jpg)[![Americans celebrating chinese New Year in Asia 3 generation travel ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a22b200b.jpg "Americans celebrating chinese New Year in Asia 3 generation travel ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a22b200b.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f9a8c46200c-300x203-1.jpg)![Americans celebrating chinese New Year in Asia 3 generation travel ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a22b200b.jpg)  
 And much to our surprise, both were interviewed for Chinese Television stations while we were celebrating and they were delighted and surprised at Heavenly's  fluent Mandarin!   
   
-[![Heavenly Reyna interviewed in Mandarin for Chinese TV shows for Lunar New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a24f200b.jpg "Heavenly Reyna interviewed in Mandarin for Chinese TV shows for Lunar New Year")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a24f200b.jpg)  
+![Heavenly Reyna interviewed in Mandarin for Chinese TV shows for Lunar New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a24f200b.jpg)  
 At 13 she sang in Mandarin in Dallas Chinatown and we started going to Lunar New Year celebrations in  Santa Cruz area in her early childhood ( as she started learning Mandarin as baby. even in the womb).   
   
-[![Heavenly Reyna at 13 singing in Mandarin in Dallas China Town](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f96c358200c.png "Heavenly Reyna at 13 singing in Mandarin in Dallas China Town")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f96c358200c.png)  
+![Heavenly Reyna at 13 singing in Mandarin in Dallas China Town](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302942f96c358200c.png)  
 And of course we have loved visiting [Chinatown in Los Angeles](http://soultravelers3new.local/2019/02/exploring-china-town-los-angeles-chinese-new-year-.html) in her teenage years! Heavenly just released her "winter wishes" trilingual holiday EP in November honoring the many cultures that she grew up in around the world. I love hearing her sing in Mandarin and Spanish as well as English! She has inspired me to start learning Spanish!  
   
 
@@ -65,7 +65,7 @@ And of course we have loved visiting [Chinatown in Los Angeles](http://soultrave
 
   
   
-[![Los Angeles Chinatown for Chinese new year ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a367200b.jpg "Los Angeles Chinatown for Chinese new year ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a367200b.jpg)  
+![Los Angeles Chinatown for Chinese new year ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330282e141a367200b.jpg)  
   
 We are grateful that we all got to experience this fun way to celebrate the new year and knowing more about Chinese culture through these places and having a child who speaks the language.  
   

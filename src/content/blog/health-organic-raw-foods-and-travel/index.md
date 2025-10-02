@@ -20,7 +20,7 @@ tags:
   - "traditional-foods"
 ---
 
-[![IMG_1839](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302a97aab970d.jpg "IMG_1839")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302a97aab970d.jpg)Health, Organic Raw Foods and Travel  
+![IMG_1839](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302a97aab970d.jpg)Health, Organic Raw Foods and Travel  
   
 Can you stay healthy  
 and fit while traveling?  
@@ -28,7 +28,7 @@ What are our travel health
 
 <!--more-->  
   
-[![healthy organic raw food and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167639df79e970b.jpg "healthy organic raw food and travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167639df79e970b.jpg)
+![healthy organic raw food and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167639df79e970b.jpg)
 
  Can you stay healthy and fit while traveling? What are our [travel health secrets](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets")? How do we [eat healthy and cheaply](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "eat healthy and cheap")? Does organic and raw food make a difference? Is being a [vegan healthy for everyone?](http://rawfoodsos.com/2011/09/22/forks-over-knives-is-the-science-legit-a-review-and-critique/#more-1487 "vegan not healthy for all") Is the [China Study fact or fallacy](http://rawfoodsos.com/2010/07/07/the-china-study-fact-or-fallac/ "china study fact or fallacy") and should one look deeper? Can [Vegetarian diets be harmful](http://www.bulletproofexec.com/steve-jobs-dr-dean-ornish-and-vegetarian-cancer/ "vegetarian diets harmful ") or [dangerous](http://www.mercola.com/Article/diet/former_vegan.htm "vegan diet dangerous")?  Today, eating healthy can mean different things to different people and there is a ton of conflicting ideas and ways to eat.  
   
@@ -36,7 +36,7 @@ We have always been into healthy eating. We are from [Santa Cruz, California](ht
   
 Over the years I have done various healthy diets from raw to paleo to vegetarian from  Dr Ornish's high carbs  to Dr. Atkins high protein, so  find food information massively contradicting and ever changing. People tend to often be VERY attached to the way they eat being THE right way, but I think much depends on the individual and no one-thing works for all, so an open mind is needed,  deep research and even using yourself as a guinea pig. Thus, I can just tell you what has worked and is working for me as it is an on going project. Your mileage may vary and I'd love to hear about your experiences.  
   
-[![Smoothie with fresh coconut milk, kefir, raw eggs and banana](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e983e6f4970c.jpg "Smoothie with fresh coconut milk, kefir, raw eggs and banana")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e983e6f4970c.jpg)  
+![Smoothie with fresh coconut milk, kefir, raw eggs and banana](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e983e6f4970c.jpg)  
   
   
 **EATING AND FARMING ORGANIC**  
@@ -45,7 +45,7 @@ We did organic gardening in Santa Cruz all year round and always ate healthy, or
   
 I think my physiological problems with weight and my sugar sensitivity has actually made me much more interested in learning about food. I've lost 100 lbs. twice in my life and kept it off for many years and now I am planning to do that one more time for good. For me that means NOT eating the Standard American Diet ( SAD) and for many years, I see most things in the average American grocery store ( same around most of the world) as poison, since most of it is processed and filled with pesticides and GMO's.  
   
-[![raw fruits and vegetables on our table](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cd7f7970d.jpg "raw fruits and vegetables on our table")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cd7f7970d.jpg)  
+![raw fruits and vegetables on our table](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cd7f7970d.jpg)  
   
   
   
@@ -57,7 +57,7 @@ Alas, the stress and  post-traumatic stress disorder of having a baby late in l
   
 I only gained about 25 lbs during my pregnancy, but dealing with all the stress and doctors after the birth and first year of life, is when my weight problem began again. I was the opposite of most people, I didn't gain baby weight during pregnancy, but afterwards. Some doctors think that extreme trauma had impact on my current health issues as well as high trauma from my early teen years.  
   
-[![raw organic food in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cdd24970d.jpg "raw organic food in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cdd24970d.jpg)  
+![raw organic food in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cdd24970d.jpg)  
   
   
   
@@ -73,7 +73,7 @@ elers3.com/2007/03/doctors-and-den.html "dentist in spain") gave me another anti
   
 "if people let the government decide what foods they eat and what medicines they take, their bodies will soon be in as sorry a state as are the souls of those who live under tyranny." Thomas Jefferson  
   
-  [![tropical fruit delights](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676482b3b8970b.jpg "tropical fruit delights")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676482b3b8970b.jpg)  
+  ![tropical fruit delights](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676482b3b8970b.jpg)  
   
   
   
@@ -87,7 +87,7 @@ I was sicker than some friends who had cancer, but no one seemed to know a cure.
   
 Most of the medicine, herbs  and  supplements that the MD's and the natural doctors ( homeopathic, acupuncturist, chiropractors, Cranial Sacral therapists etc) gave me made me feel worse. More than 60 million Americans and 20 million Canadians suffer from digestive disorders, so I am not alone in my search for a cure. It is the most common complaint for doctors yet little they know about it or can do.  
   
-[![IMG_1857](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e9830fdc970c.jpg "IMG_1857")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e9830fdc970c.jpg)  
+![IMG_1857](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e9830fdc970c.jpg)  
   
   
 **BEING RESPONSIBLE FOR YOUR OWN HEALTH**  
@@ -100,7 +100,7 @@ I ate primarily a smoothie that consisted of lots of raw butter, raw unheated ho
   
 "Either you repeat the same conventional doctrines everybody is saying, or else you say something true, and it will sound like it's from Neptune." Noam Chomsky  
   
-[![sprouted bread and home made organic fudge pops](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038ddd34970d.jpg "sprouted bread and home made organic fudge pops")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038ddd34970d.jpg)  
+![sprouted bread and home made organic fudge pops](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038ddd34970d.jpg)  
   
   
   
@@ -113,7 +113,7 @@ I had tried the raw green juices and raw veggies before, but they didn't do much
   
 It sounds weird, but the more I ate the better I felt and the more I researched the more this started to make sense. Nutrition gurus Mercola, Trudeau, Rubin and more ALL rave about the benefits of [raw milk](http://www.realmilk.com/healthbenefits.html "raw milk benefits") and dairy and the negatives of pasteurized dairy. I went to very pure, organic raw food and was amazed that I could feel a difference.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cdd24970d-150x150-1.jpg)[![yummy papaya](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676482ab09970b.jpg "yummy papaya")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676482ab09970b-300x225-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038cdd24970d-150x150-1.jpg)![yummy papaya](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676482ab09970b-300x225-1.jpg)  
   
   
   
@@ -165,7 +165,7 @@ We've found three excellent organic food stores here and a great organic restaur
   
   
   
-Eating well also goes hand in hand with our sustainable living philosophy and supports the plan et as well as us. DO take time to read this brilliant physicist from India who tells the truth about the poison in our food, the biggest corporate take over of the food chain that harms all and what we can do to [Occupy our Food Supply.](http://understory.ran.org/2012/02/27/create-food-democracy-occupy-our-food-supply/ "Occupy our food supply")[![raw organic free range eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764830c12970b.jpg "raw organic free range eggs")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764830c12970b.jpg)  
+Eating well also goes hand in hand with our sustainable living philosophy and supports the plan et as well as us. DO take time to read this brilliant physicist from India who tells the truth about the poison in our food, the biggest corporate take over of the food chain that harms all and what we can do to [Occupy our Food Supply.](http://understory.ran.org/2012/02/27/create-food-democracy-occupy-our-food-supply/ "Occupy our food supply")![raw organic free range eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764830c12970b.jpg)  
   
   
 On my good days, I'd say I am about 95% healed and on my worst days, I'd still say about 90% healed and I am so grateful to feel human again. I have enough energy to do a good workout every day.  But,  this has been such a long, hard struggle for health and vitality, that I am determined to make this year my healthiest ever and continue to find ways to make myself and my family as healthy as possible. We're looking forward to making a nice organic garden on our terrace soon.  

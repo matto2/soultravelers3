@@ -13,7 +13,7 @@ tags:
   - "winter-vacation-florida"
 ---
 
-Florida Family Vacation Fun! [![IMG_9437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539357a096970b.jpg "IMG_9437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539357a096970b.jpg)
+Florida Family Vacation Fun! ![IMG_9437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539357a096970b.jpg)
 
 When you are tired of  
 the rain, cold and snow  
@@ -21,7 +21,7 @@ on the East Coast or Midwest
 
 <!--more-->
 
-[![IMG_9437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154372b15c9970c.jpg "IMG_9437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154372b15c9970c.jpg)  
+![IMG_9437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154372b15c9970c.jpg)  
   
 
 When you are tired of the rain, cold and snow on the East Coast or Midwest, there is nothing quite like hitting the [sunshine and beautiful beaches of Florida](http://soultravelers3new.local/2011/06/road-trip-usa.html "sunshine and beautiful beaches")! Some of my happiest childhood memories were about leaving the snow behind in Michigan on a wintery day and waking up to bright sun and warm breezes on my face.  

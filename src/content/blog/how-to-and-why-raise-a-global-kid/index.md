@@ -24,7 +24,7 @@ tags:
   - "why-raise-a-global-child"
 ---
 
- [![6a00e5502a950788330147e2a276b8970b-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433f07c63970c.jpg "6a00e5502a950788330147e2a276b8970b-pi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433f07c63970c.jpg) How To And WHY Raise a Global Kid
+ ![6a00e5502a950788330147e2a276b8970b-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433f07c63970c.jpg) How To And WHY Raise a Global Kid
 
 Is Far East immersion to  
 raise an American kid  
@@ -32,7 +32,7 @@ with Chinese Asian education
 
 <!--more-->
 
-  [![how to raise a global kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a106554970d.jpg "how to raise a global kid")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a106554970d.jpg)  
+  ![how to raise a global kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a106554970d.jpg)  
   
   
   
@@ -44,7 +44,7 @@ Parents and educators seem most interested in these topics today and perhaps the
   
 "if we look towards the nest generation, it's almost unavoidable to think anything else that that China will be a very important global actor." Bjorklund  
   
-  [![American girl connecting with kids in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153901d2b2b970b.jpg "American girl connecting with kids in Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153901d2b2b970b.jpg)  
+  ![American girl connecting with kids in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153901d2b2b970b.jpg)  
   
   
 "If a person who speaks three languages is a trilingual, and one who speaks four languages is a quadrilingual, what is someone called who speaks no foreign languages at all? Answer: an American ~ Kristof  
@@ -62,7 +62,7 @@ Interestingly we were also just in the [Chicago Tribune in their Globe-trotting 
   
 Plus we were featured in [Have Family Will Travel](http://family.fourseasons.com/2011/07/violin-around-the-world/ "have family will travel") with our first Youtube video [_Where in Heaven is Mozart_](http://www.youtube.com/watch?v=wn9rDTZj-m4 "where in Heaven is Mozart"), which became a viral travel video ( we still have to get up part 2 and 3 of that video which are almost ready as we've seen so many more countries since that was made). Also by chance dear Benny happened to mention us in comments at [Fluent in 3 months.](http://www.fluentin3months.com/life-lessons/#more-5362 "fluent in 3 months") Discussing [global kids](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-/comments/page/2/ "global kids") seems to be in the air!  
   
-[![Global kid traveling in  Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a048099970d.jpg "Global kid traveling in  Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a048099970d.jpg)  
+![Global kid traveling in  Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a048099970d.jpg)  
   
   
 In 2004 a report in the UK showed that having [a second language](http://en.wikipedia.org/wiki/Foreign_language "a second language") could increase an average worker's salary by $226,700 over a lifetime. Studies show that a bilingual or multilingual person can make a greater salary than a computer programmer or engineer as they can use their abilities with languages for a wide range of success. Studies in both the U.S. and Canada show that bilinguals make more money.  
@@ -72,7 +72,7 @@ In 2004 a report in the UK showed that having [a second language](http://en.wiki
   
   
   
-[![extended travel with grandma in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a106ef4970d.jpg "extended travel with grandma in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a106ef4970d.jpg)  
+![extended travel with grandma in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a106ef4970d.jpg)  
   
   
 There  are MANY [advantages to learning a language](http://www.nytimes.com/2011/05/31/science/31conversation.html "ad
@@ -89,7 +89,7 @@ I think every preschool and school in the US [should be Spanish immersion](http:
 
  None of us can learn every language, and as fun and rewarding as language learning is, it's also many years of hard work and needs to be kept up always. Kids can lose languages as easily as they pick them up, so it is a long term commitment.  What is the most important language to learn today? Experts seem divided about [languages importance depending on economics](http://unicode.org/notes/tn13/ "language importance") and depending on [language by populatio](http://web.archive.org/web/19990429232804/www.sil.org/ethnologue/top100.html "languages of the world based on population")n, so  I suppose [it will vary](http://en.wikipedia.org/wiki/List_of_the_most_spoken_native_languages "language list will vary") according to perspective. Nobody knows the future, but language learning benefits undoubtedly.  
   
-  [![American girl feeling at home in Asia thanks to Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a107d7d970d.jpg "American girl feeling at home in Asia thanks to Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a107d7d970d.jpg)  
+  ![American girl feeling at home in Asia thanks to Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a107d7d970d.jpg)  
   
   
 I find it most logical to spend the effort on the most dominant languages in different language families. If one is fluent in Spanish it is very easy to later add French, Italian, Portuguese, Latin etc. If one is fluent in Mandarin it is easy to add Japanese and other tonal languages. I think my grandchildren will need Hindi just based on population trends.  
@@ -108,7 +108,7 @@ Because language learning is hard work, strategic choosing makes sense to me. I'
   
 Just as I strategically picked violin and piano for our daughter to learn music from an early age,  with a superb  foundation in music and languages, she can later tweak it to what ever she needs. Yes, she picked violin and piano, but I also discouraged lessons in other instruments or languages because of the time commitment. My view is she can easily add new languages or new instruments later if she wants, but I will guide her and sacrifice to give her what I think is most important for her foundation.  
   
-[![global kids love the world and know it well](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390112c68970b.jpg "global kids love the world and know it well")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390112c68970b.jpg)  
+![global kids love the world and know it well](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390112c68970b.jpg)  
   
   
   

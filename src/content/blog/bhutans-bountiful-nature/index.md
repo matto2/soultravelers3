@@ -19,13 +19,13 @@ tags:
   - "vacation-in-bhutan"
 ---
 
-[![IMG_8041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c91f38970b.jpg "IMG_8041")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c91f38970b.jpg)Bhutan's Bountiful Nature- Trekking Treats
+![IMG_8041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c91f38970b.jpg)Bhutan's Bountiful Nature- Trekking Treats
 
 A vacation in Bhutan is  
 a bit like going to another  
 planet and another century
 
-<!--more--> [![enjoying the temples and boutiful nature in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d4528a970d.jpg "enjoying the temples and boutiful nature in Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d4528a970d.jpg)  
+<!--more--> ![enjoying the temples and boutiful nature in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d4528a970d.jpg)  
   
 A [vacation in Bhutan](http://soultravelers3new.local/2011/05/family-vacation-in-bhutan.html "vacation in Bhutan") is a bit like going to another planet and another century in many ways. It was one of the most exciting countries that we have visited on our 7 year [amazing family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "amazing family world tour"). We all loved the bountiful nature, [pristine forests](http://soultravelers3new.local/2012/05/bhutans-breathtaking-green-organic-terraced-hills.html "pristine forests") and the ancient Buddhist temples like shown in this photo. Who knew we'd also get a trekking treat?  
   

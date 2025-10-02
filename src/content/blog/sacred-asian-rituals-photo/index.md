@@ -19,14 +19,14 @@ tags:
   - "world-cultures"
 ---
 
-[![IMG_5266](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315dee9f970b.jpg "IMG_5266")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315dee9f970b.jpg) Sacred Asian Rituals  
+![IMG_5266](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315dee9f970b.jpg) Sacred Asian Rituals  
 Photo & World PeaceI don't understand the sacred  
 rituals I see in Asia or around  
 the world, but just the fact that
 
 <!--more-->  
   
-[![sacred rituals and world peace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315defe7970b.jpg "sacred rituals and world peace")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315defe7970b.jpg)
+![sacred rituals and world peace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315defe7970b.jpg)
 
  I don't understand the sacred rituals I see [in Asia](http://soultravelers3new.local/2012/06/chines.html "tea ceremony asia") or [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world"), but just the fact that we humans find ways and the time to pray, show respect, honor, love, bless, sanctify and make or see something as holy,  moves something in my heart.  
   

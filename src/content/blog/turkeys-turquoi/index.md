@@ -13,7 +13,7 @@ Fethiye stands on the site of ancient Telemessos which was a large port and famo
 
 <!--more-->
 
-[![Img_9887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_9887.png "Img_9887")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9887.png)
+![Img_9887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9887.png)
 
 Fethiye stands on the site of ancient Telemessos which was a large port and famous for its myths, seers and sages. It was a member of the Lycian Federation and in mythology it took its name from the son of Apollo and a princess of Phoenicus. One of its seers, Aristander foretold the birth and career of Alexander the Great and later accompanied him on his campaigns.
 
@@ -41,22 +41,22 @@ Next to that window in that top picture with the great view of the harbor there 
 
 Our Turkey tour was off to a grand start as we were revitalized by our stay at this pleasant traditional Ottoman designed guest house. The staff was very helpful, they coddled Mozart, hugged her and touched her hair as they are very fond of children and the blue eyed manager spoke perfect English. We started each morning with a magnificent view of the harbor and yummy breakfast. Welcome to Turkey where life is good!
 
-[![Img_0146](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0146.png "Img_0146")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0146.png)
+![Img_0146](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0146.png)
 
-[![Img_0066](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0066.png "Img_0066")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0066.png)
+![Img_0066](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0066.png)
 
-[![Img_0041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0041.png "Img_0041")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0041.png)
+![Img_0041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0041.png)
 
-[![Img_9886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_9886.png "Img_9886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9886.png)
+![Img_9886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9886.png)
 
-[![Img_0059](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0059.png "Img_0059")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0059.png)
+![Img_0059](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0059.png)
 
-[![Img_9894](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_9894.png "Img_9894")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9894.png)
+![Img_9894](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9894.png)
 
-[![Img_9898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_9898.png "Img_9898")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9898.png)
+![Img_9898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9898.png)
 
-[![Img_0047](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0047.png "Img_0047")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0047.png)
+![Img_0047](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0047.png)
 
-[![Img_9900](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_9900.png "Img_9900")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9900.png)
+![Img_9900](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_9900.png)
 
-[![Img_0061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/03/img_0061.png "Img_0061")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0061.png)
+![Img_0061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/03/img_0061.png)

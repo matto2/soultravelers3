@@ -16,13 +16,13 @@ tags:
   - "winter-travel-europe"
 ---
 
-[![6a00e5502a950788330128767034e4970c-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ec608fe970c.jpg "6a00e5502a950788330128767034e4970c-500wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ec608fe970c.jpg)Christmas Travel to Europe  
+![6a00e5502a950788330128767034e4970c-500wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ec608fe970c.jpg)Christmas Travel to Europe  
   
 Is Christmas a good time  
 to travel to Europe? It's  
 certainly a magical season to
 
-<!--more--> [![Christmas in Europe and Christmas markets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee63a8213970d.jpg "Christmas in Europe and Christmas markets")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee63a8213970d.jpg)  
+<!--more--> ![Christmas in Europe and Christmas markets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee63a8213970d.jpg)  
   
 Is Christmas a good time to [travel to Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "travel to Europe")? It's certainly a magical season to visit the [Christmas markets](http://soultravelers3new.local/2011/11/christmas-markets-in-europe-dont-miss.html "Christmas markets of Europe") and enjoy the very [different festivals](http://soultravelers3new.local/2010/01/3-kings-in-spain-andalusia-festival-tradition-white-village-christmas-epiphany-12th-night.html "Christmas festivals in Spain - 3 kings") and traditions.  
   

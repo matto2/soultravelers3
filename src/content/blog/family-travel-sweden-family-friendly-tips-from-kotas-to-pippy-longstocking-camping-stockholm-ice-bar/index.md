@@ -15,7 +15,7 @@ tags:
   - "motorhome-sweden-kids-travel-sweden"
 ---
 
- [![family travel sweden ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134877cd917970c.jpg "family travel sweden ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134877cd917970c.jpg) Family Travel Sweden  
+ ![family travel sweden ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134877cd917970c.jpg) Family Travel Sweden  
 September 24, 2010
 
 Family travel for us is often  
@@ -24,7 +24,7 @@ sometimes learning about 
 
 <!--more-->
 
-[![family travel in Sweden tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134877cd9b9970c.jpg "family travel in Sweden tips")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134877cd9b9970c.jpg)
+![family travel in Sweden tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134877cd9b9970c.jpg)
 
 [Family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) for us is often about [being in nature](http://soultravelers3new.local/2009/04/family-travel-photohappy-earth-day.html) and sometimes learning about different kinds of animals, and environments, sometimes in playful ways. [This was a beautiful campsite](http://www.firstcamp.se/sv/hostvintervar/karlstad-skutberget) on a lake in Sweden. This gigantic, happy  moose was the mascot there. Coincidentally,  at the same time that we were enjoying this moose and elk countryside in Sweden, members of our family were visiting Alaska with that cool summer moose countryside. It was funny that comparing pictures showed them to be similar in many ways.
 

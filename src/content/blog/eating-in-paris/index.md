@@ -23,13 +23,13 @@ tags:
   - "where-to-eat-in-paris"
 ---
 
-[![IMG_4350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b8097970d.jpg "IMG_4350")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b8097970d.jpg)Eating in Paris  
+![IMG_4350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b8097970d.jpg)Eating in Paris  
   
 Eating in Paris is always a  
 delight and one of the things  
 that makes it such a romantic
 
-<!--more--> [![eating in Paris at charming traiteur and  boulangerie ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c6bf97970c.jpg "eating in Paris at charming traiteur and  boulangerie ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c6bf97970c.jpg)  
+<!--more--> ![eating in Paris at charming traiteur and  boulangerie ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c6bf97970c.jpg)  
   
 [Eating in Paris](http://soultravelers3new.local/2006/09/sun-arc-de-triu.html "eating in Paris with kids near arc de triumph") is always a delight and one of the things that makes it such a [romantic city](http://soultravelers3new.local/2013/02/top-10-most-romantic-cities-.html "most romantic cities") are the charming little eating places like  "traiteurs" ( take out)  and "boulangeries" ( bakery) as this photo shows. We love discovering new ones every time we [visit Paris](http://soultravelers3new.local/2011/03/-family-travel-paris-france-louvre-photo.html "visit paris").  
   

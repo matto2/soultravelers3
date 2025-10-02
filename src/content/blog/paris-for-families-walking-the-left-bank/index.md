@@ -17,14 +17,14 @@ tags:
   - "walking-paris"
 ---
 
-[![IMG_2197](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead880cd970c.jpg "IMG_2197")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead880cd970c.jpg)Paris for Families:  
+![IMG_2197](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead880cd970c.jpg)Paris for Families:  
 Walking the Left Bank
 
 Bringing the kids to Paris?  
 For families considering a  
 trip to Europe with children,
 
-<!--more--> [![Paris with kids on a budget...a very walkable city!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead881c5970c.jpg "Paris with kids on a budget...a very walkable city!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead881c5970c.jpg)
+<!--more--> ![Paris with kids on a budget...a very walkable city!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead881c5970c.jpg)
 
  **PARIS WITH KIDS**
 

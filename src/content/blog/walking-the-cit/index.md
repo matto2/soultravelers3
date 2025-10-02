@@ -15,7 +15,7 @@ dream with breathtaking views where ever you look.
 
 <!--more-->
 
-[![Img_6772](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6772.png "Img_6772")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6772.png)
+![Img_6772](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6772.png)
 
 It is impossible to walk the medieval wall of Old Town Dubrovnik and not fall totally in love with this place, as it is a photographers dream with breathtaking views where ever you look. I think most people do it in two hours or so, but we loved it so much that we were on it for five hours and were the first ones there when it opened at precisely eight in the morning. We picked a non cruise boat day, so it was not crowded for most of our walk and indeed we had much of it all to ourselves to take time to savor it fully.
 
@@ -34,28 +34,28 @@ The walk down on narrow, very steep stairs is almost as precarious as some of th
 
 We did finally find a perfect little spot and we had the room to ourselves as most people prefer to eat outside as we do too usually, but I was so over heated that I needed air-condition even with a soaked head at the fountain. We had stayed out in the sun and heat longer than we should have, but the AC, good food and very sweet people soon revived us. Even with the heat and sun, walking the wall was a highlight for us, so much so that we will do it one more time before leaving to relive the fun, see it at sunset and get Mozart’s violin video!
 
-[![Img_6732](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6732.png "Img_6732")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6732.png)
+![Img_6732](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6732.png)
 
-[![Img_6735](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6735.png "Img_6735")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6735.png)
+![Img_6735](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6735.png)
 
-[![Img_6748](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6748.png "Img_6748")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6748.png)
+![Img_6748](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6748.png)
 
-[![Img_6762](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6762.png "Img_6762")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6762.png)
+![Img_6762](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6762.png)
 
-[![Img_6862](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6862.png "Img_6862")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6862.png)
+![Img_6862](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6862.png)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6862_2.png)
 
-[![Img_6968](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6968.png "Img_6968")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6968.png)
+![Img_6968](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6968.png)
 
-[![Img_6919](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6919.png "Img_6919")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6919.png)
+![Img_6919](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6919.png)
 
-[![Img_6874](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6874.png "Img_6874")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6874.png)
+![Img_6874](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6874.png)
 
-[![Img_6930](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6930.png "Img_6930")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6930.png)
+![Img_6930](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6930.png)
 
-[![Img_6983](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6983.png "Img_6983")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6983.png)
+![Img_6983](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6983.png)
 
-[![Img_7003](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_7003.png "Img_7003")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_7003.png)
+![Img_7003](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_7003.png)
 
-[![Img_6820](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_6820.png "Img_6820")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6820.png)
+![Img_6820](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_6820.png)

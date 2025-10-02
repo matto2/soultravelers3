@@ -19,13 +19,13 @@ tags:
   - "usa-over-consumption"
 ---
 
-Reverse Culture Shock - USA Over Consumerism [![IMG_6675](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390e0f548970b.jpg "IMG_6675")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390e0f548970b.jpg)
+Reverse Culture Shock - USA Over Consumerism ![IMG_6675](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015390e0f548970b.jpg)
 
 Travel changes you,  
 especially long term  
 international travel.
 
-<!--more--> [![Stuff and over consumerism in USA](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8ad478e4970d.jpg "Stuff and over consumerism in USA")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8ad478e4970d.jpg)  
+<!--more--> ![Stuff and over consumerism in USA](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8ad478e4970d.jpg)  
   
   
 [Travel](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "travel the world as family") changes you, especially [long term international travel](http://soultravelers3new.local/2008/06/how-to-do-exten.html "long term international travel"). [Coming home](http://soultravelers3new.local/2010/10/family-travel-santa-cruz-california-beautiful-beach-house-homeaway-luxury-rental-home.html "Coming home") can be perhaps the worst cultural shock. Despite the world recession, the over consumerism of America is mind-blowing. In this photo, we are landing in New York City last year ( having not been home in two years) and this tiny little kiosk at Kennedy Airport had eight different kinds of M & M's! Wow.  

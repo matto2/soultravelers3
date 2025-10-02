@@ -20,13 +20,13 @@ tags:
   - "visiting-china"
 ---
 
-[![IMG_5878](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d4c7e79970c.jpg "IMG_5878")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d4c7e79970c.jpg)Visiting China and Dragons  
+![IMG_5878](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d4c7e79970c.jpg)Visiting China and Dragons  
   
 "Change is a dragon - ride it  
 and transform." Now we visit  
 China, our 45th country on
 
-<!--more--> [![Chinese dragon and visiting China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c331de0b1970b.jpg "Chinese dragon and visiting China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c331de0b1970b.jpg)  
+<!--more--> ![Chinese dragon and visiting China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c331de0b1970b.jpg)  
   
   
 "Change is a dragon - ride it and transform." Now [we visit China](http://www.chinatravel20.com/2012/11/04/the-soultravelers3-coming-to-beijing/ "visit to China"), our 45th country on 5 continents of our [open ended world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "open ended world tour"). What shall we learn together?  

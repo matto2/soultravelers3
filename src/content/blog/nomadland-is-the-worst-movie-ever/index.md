@@ -37,14 +37,14 @@ tags:
   - "van-life"
 ---
 
-[![UK 1$_LANTERN_AW_NOMADLAND](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e9930286200b.jpg "UK 1$_LANTERN_AW_NOMADLAND")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e9930286200b.jpg)Nomadland is the Worst Movie Ever!  
+![UK 1$_LANTERN_AW_NOMADLAND](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e9930286200b.jpg)Nomadland is the Worst Movie Ever!  
   
 Nomadland is boring, bleak & truly bad  
 movie so it seems like the hype  
 everywhere is very misleading, thus
 
 <!--more-->  
-[![Nomadland movie review by soultravelers3 digital nomads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e9933677200b.jpg "Nomadland movie review by soultravelers3 digital nomads")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e9933677200b.jpg)  
+![Nomadland movie review by soultravelers3 digital nomads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e9933677200b.jpg)  
 [Nomadland](https://www.hulu.com/nomadland-movie "nomadland on hulu") is a boring, bleak & truly bad movie, so it seems like the   
 hype everywhere is very misleading, thus that is why it feels like the longest movie ever, even though it's actually a very short movie. I wish I had been warned how horrible [Nomadland](https://www.youtube.com/watch?v=6sxCFZ8_d84 "nomadland official trailer ") is, so I am warning you!  
   
@@ -52,7 +52,7 @@ Why would advertisements call it a "miracle" and "life changing" which conjures 
   
 I am thrilled an Asian woman director is getting praised & I love the lead actress Frances McDormand, but even she can not save this plotless, dreary movie that would have worked better as a true documentary, so we could at least care about the people in this movie.  
   
-[![Nomadland is slow and boring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833026bdec083c2200c.jpg "Nomadland is slow and boring")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833026bdec083c2200c.jpg)
+![Nomadland is slow and boring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833026bdec083c2200c.jpg)
 
 I have lived and traveled in an old RV in the US, Mexico and Europe for over a decade on a very tight budget, so I find it interesting that many who actually live or lived the life of a nomad, do not like this movie. Don't listen to the paid critics, here are honest reviews from some IMDB reviews I felt told the truth about this movie:  
   
@@ -178,7 +178,7 @@ I'm a huge fan of Frances McDormand, but this is a nothing movie with real life 
 
 "Besides being depressing, it is also very slow. It is only an hour and forty-five minutes but it felt so much longer. I had a very hard time not getting distracted while watching it and caught myself almost falling nodding off here and there. Maybe this means I should go back in and give it another try, but having drank a cup of coffee right before watching it, I can assure it was the movie that made me tired."While I understand Nomadland is meant to take viewers on a journey along with Fern, too much of it fell flat for me to make me say it is worth a watch. " ( [Mama's Geeky](https://mamasgeeky.com/2021/01/nomadland-review.html))
 
-[![Nomandland is a bad  boring movie](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e99336a1200b.jpg "Nomandland is a bad  boring movie")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e99336a1200b.jpg)  
+![Nomandland is a bad  boring movie](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330263e99336a1200b.jpg)  
 I feel the advertising is dishonest and the movie makes a grave error by being such a bleak, depressing, slow, dark (cinematically & thematically) film because I KNOW this lifestyle well & many who live it and have lived it for decades. I know people forced into it who live on very, very little doing it right now and love it because it is an inspiring, joyful lifestyle and the film misses that entirely. They miss the greatness of what Bob Wells supports. It makes me sad that they make RV nomads look like the biggest losers on the planet, when they are likely the most free and happy. They distort things and show the worst possible scenarios. Yes, there are many poverty issues in this country that need to be changed, but they are missing the point of nomads completely.   
   
 At first, Bob was devastated that his life had come to living out of a vehicle. But after a while, he had a change of heart and “fell in love with the freedom, simplicity, frugality, independence, and earth-friendliness of the nomadic way of life.” [Distractify](https://www.distractify.com/p/bob-wells-nomad)   
@@ -187,5 +187,5 @@ Many critics loved this movie and I must say it makes me wonder if they were pai
   
 It is art, so everyone will have their own opinion which is great. As a former actress who has been in many films, with a daughter who is an actress in films & husband who is a visual artist, we love art and film. We tend to be very open minded and generous about the many varieties and give most things a chance. We really wanted to love or at least like this film. NONE of us liked it and thought it was one of the worst films we have ever seen. You can make up your own mind, and may see it differently, but at least you have been warned as I deeply wish I had been.   
   
-[![Unknown](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302788018a347200d.jpg "Unknown")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302788018a347200d.jpg)  
+![Unknown](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302788018a347200d.jpg)  
 We need more positive, uplifting, joyous films like The Biggest Little Farm that shows challenges and problems, but also how to over come them and find strength and joy while becoming triumphant! Long term nomads are a wave of the future as it is a very blessed, free, healthy & joyous life. Working from home, schooling from home, learning minimalism & ways to live healthy & more loving & more free is the wave of the future. I feel blessed that I got to live this life & raise/school my family around the world like this and knew it would grow and grow for more people. (Note how bright, hopeful, loving this photo is compared to the dark, dreary, sad main photo for Nomadland is.)  I hope someday they do make a great, uplifting, inspiring, bright, happy movie that shows the true joy, freedom and positive future that is coming with nomads & everyone living a freer life.

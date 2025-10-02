@@ -14,13 +14,13 @@ tags:
   - "teaching-kids-art"
 ---
 
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761754ecb9970c.jpg)[![6a00e5502a95078833017c315d41b4970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744661a8b970d.jpg "6a00e5502a95078833017c315d41b4970b-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744661a8b970d-150x150-1.jpg)Kids Art - Self Portrait  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761754ecb9970c.jpg)![6a00e5502a95078833017c315d41b4970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744661a8b970d-150x150-1.jpg)Kids Art - Self Portrait  
   
 What do our kids self  
 portraits say about  
 them? I am not sure, but
 
-<!--more-->   [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315df690970b-150x150-1.jpg)[![6a00e5502a95078833017c315d41b4970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176177f9bd1970c.jpg "6a00e5502a95078833017c315d41b4970b-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176177f9bd1970c-150x150-1.jpg)  
+<!--more-->   [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315df690970b-150x150-1.jpg)![6a00e5502a95078833017c315d41b4970b-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176177f9bd1970c-150x150-1.jpg)  
 
  What do our kids self portraits say about them? I am not sure, but I got a big kick out of this one that our 11 year old recently did. I love the details of her [Mandarin School in Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Mandarin school in Asia")'s uniform and her books including [physics in Mandarin](http://soultravelers3new.local/2012/07/chinese-school-in-asia-11-year-old-american-doing-physics-in-mandarin.html "physics in Mandarin") characters. The PET book is from her English as a second language class ( which is the top level and of course she is number one in that class and we're still trying to get her out of it).  
   

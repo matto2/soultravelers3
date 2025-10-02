@@ -6,7 +6,7 @@ categories:
   - "italy"
 ---
 
- [![Img_5854](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5854.png "Img_5854")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5854.png) More Fabulous Florence  
+ ![Img_5854](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5854.png) More Fabulous Florence  
 March 10, 2008
 
 Oh, how can one describe the glories of  
@@ -15,7 +15,7 @@ when all the crowds are gone?
 
 <!--more-->
 
-[![Img_5854_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5854_2.png "Img_5854_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5854_2.png)
+![Img_5854_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5854_2.png)
 
   
 Oh, how can one describe the glories of Florence on a sunny day in late October when all the crowds are gone? Even now, as I sit here in beautiful sunny Spain and look at our pictures of Florence, I get a smile on my face, remembering the delights we encountered.
@@ -41,26 +41,26 @@ Mozart had a great time talking to the woman doing the work and it was quite fas
 
 We had some great meals in Florence, mainly small places recommended by our friends who lived there or by asking local people/shop keepers. They were mostly small, friendly places with yummy food at good prices, but I did not get any names or have lost them by now. One had a bean and pasta soup that Mozart and DaVinci loved and I adored the gnocchi. When the tourist crowds are gone, the beauty, charm and peace of Florence seduces all.
 
-[![Img_5414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5414.png "Img_5414")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5414.png)
+![Img_5414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5414.png)
 
-[![Img_4879](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_4879.png "Img_4879")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4879.png)
+![Img_4879](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4879.png)
 
-[![Img_5755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5755.png "Img_5755")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5755.png)
+![Img_5755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5755.png)
 
-[![Img_5876](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5876.png "Img_5876")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5876.png)
+![Img_5876](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5876.png)
 
-[![Img_5037](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5037.png "Img_5037")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5037.png)
+![Img_5037](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5037.png)
 
-[![Img_5134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5134.png "Img_5134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5134.png)
+![Img_5134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5134.png)
 
-[![Img_5666](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5666.png "Img_5666")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5666.png)
+![Img_5666](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5666.png)
 
-[![Img_4888](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_4888.png "Img_4888")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4888.png)
+![Img_4888](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4888.png)
 
-[![Img_4972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_4972.png "Img_4972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4972.png)
+![Img_4972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4972.png)
 
-[![Img_6107](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6107.png "Img_6107")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6107.png)
+![Img_6107](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6107.png)
 
-[![Img_5080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5080.png "Img_5080")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5080.png)
+![Img_5080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5080.png)
 
-[![Img_5128](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5128.png "Img_5128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5128.png)
+![Img_5128](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5128.png)

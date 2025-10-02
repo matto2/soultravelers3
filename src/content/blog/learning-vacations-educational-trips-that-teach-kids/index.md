@@ -25,14 +25,14 @@ tags:
   - "world-school"
 ---
 
-[![IMG_0168](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b15c3e8970d.jpg "IMG_0168")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b15c3e8970d.jpg) Learning Vacations,  
+![IMG_0168](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b15c3e8970d.jpg) Learning Vacations,  
 Educational Trips That Teach Kids
 
 Is travel the best  
 education? Can family  
 travel enhance learning
 
-<!--more--> [![learning vacation roman army ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539121a569970b.jpg "learning vacation roman army ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539121a569970b.jpg)  
+<!--more--> ![learning vacation roman army ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301539121a569970b.jpg)  
   
   
 Is [travel the best education](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "travel best education")? Can [family travel](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family travel") enhance [learning for kids](http://soultravelers3new.local/2010/08/10-tips-for-travel-tours-museums-with-kids-family-friendly-travel-advice-information-help-education.html "learning for kids travel")?  

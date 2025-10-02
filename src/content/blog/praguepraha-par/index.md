@@ -15,7 +15,7 @@ even a greater delight.
 
 <!--more-->
 
-[![Img_3528](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3528.png "Img_3528")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3528.png)
+![Img_3528](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3528.png)
 
 We could have stayed a month in Prague and yes, it is even prettier than everyone says. No crowds in October during the week made it even a greater delight. Not that we did not run into lots of people on the famous Charles Bridge that is probably always crowded and carnival-like, but except on Sunday, when there did seem to be an inordinate amount of tour guided groups, we felt we had much of this beautiful city to ourselves with mainly locals.
 
@@ -36,26 +36,26 @@ It is the beautiful architecture of Prague that first hits you. Like Paris, much
 
 As is her habit, when she has to be quiet and still and does not have a book in her hands, she decided to draw some quick sketches of what was capturing her eye. We were distracted gathering brochures and standing in cues, but I got a kick out of it when I saw it and the buildings she drew. The funniest part is how she spelled Prague and how she used frog next to it. It will be hard to ever think of Prague again with out this image and the “Prog (frog)” caption scribbled on a Four Seasons pad! It is the many little moments like that which remind us of the special joy of traveling with a child and seeing it through her eyes. We are convinced now that family travel with a child is really the best travel of all.!
 
-[![Img_2819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2819.png "Img_2819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2819.png)
+![Img_2819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2819.png)
 
-[![Img_3312](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3312.png "Img_3312")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3312.png)
+![Img_3312](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3312.png)
 
-[![Img_3456](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3456.png "Img_3456")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3456.png)
+![Img_3456](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3456.png)
 
-[![Img_3448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3448.png "Img_3448")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3448.png)
+![Img_3448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3448.png)
 
-[![Img_2813](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2813.png "Img_2813")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2813.png)
+![Img_2813](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2813.png)
 
-[![Img_2708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2708.png "Img_2708")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2708.png)
+![Img_2708](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2708.png)
 
-[![Img_2805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2805.png "Img_2805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2805.png)
+![Img_2805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2805.png)
 
-[![Img_2901](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2901.png "Img_2901")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2901.png)
+![Img_2901](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2901.png)
 
-[![Img_3534](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3534.png "Img_3534")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3534.png)
+![Img_3534](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3534.png)
 
-[![Img_3245](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3245.png "Img_3245")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3245.png)
+![Img_3245](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3245.png)
 
-[![Img_3509](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_3509.png "Img_3509")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3509.png)
+![Img_3509](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_3509.png)
 
-[![Img_2773](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/24/img_2773.png "Img_2773")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2773.png)
+![Img_2773](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/24/img_2773.png)

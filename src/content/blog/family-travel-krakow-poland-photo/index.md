@@ -16,7 +16,7 @@ tags:
   - "krakow-with-kids"
 ---
 
- [![IMG_6524](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88131245970d.jpg "IMG_6524")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88131245970d.jpg) Family travel Krakow, Poland: Photo UNESCO Site
+ ![IMG_6524](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88131245970d.jpg) Family travel Krakow, Poland: Photo UNESCO Site
 
 Family travel in Europe can  
 often mean taking a carriage  
@@ -24,7 +24,7 @@ ride around an ancient city. We
 
 <!--more-->
 
-[![Carriage ride on family vacation Krakow/Cracow](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1f79cb970b.jpg "Carriage ride on family vacation Krakow/Cracow")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1f79cb970b.jpg)  
+![Carriage ride on family vacation Krakow/Cracow](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1f79cb970b.jpg)  
   
   
   

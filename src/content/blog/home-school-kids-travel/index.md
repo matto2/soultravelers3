@@ -15,7 +15,7 @@ tags:
   - "travel-to-learn"
 ---
 
-[![IMG_0819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630354a1de970d.jpg "IMG_0819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630354a1de970d.jpg)Home School Kids Travel
+![IMG_0819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630354a1de970d.jpg)Home School Kids Travel
 
 Can the world be your  
 textbook? There truly is  
@@ -23,7 +23,7 @@ no better education than travel
 
 <!--more-->
 
-[![travel with home school kid in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676449bed7970b.jpg "travel with home school kid in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676449bed7970b.jpg)  
+![travel with home school kid in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676449bed7970b.jpg)  
   
 Can the world be your textbook? There truly is [no better education than travel](http://soultravelers3new.local/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html "no better education than travel"), especially for today's 21st Century student and it is easiest for homeschooled or home educated kids to [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel") with their families long term.  
   

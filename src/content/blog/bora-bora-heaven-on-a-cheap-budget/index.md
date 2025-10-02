@@ -17,13 +17,13 @@ tags:
   - "travel-to-bora-bora-on-a-budget"
 ---
 
-[![187905221](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676669ed6b970b.jpg "187905221")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676669ed6b970b.jpg)Bora Bora - Heaven on a Cheap Budget!  
+![187905221](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676669ed6b970b.jpg)Bora Bora - Heaven on a Cheap Budget!  
   
 [](http://en.wikipedia.org/wiki/Bora_Bora "Bora Bora")Bora Bora, an island in the  
 mesmerizing archipelago of  
 Tahiti in the South Pacific
 
-<!--more--> [![Love this beautiful photo of Bora Bora - our daughter  hand feeding large turtles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305760ddc970d.jpg "Love this beautiful photo of Bora Bora - our daughter  hand feeding large turtles")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305760ddc970d.jpg)  
+<!--more--> ![Love this beautiful photo of Bora Bora - our daughter  hand feeding large turtles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305760ddc970d.jpg)  
   
   
 [Bora Bora](http://soultravelers3new.local/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "Bora Bora on cheap budget"), an island in the mesmerizing archipelago of [Tahiti](http://soultravelers3new.local/2010/10/family-travel-french-polynesia-cheaply.html "Tahiti cheap budget vacation") in the South Pacific, is one of the most beautiful and remote locations in the world. I dreamt about visiting and vacationing in Bora Bora for many years, but it is known for it's highest-priced luxury hotels as much as its beauty and we are family travelers who travel the world on a tiny budget of $23/day per person.  

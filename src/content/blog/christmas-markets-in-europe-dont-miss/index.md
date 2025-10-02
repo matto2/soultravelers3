@@ -14,14 +14,14 @@ tags:
   - "winter-travel-europe"
 ---
 
-[![IMG_1246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a758ac970c.jpg "IMG_1246")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a758ac970c.jpg)Christmas Markets in Europe  
+![IMG_1246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a758ac970c.jpg)Christmas Markets in Europe  
 \- Don't Miss
 
 One of the best parts  
 of traveling to Europe  
 in the winter has to be
 
-<!--more--> [![IMG_1246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a758fc970c.jpg "IMG_1246")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a758fc970c.jpg)  
+<!--more--> ![IMG_1246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015437a758fc970c.jpg)  
   
 
 One of the best parts of traveling to Europe in the winter has to be the charming Christmas Markets. This photo was taken at one in Heidleberg. Want to see more posts about Christmas in Europe or Christmas abroad?  

@@ -16,13 +16,13 @@ tags:
   - "thaipusam-piercings"
 ---
 
-[![IMG_5483_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d407d4cd1970c.jpg "IMG_5483_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d407d4cd1970c.jpg)Thaipusam 2013  
+![IMG_5483_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d407d4cd1970c.jpg)Thaipusam 2013  
   
 What is the strangest  
 festival you have ever seen?  
 Thaipusam is a Hindu holiday
 
-<!--more--> [![Thaipusam 2013 exotic festival piercings](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d407d4d26970c.jpg "Thaipusam 2013 exotic festival piercings")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d407d4d26970c.jpg)  
+<!--more--> ![Thaipusam 2013 exotic festival piercings](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d407d4d26970c.jpg)  
    
 What is the strangest [festiva](http://soultravelers3new.local/2007/03/semana-santa-in.html "semana santa seville")l you have ever seen?  
   

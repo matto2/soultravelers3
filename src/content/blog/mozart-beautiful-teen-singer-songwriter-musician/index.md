@@ -20,7 +20,7 @@ tags:
   - "teen-singing-pop"
 ---
 
-[![IMG_4386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51181070e970c.jpg "IMG_4386")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51181070e970c.jpg)Mozart - Beautiful Teen Singer,  
+![IMG_4386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51181070e970c.jpg)Mozart - Beautiful Teen Singer,  
 Songwriter, Musician  
   
 As the beautiful young teenage  
@@ -28,7 +28,7 @@ girl named Mozart, began to sing,
 I swooned, fell totally in love and
 
 <!--more-->  
-[![Mozart - Beautiful Teenage girl  Singer, Songwriter, Musician](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d8c7a27970d.png "Mozart - Beautiful Teenage girl  Singer, Songwriter, Musician")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d8c7a27970d.png)  
+![Mozart - Beautiful Teenage girl  Singer, Songwriter, Musician](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d8c7a27970d.png)  
   
 As the beautiful young teenage girl named [Mozart](http://soultravelers3new.local/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html "Mozart teen speaker and singer"), began to sing, I swooned, fell totally in love and got goose bumps!  
   
@@ -42,7 +42,7 @@ The show had an 80's theme, (thus her curly, Pop-star big hair and look), that p
   
 One of the advantages of [homeschool](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html "homeschool and travel") or [worldschooling](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "worldschooling best education unschool around the world"), and a [travel lifestyle,](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "travel lifestyle") is a [child can follow their passions](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "TRAVELING KID TELLS WHY TO TRAVEL "). So one of the reasons for our [being in Dallas](http://soultravelers3new.local/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "Hawthorn Suites - best extended stay hotel in Dallas") now is to allow [trilingual Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "trilingual Mozart travel kid expert") to follow her [passions in music](http://soultravelers3new.local/2014/02/mozart-plays-mozart-and-more-violin-and-piano-performance.html "Passion in music for teen Mozart musician") and singing/songwriting.  
   
-[![Mozart glowing with joy after she sang and performed - happy kid!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd1ee3c970b.png "Mozart glowing with joy after she sang and performed - happy kid!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd1ee3c970b.png)  
+![Mozart glowing with joy after she sang and performed - happy kid!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd1ee3c970b.png)  
   
 This "[world's most traveled child"](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "WORLD'S MOST TRAVELED CHILD"), is most at home on the stage and thrives on performance, be it [singing](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "singing"), [playing music](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "travel teen Mozart playing music around the world -violin"), [public speaking](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "Mandarin ted talk speech by travel kid Mozart") or [acting](http://soultravelers3new.local/2007/09/mozarts-film-de.html "travel kid Mozart film in Croatia japanese TV").  
   

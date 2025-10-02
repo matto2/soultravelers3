@@ -19,7 +19,7 @@ tags:
   - "traveling-with-diet-restrictions"
 ---
 
-[![IMG_0852](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0417ae4d970d.jpg "IMG_0852")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0417ae4d970d.jpg)Travel and Paleo/Primal, Grain Free,  
+![IMG_0852](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0417ae4d970d.jpg)Travel and Paleo/Primal, Grain Free,  
 GAPS/WAPF Healthy Eating  
   
 Can you travel the world and  
@@ -27,7 +27,7 @@ eat healthy on a very non-standard
 diet like Paleo, Vegan, WAPF, GAPS
 
 <!--more-->  
-[![Mozart enjoying the organic farm with mandarins and pastured chickens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107d8c85970c.png "Mozart enjoying the organic farm with mandarins and pastured chickens")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107d8c85970c.png)  
+![Mozart enjoying the organic farm with mandarins and pastured chickens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107d8c85970c.png)  
   
 Can you [travel the world](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "travel the world") and [eat healthy](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "eat healthy") on a very non-standard diet like [Paleo](http://soultravelers3new.local/2013/08/healthy-banana-bread-recipe-paleogapsgluten-free.html "paleo"), Vegan, WAPF, GAPS and eat organic plus all unprocessed foods, no sugar, bad fats or conventionally grown meats, [eggs](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html "raw eggs for health") or [dairy](http://soultravelers3new.local/2013/04/raw-milk-fast-and-cure.html "raw milk fast cure")? Meanwhile living on a very tight budget and a [super minimalist life](http://soultravelers3new.local/2013/02/minimalist-family-frugal-tip-omg.html "super minimalist life"), thus [traveling with little luggage](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html "top travel tips for packing light")?  
   
@@ -48,7 +48,7 @@ M**AKE PICNICS - EVEN FOR PLANE RIDES OR ROAD TRIPS**
 **HAVE DELICIOUS FOOD HANDY SO YOU ARE NOT TEMPTED**  
   
   
-[![Organic pastured eggs fresh from the farmer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107dd8ed970c.png "Organic pastured eggs fresh from the farmer")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107dd8ed970c.png)  
+![Organic pastured eggs fresh from the farmer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5107dd8ed970c.png)  
   
 It is actually fun, easy, educational and entertaining to connect with local farmers. Before we left [Asia](http://soultravelers3new.local/asia/ "Asia travel tips") recently,  I googled things like [LocalHarvest](http://www.localharvest.org/ "local harvest find healthy food") and [Eat Wild](http://www.eatwild.com/products/ "eat wild") and found farmers in places we'd be in order to get the food we'd need. I did similar online sleuthing before we went to Australia recently.  
   

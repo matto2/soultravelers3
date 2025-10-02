@@ -6,7 +6,7 @@ categories:
   - "morocco"
 ---
 
- [![Img_1932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_1932.png "Img_1932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_1932.png) Moroccan Pottery  
+ ![Img_1932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_1932.png) Moroccan Pottery  
 April 1, 2007
 
 One of the things we noticed our first night  
@@ -15,7 +15,7 @@ with billowing black smoke and we guessed
 
 <!--more-->
 
-[![Img_1932_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_1932_2.png "Img_1932_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_1932_2.png)
+![Img_1932_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_1932_2.png)
 
   
 One of the things we noticed our first night in Fez up on the terrace, was an area filled with billowing black smoke and we guessed that it was a fire. What we did not know was it was a controlled fire and was part of the pottery process which is quite famous in Morocco. We also admired the beautiful pottery and ceramic tiles in our riad. So we were very happy to learn more about ceramic arts in Morocco and see it first hand in Fez.
@@ -32,28 +32,28 @@ We had an English speaking guide who guided us thru the process from the clay (a
 
 There were lots of beautiful things to buy afterwards and if I ever buy another house, I might consider a shopping trip to Morocco for the many lovely hand made things. Mozart ended up with a little souvenir that the guide gave her, but we just had no room for gifts or a place to send them. I would have to know a lot more about pottery and ceramics to know if I was getting a bargain or not. We certainly enjoyed watching the process and learning more about it!
 
-[![Img_2290](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2290.png "Img_2290")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2290.png)
+![Img_2290](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2290.png)
 
-[![Img_2303](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2303.png "Img_2303")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2303.png)
+![Img_2303](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2303.png)
 
-[![Img_2306](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2306.png "Img_2306")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2306.png)
+![Img_2306](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2306.png)
 
-[![Img_2312](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2312.png "Img_2312")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2312.png)
+![Img_2312](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2312.png)
 
-[![Img_2279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2279.png "Img_2279")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2279.png)
+![Img_2279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2279.png)
 
-[![Img_2334](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2334.png "Img_2334")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2334.png)
+![Img_2334](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2334.png)
 
-[![Img_2325_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2325_2.png "Img_2325_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2325_2.png)
+![Img_2325_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2325_2.png)
 
-[![Img_2325](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2325.png "Img_2325")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2325.png)
+![Img_2325](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2325.png)
 
-[![Img_2326](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2326.png "Img_2326")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2326.png)
+![Img_2326](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2326.png)
 
-[![Img_2331](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2331.png "Img_2331")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2331.png)
+![Img_2331](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2331.png)
 
-[![Img_2323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2323.png "Img_2323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2323.png)
+![Img_2323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2323.png)
 
-[![Img_2342](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2342.png "Img_2342")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2342.png)
+![Img_2342](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2342.png)
 
-[![Img_2346](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/04/05/img_2346.png "Img_2346")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2346.png)
+![Img_2346](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/05/img_2346.png)

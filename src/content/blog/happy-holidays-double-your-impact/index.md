@@ -22,14 +22,14 @@ tags:
   - "tax-break"
 ---
 
-[![IMG_0788](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b03e2694e970d.jpg "IMG_0788")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b03e2694e970d.jpg)Happy Holidays! Double Your Impact!  
+![IMG_0788](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b03e2694e970d.jpg)Happy Holidays! Double Your Impact!  
   
 Wishing you and yours a  
 wonderful holiday season! It  
 was well worth the 35 plus hours,
 
 <!--more-->  
-[![Mozart and the Soultravelers3 on Christmas 2013](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fb56bf4e970b.png "Mozart and the Soultravelers3 on Christmas 2013")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fb56bf4e970b.png)  
+![Mozart and the Soultravelers3 on Christmas 2013](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fb56bf4e970b.png)  
   
 Wishing you and yours a wonderful holiday season! It was well worth the 35 plus hours, 2 taxis, 4 long plane rides with mucho turbulance, 1 air rail, 2 hour rental-car ride, 2 lost pieces of luggage ( eventually found after over a week)  to finally come home to [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California travel") for Christmas!  
   

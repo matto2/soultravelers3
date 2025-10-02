@@ -20,7 +20,7 @@ One of the great pleasures
 of life and our trip around  
 the world is viewing amazing
 
-<!--more--> [![amazing sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305d1cab8970d.jpg "amazing sunset")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305d1cab8970d.jpg)  
+<!--more--> ![amazing sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305d1cab8970d.jpg)  
   
   
 One of the great pleasures of life and our [trip around the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html#more "trip around the world") is viewing [amazing sunsets](http://soultravelers3new.local/2010/03/family-travel-photo-spain-family-travel-sunset-on-road-trip-in-europe-andalusia-4hww-rolf-potts-tim-.html "amazing sunsets") and [sunrises](http://soultravelers3new.local/2011/11/beautiful-sunrises-and-sunsets.html "sunrises and sunsets") in so many different locations. The ones here in [our Penang apartment](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "Our penang apartment"), give me joy almost every day. I have taken so many photos of them that I think I could almost do a blog just about sunrises and sunsets.  

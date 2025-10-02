@@ -14,13 +14,13 @@ tags:
   - "typical-life-penang"
 ---
 
-[![IMG_3044](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b.jpg "IMG_3044")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b.jpg)Typical Malaysia Local Style
+![IMG_3044](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b.jpg)Typical Malaysia Local Style
 
 What is it like in Asia?  
 What is it like in Malaysia?  
 What is it like in Penang?
 
-<!--more--> [![travel in Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176162dce3a970c.jpg "travel in Malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176162dce3a970c.jpg)
+<!--more--> ![travel in Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176162dce3a970c.jpg)
 
  What is it like in Asia? What is it like in Malaysia? What is it like in [Penang](http://soultravelers3new.local/2012/05/penang-at-night.html "Penang at night")?  
   

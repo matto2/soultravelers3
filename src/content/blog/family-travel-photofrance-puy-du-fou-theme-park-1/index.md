@@ -18,7 +18,7 @@ in France with outstanding shows that [](http://en.wikipedia.org/wiki/Puy_du_Fo
 
 <!--more-->
 
-[![Roman Chariot race,Puy du Fou, France, Theme Park, Roman Chariot race](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ff9fa7f970c.jpg "Roman Chariot race,Puy du Fou, France, Theme Park, Roman Chariot race")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ff9fa7f970c.jpg)
+![Roman Chariot race,Puy du Fou, France, Theme Park, Roman Chariot race](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ff9fa7f970c.jpg)
 
 The spectacular Puy du Fou theme park is one of the best family travel gems in France with outstanding shows that [educate and entertain](http://en.wikipedia.org/wiki/Puy_du_Fou) and puts  Disney to shame. We were absolutely blown away by [the quality](http://www.puydufou.com/uk/) of the shows and can not [recommend it](http://travel.ciao.co.uk/Le_Grand_Parc_Puy_Du_Fou__6543824) high enough. 
 

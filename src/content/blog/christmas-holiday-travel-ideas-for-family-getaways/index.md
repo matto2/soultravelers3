@@ -13,14 +13,14 @@ tags:
   - "family-travel-at-christmas"
 ---
 
-[![IMG_1238](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154388a4fcf970c.jpg "IMG_1238")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154388a4fcf970c.jpg)Christmas Holiday Travel - 
+![IMG_1238](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154388a4fcf970c.jpg)Christmas Holiday Travel - 
 Ideas for Family Getaways
 
 Do you love to get  
 away during the  
 Christmas holidays? It is
 
-<!--more--> [![Christmas holiday travel beauty](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675f001d5f970b.jpg "Christmas holiday travel beauty")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675f001d5f970b.jpg)  
+<!--more--> ![Christmas holiday travel beauty](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675f001d5f970b.jpg)  
   
   
 

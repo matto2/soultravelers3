@@ -15,13 +15,13 @@ tags:
   - "why-visit-krakow"
 ---
 
-[![IMG_7123](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743467662970d.jpg "IMG_7123")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743467662970d.jpg)Krakow Holiday Vacation
+![IMG_7123](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743467662970d.jpg)Krakow Holiday Vacation
 
 Krakow or Cracow in Poland  
 is a UNESCO World Heritage  
 site, fairy-tale ancient city
 
-<!--more--> [![Having fun touring Krakow, Poland](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743467d77970d.jpg "Having fun touring Krakow, Poland")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743467d77970d.jpg)  
+<!--more--> ![Having fun touring Krakow, Poland](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743467d77970d.jpg)  
   
 [Krakow](http://soultravelers3new.local/2011/04/family-travel-krakow-poland-photo.html "Krakow travel tips") or Cracow in Poland is a UNESCO World Heritage site, fairy-tale ancient city and a popular, [cheap city break holiday](http://soultravelers3new.local/2009/09/-a-cool-krakow-bb-poland-best-budget-hotel.html "cheap city break holiday in Krakow - best hotel") destination for many Europeans. Sadly, most Americans miss this gem which is the prettiest city in Poland as it is the only one that escaped WWII bombings.  
   

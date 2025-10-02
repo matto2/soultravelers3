@@ -14,13 +14,13 @@ tags:
   - "pumpkin-traditions"
 ---
 
-[![IMG_0129_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee47d328a970d.jpg "IMG_0129_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee47d328a970d.jpg)Halloween Jack-O' - Lantern  
+![IMG_0129_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee47d328a970d.jpg)Halloween Jack-O' - Lantern  
   
 Are you carving a pumpkin  
 this weekend? Traditions make  
 holidays fun and it's quite amazing
 
-<!--more--> [![scary halloween pumkin carved to greet the trick or treaters](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d07e9ec970c.jpg "scary halloween pumkin carved to greet the trick or treaters")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d07e9ec970c.jpg)  
+<!--more--> ![scary halloween pumkin carved to greet the trick or treaters](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d07e9ec970c.jpg)  
   
 Are you carving a pumpkin this weekend? Traditions make holidays fun and it's quite amazing how the [traditons about Halloween](http://soultravelers3new.local/2011/10/halloween-around-the-world.html "Halloween around the world") seem to keep spreading around the world. We've seen it in [Bora Bora](http://soultravelers3new.local/2010/10/happy-halloween-traveling-around-the-world-celebrations-for-kids.html "bora bora"), [Italy](http://soultravelers3new.local/2008/03/ahhhumbria.html "itay umbria travel") and now in [Southeast Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "south east Asia winter vacation"). This is a holiday weekend in Malaysia ( [Eid al-Adha](http://en.wikipedia.org/wiki/Eid_al-Adha "eid al adha") or Hari Raya Haji ) but even here there was a [pumpkin carving contest](http://thestar.com.my/news/story.asp?file=/2012/10/27/nation/12233987&sec=nation "pumpkin carving contest") at one of the local malls.  
   

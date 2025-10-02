@@ -16,13 +16,13 @@ tags:
   - "yummy-healthy-snacks"
 ---
 
-[![IMG_2906](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742e27a46970d.jpg "IMG_2906")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742e27a46970d.jpg)Healthy Snacks For Kids
+![IMG_2906](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742e27a46970d.jpg)Healthy Snacks For Kids
 
 Whether you are at home  
 or traveling, a mom has  
 to be handy in having healthy snacks
 
-<!--more--> [![yummy, healthy snacks for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768076f52970b.jpg "yummy, healthy snacks for kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768076f52970b.jpg)  
+<!--more--> ![yummy, healthy snacks for kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768076f52970b.jpg)  
   
 Whether you are at home or traveling, a mom has to be handy in having healthy snacks at the ready for kids who are always hungry. We've been on an extreme [health kick](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy organic food") lately, so we are making sure ALL of our snacks are super healthy. We are also on a tight budget, so we use our creativity and choose mostly locally grown organic food.  
   

@@ -15,7 +15,7 @@ tags:
   - "travel"
 ---
 
- [![IMG_0294](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875ed7209970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875ed7209970c.jpg)Family Travel Photo - England  
+ ![IMG_0294](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875ed7209970c.jpg)Family Travel Photo - England  
 December 1, 2009
 
 As the Christmas countdown begins,  
@@ -24,7 +24,7 @@ moment in the "heart of England"
 
 <!--more-->
 
-[![England cottswolds horse christmas shopping travel adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875ed5a3d970c.jpg "England cottswolds horse christmas shopping travel adventure")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875ed5a3d970c.jpg)  
+![England cottswolds horse christmas shopping travel adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875ed5a3d970c.jpg)  
 
 As the Christmas countdown begins, we remember this fun family travel moment in the "heart of England" as a man on a horse went clomping by a [Bourton-on-the-Water](http://en.wikipedia.org/wiki/Bourton-on-the-Water) main street. It was in August 2008, but looks very Christmas-y to me with his red shirt and since I caught him right in front of that shop!
 

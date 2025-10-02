@@ -15,13 +15,13 @@ tags:
   - "wine-travel-alsace"
 ---
 
-[![IMG_2827](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b3b09970d.jpg "IMG_2827")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b3b09970d.jpg)Colmar, France - Alsace  
+![IMG_2827](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b3b09970d.jpg)Colmar, France - Alsace  
   
 Colmar France is a magical town  
 in the Alsace region which is  
 full of beauty, charm, good food and wine.
 
-<!--more--> [![Visiting Colmar in Alsace, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b3b88970d.jpg "Visiting Colmar in Alsace, France")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b3b88970d.jpg)  
+<!--more--> ![Visiting Colmar in Alsace, France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83b3b88970d.jpg)  
   
 [Colmar France](http://soultravelers3new.local/2009/01/route-des-vins-dalsace-france-at-grape-harvest.html "colmar, france vacation") is a magical town in the [Alsace region](http://soultravelers3new.local/2009/01/family-travel-photofrance-alsace-wine-region.html "alsace , france beautiful photo") which is full of beauty, charm, good food and wine. [France travel with kids](http://soultravelers3new.local/2012/08/france-travel-with-kids-must-see.html "france travel with kids - best tips") can be amazing and its one of the best countries for a  [European vacation](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best europe vacations").  
   

@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Img_1921](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1921.jpg "Img_1921")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1921.jpg) Little Pilgrim's Journey to Santiago  
+ ![Img_1921](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_1921.jpg) Little Pilgrim's Journey to Santiago  
 August 28, 2008
 
 One does not tend to think of pilgrimages to  

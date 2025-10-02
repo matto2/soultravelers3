@@ -15,13 +15,13 @@ tags:
   - "world-traveling-packing-tip"
 ---
 
-[![IMG_5221](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d8abc970b.jpg "IMG_5221")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d8abc970b.jpg)Best Packing Tip for World Travel
+![IMG_5221](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d8abc970b.jpg)Best Packing Tip for World Travel
 
 When it comes to world travel,  
 the key is always to pack light  
 because that grants you much
 
-<!--more--> [![beautiful sarong makes for a great packing tip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b1afd970d.jpg "beautiful sarong makes for a great packing tip")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b1afd970d.jpg)  
+<!--more--> ![beautiful sarong makes for a great packing tip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b1afd970d.jpg)  
   
 When it comes to [world travel](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "around the world travel"), the key is always to pack light because that grants you much more freedom and as a reformed over-packer I can tell you that one needs MUCH less than you think. I've written about packing in our [Top 10 Family Travel Tips](http://soultravelers3new.local/2008/05/top-10-family-t.html "top 10 family travel tips") , [How to be a World Traveling Fashionista](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html "how to be a world traveling fashionista") and [10 Best Tips for Family Friendly Travel](http://soultravelers3new.local/2010/02/15-best-tips-for-family-friendly-travel-airplanes-airports-vacation-roadtrips-long-term-family-trave.html "10 best tips for family friendly travel"), but will be writing more on this topic.  
   

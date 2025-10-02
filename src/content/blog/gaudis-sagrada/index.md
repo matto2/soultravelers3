@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4917](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4917.png "Img_4917")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4917.png) Gaudi's Sagrada Familia  
+ ![Img_4917](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4917.png) Gaudi's Sagrada Familia  
 May 3, 2007
 
 You can not see Barcelona without seeing  
@@ -15,7 +15,7 @@ Gaudi’s life masterpiece only a construction
 
 <!--more-->
 
-[![Img_4917_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4917_2.png "Img_4917_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4917_2.png)
+![Img_4917_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4917_2.png)
 
   
 You can not see Barcelona without seeing Temple de la Sagrada Familia! Some call Gaudi’s life masterpiece only a construction site and indeed it is a construction site as it has been under construction since 1882, but “only” is not accurate, as it touches ones soul.
@@ -32,26 +32,26 @@ La Sagrada Familia will probably always be a controversial place that some will 
 
 I took the distant picture from above the Olympic area as it is one of the few ways to capture the entire church, cranes and all. Cranes and scaffolding seem to just be part of the European scene (we have run into them in Italy too), so we have grown accustomed to them at long last. Some how it does seem a little ironic though, that one of Spain’s most famous sights has cranes attached like so much of the rest of the country.
 
-[![Img_4990](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4990.png "Img_4990")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4990.png)
+![Img_4990](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4990.png)
 
-[![Img_5033](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5033.png "Img_5033")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5033.png)
+![Img_5033](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5033.png)
 
-[![Img_4994](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4994.png "Img_4994")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4994.png)
+![Img_4994](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4994.png)
 
-[![Img_5028](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5028.png "Img_5028")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5028.png)
+![Img_5028](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5028.png)
 
-[![Img_4972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4972.png "Img_4972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4972.png)
+![Img_4972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4972.png)
 
-[![Img_4984](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4984.png "Img_4984")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4984.png)
+![Img_4984](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4984.png)
 
-[![Img_4986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4986.png "Img_4986")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4986.png)
+![Img_4986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4986.png)
 
-[![Img_5048](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5048.png "Img_5048")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5048.png)
+![Img_5048](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5048.png)
 
-[![Img_5078](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5078.png "Img_5078")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5078.png)
+![Img_5078](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5078.png)
 
-[![Img_5082](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5082.png "Img_5082")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5082.png)
+![Img_5082](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5082.png)
 
-[![Img_5005](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5005.png "Img_5005")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5005.png)
+![Img_5005](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5005.png)
 
-[![Img_5070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5070.png "Img_5070")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5070.png)
+![Img_5070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5070.png)

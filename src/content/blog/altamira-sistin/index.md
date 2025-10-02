@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1323.jpg "Img_1323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/10/img_1323.jpg) Altamira: Sistine Chapel of Prehistoric Art!  
+ ![Img_1323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/10/img_1323.jpg) Altamira: Sistine Chapel of Prehistoric Art!  
 November 11, 2008
 
 How many people, let alone home  
@@ -15,7 +15,7 @@ and Lascaux prehistoric caves to have
 
 <!--more-->
 
-[![Img_1323_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_1323_2.jpg "Img_1323_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/10/img_1323_2.jpg)
+![Img_1323_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/10/img_1323_2.jpg)
 
   
 
@@ -30,7 +30,7 @@ Jose Camon Aznar
 
 "Nothing you may read or hear about the caves of Altamira quite prepares you for the sensitive artistry, the sophistication, the elegance, the spirituality of the cave paintings of Altamira, executed some 15,000 to 20,000 years ago and considered the most important in the world from the prehistoric Magdalenian period." Penelope Casas
 
-[![Img_3870](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3870.jpg "Img_3870")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/10/img_3870.jpg)
+![Img_3870](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/10/img_3870.jpg)
 
   
 
@@ -44,7 +44,7 @@ For many years, it was easy to see both Altamira and Lascaux, but then it was di
 
 They also had some good books. "Kushuk in Altamira" is a popular Spanish one and Mozart also enjoyed one called ["Noune, Child of Prehistory"](http://www.amazon.co.uk/NOUNE-Child-Prehistory-Michel-Vaidis/dp/2907899643) by Michel Vaidisthat that taught about prehistoric times through a young boys story. [Boy of the Painted Cave](http://www.amazon.com/Boy-Painted-Cave-Justen-Denzel/dp/0698113772)  and [Dar and the Spear Thrower](http://www.amazon.com/Dar-Spear-Thrower-Marjorie-Cowley/dp/039579725X) are good  historical fiction chapter books from this time period, although I wish they had more stories with pre historic girl heroes.  [This](http://www.trussel.com/prehist/prehise2.htm) is a good bibliography of Prehistoric Fiction and we liked [these](http://earlyhumans.mrdonn.org/caveart.html) fun [sites](http://www.kinderart.com/arthistory/caveart.shtml) for [kids](http://www.kinderart.com/arthistory/cavepainting.shtml) about prehistoric art.
 
-[![Img_3855](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3855.jpg "Img_3855")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/11/img_3855.jpg)
+![Img_3855](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/11/img_3855.jpg)
 
 This was a homeschool field trip, well worth taking!
 
@@ -54,7 +54,7 @@ This was a homeschool field trip, well worth taking!
 
 [![Img_1333](http://soultravelers3new.local/images/2008/11/11/img_1333.jpg "Img_1333")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/11/img_1333.jpg)
 
-[![Img_3868](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3868.jpg "Img_3868")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/11/img_3868.jpg)
+![Img_3868](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/11/img_3868.jpg)
 
 [![Img_3876](http://soultravelers3new.local/images/2008/11/11/img_3876.jpg "Img_3876")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/11/img_3876.jpg)
 

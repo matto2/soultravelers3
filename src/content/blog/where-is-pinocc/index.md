@@ -19,7 +19,7 @@ family with a seven year old
 
 <!--more-->
 
-[![Img_6262_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6262_2.png "Img_6262_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6262_2.png)
+![Img_6262_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6262_2.png)
 
 It is a little funky, a little fifties, fun for a kid and full-out-Italian, so as a traveling family with a seven year old in tow, we knew we had to make a stop at “Parco di Pinocchio” while in the Tuscany region. You really must read the original book before going to better appreciate this small theme park, so we picked it up at a great English & Italian bookstore that we stumbled upon in Florence and Mozart devoured it before arrival. ([http://www.bmbookshop.com/](http://www.bmbookshop.com/))
 
@@ -33,26 +33,26 @@ It is quite simple and a little run down, but I would much rather that Mozart ha
 
 We could see its limitations, but Mozart gave it a big thumbs up and it was a highlight for her. It helped cement this classic tale in her brain forever as something special and she still plays with the whistle, puppet and Pinocchio nose that we bought. There were lots of little surprises as one walked around, from a statue of Pinocchio riding a blue horse with the picturesque Collodi in the background to the Blue Fairy House, but her favorite was the huge sprouting whale!
 
-[![Img_6375](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6375.png "Img_6375")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6375.png)
+![Img_6375](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6375.png)
 
-[![Img_6129](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6129.png "Img_6129")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6129.png)
+![Img_6129](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6129.png)
 
-[![Img_6293](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6293.png "Img_6293")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6293.png)
+![Img_6293](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6293.png)
 
-[![Img_6291](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6291.png "Img_6291")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6291.png)
+![Img_6291](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6291.png)
 
-[![Img_6304](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6304.png "Img_6304")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6304.png)
+![Img_6304](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6304.png)
 
-[![Img_6348](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6348.png "Img_6348")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6348.png)
+![Img_6348](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6348.png)
 
-[![Img_6245](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6245.png "Img_6245")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6245.png)
+![Img_6245](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6245.png)
 
-[![Img_6276](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6276.png "Img_6276")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6276.png)
+![Img_6276](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6276.png)
 
-[![Img_6279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6279.png "Img_6279")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6279.png)
+![Img_6279](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6279.png)
 
-[![Img_6323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6323.png "Img_6323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6323.png)
+![Img_6323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6323.png)
 
-[![Img_6326](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6326.png "Img_6326")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6326.png)
+![Img_6326](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6326.png)
 
-[![Img_6328](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6328.png "Img_6328")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6328.png)
+![Img_6328](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6328.png)

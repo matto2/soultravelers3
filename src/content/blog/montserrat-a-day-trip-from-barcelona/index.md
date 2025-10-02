@@ -17,13 +17,13 @@ tags:
   - "visiting-montserrat"
 ---
 
-[![15850006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c6e39ee970c.jpg "15850006")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c6e39ee970c.jpg)Montserrat -Barcelona Day Trip  
+![15850006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c6e39ee970c.jpg)Montserrat -Barcelona Day Trip  
   
 There is so much to explore  
 in Barcelona and the Costa Brava,  
 but don't miss Montserrat
 
-<!--more--> [![montserrat near Barcelona a Catalan UNESCO heritage site](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c323ffaae970b.jpg "montserrat near Barcelona a Catalan UNESCO heritage site")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c323ffaae970b.jpg)  
+<!--more--> ![montserrat near Barcelona a Catalan UNESCO heritage site](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c323ffaae970b.jpg)  
   
 There is so much to explore in [Barcelona](http://soultravelers3new.local/2011/07/costa-brava-and-barcelona.html "barcelona travel") and the [Costa Brava](http://soultravelers3new.local/2009/07/top-10-costa-brava-secret-gems-spain.html "costa brava travel tips and photos"), but don't miss Montserrat which is a UNESCO World Heritage site and has been a sacred spot since the 9th century. Montserrat literally means "jagged rocks" and the landscape as well as the  mountains are uniquely gorgeous.  
   

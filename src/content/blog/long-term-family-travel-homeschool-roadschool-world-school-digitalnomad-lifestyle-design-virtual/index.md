@@ -28,7 +28,7 @@ location independent, lifestyle design,
 
 <!--more-->
 
- [![girl apple store iphone digital nomad world traveler education mac](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffcb004970c.jpg "girl apple store iphone digital nomad world traveler education mac")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffcb004970c.jpg)  
+ ![girl apple store iphone digital nomad world traveler education mac](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffcb004970c.jpg)  
 _London Apple Store Oxford Circus_
 
   
@@ -52,7 +52,7 @@ Even if you do not have children yet, if you live or plan an [ultra mobile lifes
 
   
 
-[![young girl doing homeschool on ferry between Greece and Turkey backpacker RTW Family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec56cb53970b.jpg "young girl doing homeschool on ferry between Greece and Turkey backpacker RTW Family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec56cb53970b.jpg)_  
+![young girl doing homeschool on ferry between Greece and Turkey backpacker RTW Family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec56cb53970b.jpg)_  
 Pink fairy doing math and Greek Myth roadschool on pink ferry between Turkey and Greece._
 
   
@@ -60,13 +60,13 @@ World travel in itself can't help but enrich and educate, but as a parent, one w
 
 I'm a life longer learner who has always had great passion for, and iconoclastic ideas about education. The lead photo may be misleading because we do not own an iphone, ipod, Nintendo DS, ipad, Kindle or Wii, and [we believe in strongly monitoring and limiting  our child's time online](http://www.newhorizons.org/strategies/technology/sobel.htm) and screen time, making sure most of her time is in nature, playing and unplugged. Meanwhile, she is still years ahead of age peers in academic learning, partly because she is allowed to go at her own pace.
 
-[![Family travel italy doing homeschool digital nomad family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec56ea51970b.jpg "Family travel italy doing homeschool digital nomad family")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec56ea51970b.jpg)  
+![Family travel italy doing homeschool digital nomad family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec56ea51970b.jpg)  
 _Writing seven chapter books at a farm stay in Verona, Italy  as self led passion_
 
   
 It is a fine line today because of the amazing technology and 60% of all schools will be virtual by the end of the decade, so [being tech savvy should be a part of the curriculum for these digital natives,](http://www.newhorizons.org/strategies/technology/front_tech.htm) but one must also educate about the [addictive nature](http://www.mediafamily.org/facts/facts_gameaddiction.shtml) and [harms](http://www.cbc.ca/arts/media/story/2010/03/01/media-children-teens-health.html). We're apple fans and love their slogan "Think Differently" thus we own two Mac laptops & one PC (and may own some of the others down the line) but we like how that gives us some boundaries to our time online as we do not want to be virtually connected 24/7 even though we live a digital nomadic life with that as our lifeline to the world in many ways.
 
-[![family travel girl on laptop reading books from Library e-books education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd05bd970c.jpg "family travel girl on laptop reading books from Library e-books education")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd05bd970c.jpg)  
+![family travel girl on laptop reading books from Library e-books education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd05bd970c.jpg)  
 _Mozart reading books from our local library in California while on the road in Spain_
 
   
@@ -74,7 +74,7 @@ I've promised you a series about education on the road, so this is the first and
 
 I'm going to start with an interview that I did for [Nunomad](http://www.nunomad.com/blog/nomading-families-talk-about-life-and-education-round-table-discussion-part-i-soultravelers3/) (with a few changes) so I have that basic information on this site. We repeatedly get asked these kinds of questions so good to have them all together and easier to find. 
 
-[![IMG_9114](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd15b7970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd15b7970c.jpg)  
+![IMG_9114](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd15b7970c.jpg)  
 _Doing an art project in Kilkenny, Ireland with a Russian/Korean bilingual friend from North Korea_
 
 **  
@@ -88,7 +88,7 @@ This is how we answered the why question on our website before we left in 2006:
 
 It still remains just as true today!
 
-[![IMG_3970](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec574ec1970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec574ec1970b.jpg)  
+![IMG_3970](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec574ec1970b.jpg)  
 _Meeting some of the disadvantaged school kids in Harlem that world toured with us virtually_ 
 
 **  
@@ -100,7 +100,7 @@ The incredible family bonding and such rich shared experiences through the trave
 
 We have found it such a rewarding and life-enriching family lifestyle that we have no plans on stopping and know that it will continue to awe us and enhance her education like nothing else could. We are really honored that we have been chosen as a [featured case study for the new edition](http://soultravelers3new.local/2010/03/the-4hour-workweek-review-by-world-traveling-family-rich-global-digital-lifestyle-design.html) of the [4Hour Work Week](http://www.fourhourworkweek.com/blog/) and hope we can encourage others to find there own way to do family extended travel!
 
-[![girl doing homeschool roadschool world school in RV motorhome Europe family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd6609970c.jpg "girl doing homeschool roadschool world school in RV motorhome Europe family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd6609970c.jpg)  
+![girl doing homeschool roadschool world school in RV motorhome Europe family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd6609970c.jpg)  
 _Roadschooling at it's finest as we RV between countries in Europe_
 
 **  
@@ -118,7 +118,7 @@ We also do some online things like John Hopkin’s University’s CTY program an
 
 We also have done many service projects like the disadvantaged school kids from Harlem, south bronx etc that come with us virtually. I think teaching service is important!
 
-[![IMG_2643](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57620d970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57620d970b.jpg)  
+![IMG_2643](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57620d970b.jpg)  
 _One of our many long stops at libraries and bookstores as we roam, this library is in Finland_
 
 **  
@@ -145,7 +145,7 @@ We have found ways around that and still spend considerable time in book stores 
 
 Perhaps one of the most important skills needed for the future 21st century global citizens is adaptibility, flexibility and creativity and one learns that in spades on an extended world tour as a family!
 
-[![girl in library family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57a082970b.jpg "girl in library family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57a082970b.jpg) 
+![girl in library family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57a082970b.jpg) 
 
 _Enjoying time in a bookstore in the UK & opportunities to find books popular in other cultures_
 
@@ -154,22 +154,22 @@ What have been the greatest joys?**
 
 All of it! Just seeing & experiencing this beautiful planet together as a family and meeting amazing people is incredibly life affirming! Having the time that we have together just having fun in awe inspiring places is perhaps the greatest dream come true.
 
-[![IMG_6365](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdb03a970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdb03a970c.jpg)
+![IMG_6365](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdb03a970c.jpg)
 
 _Finding five frogs in a pond with a new friend in Vienna_
 
-_[![IMG_5760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdbfdd970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdbfdd970c.jpg)  
+_![IMG_5760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdbfdd970c.jpg)  
 Taking tennis lessons from a great pro at bargain prices in Portugal  
 _
 
-[![IMG_7332](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57a856970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57a856970b.jpg)  
+![IMG_7332](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57a856970b.jpg)  
 _Making art and crafts at a kid's club with friends from many nations_
 
-[![IMG_0804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdb580970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdb580970c.jpg)  
+![IMG_0804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdb580970c.jpg)  
 _Making a fun club house in Spain out of a found cardboard box_
 
-[![Family travel, girl learning up close & swimming with dolphins portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57acc3970b.jpg "Family travel, girl learning up close & swimming with dolphins portugal")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57acc3970b.jpg)  
+![Family travel, girl learning up close & swimming with dolphins portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ec57acc3970b.jpg)  
 _Learning up close and swimming with dolphins in Portugal_
 
-[![family travel girl watching opera in Verona arena Italy education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdbb32970c.jpg "family travel girl watching opera in Verona arena Italy education")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdbb32970c.jpg)  
+![family travel girl watching opera in Verona arena Italy education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffdbb32970c.jpg)  
 _Watching live performances like two operas in a Roman coliseum in Verona, Italy_

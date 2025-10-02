@@ -18,7 +18,7 @@ tags:
   - "travel-tips"
 ---
 
- [![IMG_8832](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876bc652e970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876bc652e970c.jpg) Our 3 Best Kept Family Travel Secrets  
+ ![IMG_8832](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876bc652e970c.jpg) Our 3 Best Kept Family Travel Secrets  
 January 14, 2009
 
 Do you have a nose for sniffing  
@@ -27,7 +27,7 @@ well worn tourist areas as well as off
 
 <!--more-->
 
-[![Ireland ancient celtic Kilfenora statue head no nose](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7b9e978970b.jpg "Ireland ancient celtic Kilfenora statue head no nose")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7b9e978970b.jpg)
+![Ireland ancient celtic Kilfenora statue head no nose](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7b9e978970b.jpg)
 
 Do you have a nose for sniffing out the best travel secrets in both well worn tourist areas as well as off the beaten track? Friends  have always told me I have a talent for this and it certainly is a passion of mine as I want to see every area like an insider and not just on the ordinary tourists circuit.
 
@@ -43,7 +43,7 @@ We were very flattered to be considered a "travel guru" in this weeks [UK Guardi
 
 **TRAVEL SECRET #1**
 
- **[![Galicia, beautiful beach, child runing on beach, Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876d48a61970c.jpg "Galicia, beautiful beach, child runing on beach, Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876d48a61970c.jpg)  
+ **![Galicia, beautiful beach, child runing on beach, Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876d48a61970c.jpg)  
    
 Galicia in Summer!**
 
@@ -51,7 +51,7 @@ It astounds me that this [stunning and pristine area,](http://soultravelers3new.
 
 **TRAVEL SECRET #2**
 
-**[![Sahara camel trek, Morocco with kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7d214ab970b.jpg "Sahara camel trek, Morocco with kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7d214ab970b.jpg)  
+**![Sahara camel trek, Morocco with kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7d214ab970b.jpg)  
   
 **
 
@@ -61,7 +61,7 @@ If you want a [stunning and authentic  experienc](http://soultravelers3new.loca
 
 **TRAVEL SECRET #3**  
 
-[![pool, vacation, Bordeaux, tropical, vineyards, digital nomad, camping](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7bb7964970b.jpg "pool, vacation, Bordeaux, tropical, vineyards, digital nomad, camping")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7bb7964970b.jpg)  
+![pool, vacation, Bordeaux, tropical, vineyards, digital nomad, camping](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7bb7964970b.jpg)  
 
 **Best and Cheapest Way To See Europe**
 
@@ -69,7 +69,7 @@ Most American's [miss this secret,](http://www.transitionsabroad.com/publication
 
 **BONUS SECRET!**
 
-**[![Crayfish, platter, foodie, food, party, Sweden, tradition](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876d4dc6e970c.jpg "Crayfish, platter, foodie, food, party, Sweden, tradition")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876d4dc6e970c.jpg)  
+**![Crayfish, platter, foodie, food, party, Sweden, tradition](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876d4dc6e970c.jpg)  
   
   
 **

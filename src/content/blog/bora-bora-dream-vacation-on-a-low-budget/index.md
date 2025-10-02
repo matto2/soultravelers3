@@ -23,7 +23,7 @@ tags:
   - "travel-to-tahiti-secret-tips-bora-bora"
 ---
 
-[![IMG_2540](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119db8a3970c.jpg "IMG_2540")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119db8a3970c.jpg)Bora Bora Dream Vacation  
+![IMG_2540](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119db8a3970c.jpg)Bora Bora Dream Vacation  
 on a Low Budget  
   
 Bora Bora is a legendary dream  
@@ -31,7 +31,7 @@ vacation destination, but few know
 the secrets to make it affordable
 
 <!--more-->  
-[![Bora Bora Dream Vacation on a Low Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcee2506970b.png "Bora Bora Dream Vacation on a Low Budget")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcee2506970b.png)  
+![Bora Bora Dream Vacation on a Low Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcee2506970b.png)  
   
 [Bora Bora](http://soultravelers3new.local/2012/10/tantalizing-tahiti.html "bora bora tips and tantalizing tahiti on a budget") is a legendary [dream](http://soultravelers3new.local/2013/01/multilingual-dreams.html "mulitlingual dreams") vacation destination, but few know the [secrets to make it affordable](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html "secrets to affordable travel") even on a low budget. The stunning island was awarded the title of "the best island in the world" by [US News and World Report](http://travel.usnews.com/ "us news and world report travel") and has been voted the most photogenic place on earth!  
   
@@ -63,7 +63,7 @@ Moorea - Cheap and Amazing](http://soultravelers3new.local/2011/09/moorea-cheap-
   
 [Moorea - Cheap and Amazing](http://soultravelers3new.local/2011/09/moorea-cheap-and-amazing.html "moorea cheap and amazing") ( If you are going all the way to Tahiti, best to see Moorea too)  
   
-[![Bora Bora Dream Vacation on a Low Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcee251f970b.png "Bora Bora Dream Vacation on a Low Budget")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcee251f970b.png)  
+![Bora Bora Dream Vacation on a Low Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcee251f970b.png)  
   
 Go! This is a dream you don't want to miss. One of our favorite spots on our [family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world tour")!  
   

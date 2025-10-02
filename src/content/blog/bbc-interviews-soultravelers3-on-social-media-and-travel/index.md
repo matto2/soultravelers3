@@ -14,7 +14,7 @@ tags:
   - "travel-social-media-rock-star"
 ---
 
-[![IMG_6399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6b5c23e970c.jpg "IMG_6399")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6b5c23e970c.jpg) BBC Interviews Soultravelers3  
+![IMG_6399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6b5c23e970c.jpg) BBC Interviews Soultravelers3  
 on Social Media and Travel  
 December 18, 2010
 
@@ -24,7 +24,7 @@ Let me tell you, having the BBC pick you
 
 <!--more-->
 
-[![soultravelers3 meet BBC anchor and camera man for interview](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0a17604970b.jpg "soultravelers3 meet BBC anchor and camera man for interview")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0a17604970b.jpg)  
+![soultravelers3 meet BBC anchor and camera man for interview](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0a17604970b.jpg)  
   
 Wow, talk about feeling like a travel social media rock star! Let me tell you, having the BBC pick you up at the airport and give you a warm welcome when you arrive in London, then interviewing you in a taxi as they take you to the 25th anniversary show of Les Miz, has to be the most thrilling way to come to the UK that you can imagine!
 
@@ -39,14 +39,14 @@ Social media and tech advances are changing everyone's world today and it has ha
 
 Carmen and the BBC crew were suppose to fly into Spain to film us for this show, but Spain scheduled a strike just before they came, so we had to come up with a plan B. We had already intended to come to London for two days to meet some friends, go to a booksigning and hopefully see the 25rh Anniversary show of Les Miserables ( since we were in [France this summer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/france/index.html "France this summer") studying the French Revolution).
 
-[![BBC camera man capturing soultravelers3 social media  travel interview](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6b6456c970c.jpg "BBC camera man capturing soultravelers3 social media  travel interview")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6b6456c970c.jpg)  
+![BBC camera man capturing soultravelers3 social media  travel interview](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c6b6456c970c.jpg)  
   
 As we packed up for our round-the- world flight in southern Spain  and got our motorhome ready for winter storage there, together (via calls and emails), we came up with this alternate plan quickly. The adrenalin was already flowing as we left our Andalusian campsite at four in the morning in the pitch dark before anyone was awake, heading to the taxi that would take us on our first 2010 plane ride, starting  the guantlet of 14 flights that we would take in the next two and half months, adding a fifth continent and raising our countries visited to 38.  What a way to begin!
 
 Now we are in Penang for a tropical winter, primarily so we can immerse our child deeply in her third language at an all [Chinese school here for the next few months](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "immersing in Mandarin at chinese school") before heading to India and back to Europe for the summer. I heard from many people from around the world who saw this BBC show air, but we were in transit, so I am just now getting a chance to share it with those of you who missed it. Hope you enjoy watching it as much as we enjoyed filming it!
 
-[![BBC's Fast track travel reporter interviewing soultravelers3 on travel and social media](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ac5d09970b.jpg "BBC's Fast track travel reporter interviewing soultravelers3 on travel and social media")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ac5d09970b.jpg)  
+![BBC's Fast track travel reporter interviewing soultravelers3 on travel and social media](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ac5d09970b.jpg)  
   
 I will be writing more about the spectacular performance of [Les Misearbles](http://www.lesmis.com/ "Les Miserabless"), but want to thank Carmen and the BBC for helping us obtain tickets and stupendous seats. Carmen is as great in person as she is online or on TV and it was a pure joy to meet her. Mozart was so impressed, she has been making little videos on her new ipod pretending that she is a reporter for the BBC!
 
-[![soultravelers3 seeing 25th anniversary  Les Miz in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ac64f2970b.jpg "soultravelers3 seeing 25th anniversary  Les Miz in London")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ac64f2970b.jpg)
+![soultravelers3 seeing 25th anniversary  Les Miz in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ac64f2970b.jpg)

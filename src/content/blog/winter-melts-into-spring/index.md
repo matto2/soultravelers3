@@ -21,7 +21,7 @@ tags:
   - "winter-into-spring"
 ---
 
-[![IMG_4353](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcf0b049970b.jpg "IMG_4353")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcf0b049970b.jpg)Winter Melts into Spring  
+![IMG_4353](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcf0b049970b.jpg)Winter Melts into Spring  
   
 What a surprise and joy it has  
 been this year to watch winter  
@@ -29,7 +29,7 @@ melt into spring. Since we have
 
 <!--more-->  
   
-[![winter melts into spring - beautiful fountain of icicles ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e23f970c.png "winter melts into spring - beautiful fountain of icicles ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e23f970c.png)  
+![winter melts into spring - beautiful fountain of icicles ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e23f970c.png)  
   
 What a surprise and joy it has been this year to watch winter melt into spring.  
   
@@ -40,7 +40,7 @@ Since we have been primarily in [tropical Asia](http://soultravelers3new.local/2
 
 In the spring I have counted one hundred and thirty-six different kinds of weather inside of four-and-twenty hours. ~ Mark Twain
 
-[![winter melts into spring- melting icicles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef1c5970d.png "winter melts into spring- melting icicles")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef1c5970d.png)  
+![winter melts into spring- melting icicles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef1c5970d.png)  
   
 **ADVENTURES IN WEATHER**  
   
@@ -54,23 +54,23 @@ When we moved into [Hawthorn Suites in Addison](http://soultravelers3new.local/2
   
 With all that this  [well-traveled kid](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "Mozart  is most well -traveled kid in the world") had seen [around the world](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "around-the-world kid Mozart traveling the world for 8 plus years"), including [skiing in southern Spain](http://soultravelers3new.local/2012/12/skiing-in-southern-spain.html "skiing in southern Spain"), she had never seen nature do this trick and admired the miraculous artwork of Mother Earth.  
   
-[![winter melts into spring - natures ice art photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcf434ad970b.png "winter melts into spring - natures ice art photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcf434ad970b.png)  
+![winter melts into spring - natures ice art photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcf434ad970b.png)  
   
 **FROM NO VARIETY**  
   
 Living on the equator in [Asia](http://soultravelers3new.local/asia/ "Asia travel tips") is a wonderful way to [escape from winter](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html "tropical escape from winter"), but there is not much variety to the weather. It is always hot and sunny with occasional tropical showers and no seasonal change.  
   
-[![winter melts into spring - flowers turned to ice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef221970d.png "winter melts into spring - flowers turned to ice")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef221970d.png)  
+![winter melts into spring - flowers turned to ice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef221970d.png)  
   
 **TO SUPER VARIETY**  
   
 Even though Texas usually has a very mild winter, this has been one of the coldest on record. So we have had 80 F days, then the next might be record lows below freezing, even snow, one tornado near by and once even baseball sized hail nearby- (so big that it put holes in car windshields), then back to sun.  
   
-[![early spring snow](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef24d970d.png "early spring snow")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef24d970d.png)  
+![early spring snow](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef24d970d.png)  
   
 It might not have made the organic farmers happy, or those stuck in traffic due the unusual weather, but it has been an adventure for us that we have enjoyed.  
   
-[![cherry blossoms in spring as winter melts into spring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e2f2970c.png "cherry blossoms in spring as winter melts into spring")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e2f2970c.png)  
+![cherry blossoms in spring as winter melts into spring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e2f2970c.png)  
   
 You never know what the day will be, but mostly it is spring now and the signs are everywhere.  
   
@@ -78,7 +78,7 @@ You never know what the day will be, but mostly it is spring now and the signs a
 _Spring is when life's alive in everything._ _\-Christina Rossetti_  
   
   
-[![beautiful wild flowers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e30c970c.png "beautiful wild flowers")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e30c970c.png)  
+![beautiful wild flowers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e30c970c.png)  
   
   
 Mozart and I enjoy taking daily walks and watching the progress of leaves budding out and spring blossoms.
@@ -86,7 +86,7 @@ Mozart and I enjoy taking daily walks and watching the progress of leaves buddin
 If you've never been thrilled to the very edges of your soul by a flower in spring bloom, maybe your soul has never been in bloom. ~ Audra Foveo.
 
   
-[![fresh picked wild flowers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef2a9970d.png "fresh picked wild flowers")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef2a9970d.png)  
+![fresh picked wild flowers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73daef2a9970d.png)  
   
 **BEAUTY EVERYWHERE**  
   
@@ -94,7 +94,7 @@ I have the habit of looking for and seeing beauty where ever I am.
   
 We were amazed at the [stunning spring flowers](http://soultravelers3new.local/2014/03/15-stunning-flower-photos-to-spread-springs-joy.html "stunning flowers") at the [Dallas Arboretum](http://www.dallasarboretum.org/ "dallas arboretum") ( that I will be writing more about), but we also find it when walking in our neighborhood. We spot Cardinals, Robins and let other singing birds serenade us.  
   
-[![flowers picked on sping walks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e32b970c.png "flowers picked on sping walks")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e32b970c.png)  
+![flowers picked on sping walks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a3e32b970c.png)  
   
 This is more a commercial area, but we manage to find empty grassy lots to [run barefoot](http://soultravelers3new.local/2013/08/grounding-earthing-nature-better-health.html "grounding, earthing, barefooting") in, blossoming trees,tulips, gladiolas and even wild flowers.  
   

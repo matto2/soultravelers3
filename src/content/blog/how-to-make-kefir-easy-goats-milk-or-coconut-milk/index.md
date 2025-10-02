@@ -18,7 +18,7 @@ tags:
   - "making-kefir-instructions"
 ---
 
-[![IMG_3112_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177433a5eea970d.jpg "IMG_3112_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177433a5eea970d.jpg)How To Make Kefir Easy - 
+![IMG_3112_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177433a5eea970d.jpg)How To Make Kefir Easy - 
 Goats Milk or Coconut Milk
 
 Kefir is considered a super food  
@@ -26,7 +26,7 @@ by many and it is super easy
 to make and perfect at home or  
   
 
-<!--more-->   [![How to make kefir - goats milk or coconut](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7cae970b.jpg "How to make kefir - goats milk or coconut")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7cae970b.jpg)
+<!--more-->   ![How to make kefir - goats milk or coconut](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7cae970b.jpg)
 
  Kefir is considered a super food by many and it is super easy to make and perfect at home or to take with you as you [travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy food and travel") for [better health](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "how to get better health") and to protect your immune system. Kefir is a fermented drink/food that began centuries ago in the Caucasus Mountains where the people were known to live extremely long, healthy lives.  
   
@@ -41,7 +41,7 @@ This is the BIG key I think "Kefir actually helps to colonize your intestinal tr
   
 "Discover the incredible health-promoting benefits of kefir. If you are serious about boosting your immunity and increasing your daily energy, then adding traditionally fermented foods to your diet is a must. Although not widely known, the health benefits of these foods are tremendous While both Kefir and yogurt are cultured milk products, they contain different types of beneficial bacteria. Yogurt contains transient beneficial bacteria that keep your digestive system clean and provide food for the friendly bacteria that already are present. Kefir actually helps to colonize your intestinal tract -- a feat that yogurt cannot match." Mercola D.O
 
-[![what you need to make kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f669a970c.jpg "what you need to make kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f669a970c.jpg)  
+![what you need to make kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f669a970c.jpg)  
   
   
 **HOW TO MAKE YOUR OWN BEST KEFIR - SO EASY!**  
@@ -64,24 +64,24 @@ If you must buy it, I've read that good commercial products include Redwood Hill
 
   
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)[![goats milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7e35970b.jpg "goats milk")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7e35970b-150x150-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)![goats milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7e35970b-150x150-1.jpg)  
   
   
 This is the goat milk that I use to make my kefir. Sadly it is pasteurized as I have not found a good, safe  source yet for raw goat milk here in [Penang](http://soultravelers3new.local/2012/05/penang-at-night.html "Penang"), but thankfully, the kefir makes it much healthier by all it adds to the milk. Also they deliver it fresh to my door twice a week, so that is handy.
 
-[![fresh coconut milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658492970d.jpg "fresh coconut milk")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658492970d.jpg)  
+![fresh coconut milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658492970d.jpg)  
   
   
 This is the fresh coconut milk that I use to make kefir with. Luckily coconut milk ( and coconut water, coconut meat etc) is every where here in Penang as it's part of the culture. I will be writing more about that fascinationg story and how we get this at the local market for so little. We watch them make it, so it couldn't be easier and is as fresh as making our own. Try your health food stores or Asian markets at home and make sure it is a good brand, or make your own!  
   
 The process for making kefir is the same no matter what kind of milk you use, athough I use separate kefir grains for the coconut milk  and do them with goat milk too once a week to keep them strong. The grains thrive more in milk, so will need more babying if you do regular daily coconut milk kefir-making.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)[![curds and whey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658555970d.jpg "curds and whey")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658555970d-1024x768-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)![curds and whey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658555970d-1024x768-1.jpg)  
   
   
 This is how one knows the kefir is "done". Remember the childhood song about,"curds and whey" ? Well this is it and the whey is the clear part on the bottom here. Later I will tell you how to collect whey when you make easy kefir goat cheese and how you can make wonderful things like lacto-fermented salsa with the whey.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)[![making kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301774365862b970d.jpg "making kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301774365862b970d-1024x768-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)![making kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301774365862b970d-1024x768-1.jpg)  
   
   
 We want both parts, so the first things to do when it is done is just stir with a wooden spoon. I am not sure why but one is not suppose to use metal with kefir and kefir products.  
@@ -91,32 +91,32 @@ We want both parts, so the first things to do when it is done is just stir with 
   
 Then you pour the "ripe" kefir through the strainer into another clean jar.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)[![kefir grains ...stirring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a81b0970b.jpg "kefir grains ...stirring")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a81b0970b-1024x768-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)![kefir grains ...stirring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a81b0970b-1024x768-1.jpg)  
   
   
 Sometimes you need a little help, so just use the spoon to move the grains around a bit, so the liquid kefir can get through the strainer.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)[![kefir grains](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658a38970d.jpg "kefir grains")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658a38970d-300x225-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)![kefir grains](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658a38970d-300x225-1.jpg)  
   
   
 This is what kefir grains look like! They are not really grains, but quite magical and they grow as you use them. Eating the extra is very good for you or you can pull some off to start your coconut kefir or give some to a friend. You will come to love your magical kefir grains!  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163069d241e970d-1024x768-1.jpg)[![making more healthy kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f6e77970c.jpg "making more healthy kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f6e77970c-150x150-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163069d241e970d-1024x768-1.jpg)![making more healthy kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f6e77970c-150x150-1.jpg)  
   
   
 Then you just use your spoon to move the kefir grains into a clean jar.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163069d241e970d-1024x768-1.jpg)[![IMG_3095](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f6f0c970c.jpg "IMG_3095")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f6f0c970c-1024x768-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163069d241e970d-1024x768-1.jpg)![IMG_3095](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f6f0c970c-1024x768-1.jpg)  
   
   
 Plop! That's it, now you are ready to make more kefir.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)[![pouring milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658c37970d.jpg "pouring milk")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658c37970d-150x150-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)![pouring milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658c37970d-150x150-1.jpg)  
   
   
 Add milk to the grains.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)[![how to make kefir tutorial - end product](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f7052970c.jpg "how to make kefir tutorial - end product")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f7052970c-768x576-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016767933aca970b-150x150-1.jpg)![how to make kefir tutorial - end product](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176167f7052970c-768x576-1.jpg)  
   
   
 Top it with a clean dish towel and a rubber band to hold in place and put in a warm dark place like in a kitchen cabinet for 12 to 24 hours. That's it! When it is ready you drink it or put it in the refrigerator.  

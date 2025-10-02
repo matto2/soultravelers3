@@ -18,7 +18,7 @@ tags:
   - "travel-teen-mozart-charity"
 ---
 
-[![6a00e5502a9507883301a73d90994a970d-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d90a18f970d.png "6a00e5502a9507883301a73d90994a970d-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d90a18f970d.png)Thanks for Helping Mozart Build School in Guatemala with PoP!  
+![6a00e5502a9507883301a73d90994a970d-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d90a18f970d.png)Thanks for Helping Mozart Build School in Guatemala with PoP!  
   
 Great big gratitude hugs to all  
 those who supported Mozart's charity  
@@ -27,7 +27,7 @@ fundraiser with Pencils of Promise to
 <!--more-->  
   
   
-[![Travel teen Mozart's fundraisor builds a school in Guatemala with POP ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d90994a970d.png "Travel teen Mozart's fundraisor builds a school in Guatemala with POP ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d90994a970d.png)  
+![Travel teen Mozart's fundraisor builds a school in Guatemala with POP ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d90994a970d.png)  
   
 Great big gratitude hugs to all those who supported [Mozart's charity fundraiser](http://fundraise.pencilsofpromise.org/fundraise?fcid=290456 "RTW TEEN Mozart's fundraiser") with [Pencils of Promise](http://soultravelers3new.local/2013/12/pencils-of-promise-help-us-build-a-school-in-.html "Mozart teen and pencils of promise charity") to build a school in Xecotz, Guatemala where it is badly needed.  
   
@@ -50,7 +50,7 @@ Mozart was thrilled with this news to find out that with us all working together
   
 What a fantastic lesson to learn first-hand as a young teen, that working together we CAN [change the world](http://soultravelers3new.local/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html "Teen singer and travel kid Mozart speech about changing the world"). These kids are happy and Mozart is happy, so I thank you all from the bottom of my heart!  
   
-[![Teen Mozart so happy to see the kids in their new school from her fundraiser with Pencils of Promise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d909988970d.png "Teen Mozart so happy to see the kids in their new school from her fundraiser with Pencils of Promise")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d909988970d.png)  
+![Teen Mozart so happy to see the kids in their new school from her fundraiser with Pencils of Promise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d909988970d.png)  
   
 I highly recommend you read [Adam Braun](http://adambraun.com/ "Adam Braun")'s new book, _The Promise of a Pencil - How an Ordinary Person can Create Extraordinary Change"_ or see if there is something more for you at [Pencils of Promise](http://www.pencilsofpromise.org/ "Pencils of Promise").  
   

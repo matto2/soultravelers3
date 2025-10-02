@@ -16,13 +16,13 @@ tags:
   - "third-world-asia"
 ---
 
-[![IMG_2880](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766abe446970b.jpg "IMG_2880")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766abe446970b.jpg)Living in Asia  
+![IMG_2880](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016766abe446970b.jpg)Living in Asia  
   
 Living in Asia is so  
 full of contrasts and  
 always full of adventure
 
-<!--more--> [![Living in Asia ..typical, .tropical amusements](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebad7298970c.jpg "Living in Asia ..typical, .tropical amusements")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebad7298970c.jpg)  
+<!--more--> ![Living in Asia ..typical, .tropical amusements](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ebad7298970c.jpg)  
   
   
 [Living in Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "living in asia") is so full of contrasts and always full of adventure and surprises when you wander about and get a feel for the local people and lifestyle during [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel"). In this photo ,a Chinese man in his [rickshaw](http://soultravelers3new.local/2011/01/family-travel-asia-photo-georgetown-malaysia.html "rickshaw asia") reads the paper while waiting for a customer. Bicycle Tuk Tuks like these are every where in the city and part of the charm from days gone by.  

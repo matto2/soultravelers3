@@ -14,14 +14,14 @@ tags:
   - "old-beijing-hutongs"
 ---
 
-[![IMG_7438](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55f3a21970d.jpg "IMG_7438")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55f3a21970d.jpg)Real Beijing  
+![IMG_7438](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55f3a21970d.jpg)Real Beijing  
 Hutong Nights
 
 Where is the real  
 Beijing? Most people  
 will tell you it is in
 
-<!--more--> [![Colorful Beijing Hutong area at night](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55f3b16970d.jpg "Colorful Beijing Hutong area at night")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55f3b16970d.jpg)
+<!--more--> ![Colorful Beijing Hutong area at night](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55f3b16970d.jpg)
 
 Where is the real [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "best of beijing travel")? Most people will tell you it is in the [Beijing Hutong area](http://soultravelers3new.local/2012/11/yum-loving-the-food-in-beijing.html "beijing hutong area food") because it exemplfies the history and culture of [old Beijing](http://soultravelers3new.local/2012/11/-summer-palace-sunset-in-beijing-china.html "old beijing travel spots").  
   

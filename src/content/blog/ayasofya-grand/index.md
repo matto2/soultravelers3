@@ -16,7 +16,7 @@ grazing the domed
 
 <!--more-->
 
-[![Img_2213](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2213.png "Img_2213")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2213.png)
+![Img_2213](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2213.png)
 
 For 1000 years, Ayasofya was Christendom’s largest church and triumphant symbol of Byzantium and is so large that the Statue of Liberty would easily fit inside with the top of the torch not grazing the domed ceiling. It is also called the Church of Holy Wisdom as well as Hagia Sophia, Sancta Sophia or Saint Sophia. The giant dome is about fifteen stories high (184 ft. or 56 m.) and 102 ft (31m) wide and gold mosaics cover the entire interior. At its peak Ayasofya’s gold mosaics covered four acres of space!
 
@@ -43,26 +43,26 @@ They met a seventy five year old man that gave them a tour and did show them to 
 
 It is the ultimate tourist trap, so of course Mozart loved it from the jewelry to the material and every useless knick-knack she saw. The many treasures of this land will have us talking Turkey for a long time to come!
 
-[![Img_2219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2219.png "Img_2219")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2219.png)
+![Img_2219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2219.png)
 
-[![Img_2251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2251.png "Img_2251")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2251.png)
+![Img_2251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2251.png)
 
-[![Img_2190](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2190.png "Img_2190")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2190.png)
+![Img_2190](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2190.png)
 
-[![Img_2200](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2200.png "Img_2200")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2200.png)
+![Img_2200](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2200.png)
 
-[![Img_2220](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2220.png "Img_2220")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2220.png)
+![Img_2220](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2220.png)
 
-[![Img_2235](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2235.png "Img_2235")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2235.png)
+![Img_2235](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2235.png)
 
-[![Img_2246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2246.png "Img_2246")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2246.png)
+![Img_2246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2246.png)
 
-[![Img_2206](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2206.png "Img_2206")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2206.png)
+![Img_2206](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2206.png)
 
-[![Img_1832](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_1832.png "Img_1832")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1832.png)
+![Img_1832](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_1832.png)
 
-[![Img_2259](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2259.png "Img_2259")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2259.png)
+![Img_2259](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2259.png)
 
-[![Img_2271](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2271.png "Img_2271")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2271.png)
+![Img_2271](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2271.png)
 
-[![Img_2267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/01/img_2267.png "Img_2267")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2267.png)
+![Img_2267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/01/img_2267.png)

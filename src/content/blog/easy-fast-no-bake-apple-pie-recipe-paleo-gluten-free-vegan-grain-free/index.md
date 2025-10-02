@@ -25,7 +25,7 @@ tags:
   - "wapf-apple-pie-recipe"
 ---
 
-[![IMG_5594_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da511a3970d.jpg "IMG_5594_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da511a3970d.jpg)Easy, Fast, No Bake Apple Pie Recipe:  
+![IMG_5594_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da511a3970d.jpg)Easy, Fast, No Bake Apple Pie Recipe:  
 Paleo, Gluten-free, Vegan, Grain-free  
   
 Who doesn't love a delicious, fast,  
@@ -33,7 +33,7 @@ easy, healthy dessert? This scrumptious
 apple pie recipe is paleo, gluten-free
 
 <!--more-->  
-[![Easy, Fast, No Bake Apple Pie Recipe: gluten free, raw pie crust ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da5e4df970d.png "Easy, Fast, No Bake Apple Pie Recipe: gluten free, raw pie crust ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da5e4df970d.png)  
+![Easy, Fast, No Bake Apple Pie Recipe: gluten free, raw pie crust ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da5e4df970d.png)  
   
   
 Who doesn't love a delicious, fast, easy, healthy dessert? This scrumptious apple pie recipe is paleo, gluten-free, grain-free, including a raw pie crust and with a minor tweak works for vegans too.  
@@ -42,14 +42,14 @@ Who doesn't love a delicious, fast, easy, healthy dessert? This scrumptious appl
   
 With a [teen](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Mozart talented teen singer, songwriter, musician") in the house, I am becoming an expert in this area of fast, creative, healthy recipes even on our [non-stop #RTW trip](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "around-the-world family travel") , as a [minimalist family](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist family") with unique challenges like not having an oven, only 3 pans, 2 burners and no pie pan at the moment in our [extended-stay hotel](http://soultravelers3new.local/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "best extended stay hotel in dallas - Hawthorn Suites Addison"). ( We have a micro-wave, but don't use it).  
   
-[![5 ingredients  IMG_5594_2Easy, Fast, No Bake Apple Pie Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb2f35970b.png "5 ingredients  IMG_5594_2Easy, Fast, No Bake Apple Pie Recipe:")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb2f35970b.png)  
+![5 ingredients  IMG_5594_2Easy, Fast, No Bake Apple Pie Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb2f35970b.png)  
   
 **EASY HEALTHY RECIPES**  
   
 Like all my super [healthy dessert recipes](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html "healthy fast chocolate ice cream recipe paleo no machine"), I like to keep things easy and simple ( ie [chocolate cake](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html "best paleo chocolate cake recipe"), [banana bread](http://soultravelers3new.local/2013/08/healthy-banana-bread-recipe-paleogapsgluten-free.html "banana bread healthy recipe paleo GAPS grain-free"), [clafouti](http://soultravelers3new.local/2013/07/yum-super-healthy-dessert-recipe-paleo-mango-clafouti.html "healthy clafouti paleo dessert"), [chocolate covered strawberries](http://soultravelers3new.local/2014/03/how-to-recipe-for-chocolate-strawberries-paleo-vegetarian.html "chocolate covered strawberry recipe paleo and vegan"), [ice cream with out machine](http://soultravelers3new.local/2013/05/easy-healthy-homemade-ice-cream-no-machine-.html#more "healthy ice cream no machine") etc.)  
   
   
-[![YUM!  Easy, Fast, No Bake Apple Pie Recipe:raw pie crust ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ad87d970c.png "YUM!  Easy, Fast, No Bake Apple Pie Recipe:raw pie crust ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ad87d970c.png)  
+![YUM!  Easy, Fast, No Bake Apple Pie Recipe:raw pie crust ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ad87d970c.png)  
   
   
 **HEALTHY TREATS**  
@@ -58,7 +58,7 @@ Since we have been not eating ANY grains, legumes, processed food or sugar, with
   
 Mozart and her dad have a sweet tooth and are crazy about apple desserts so I make this for them mostly and they love it. They are both very fussy and very particular eaters, so you know it must be good.  
   
-[![adding raw honey to the raw  dough](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb30c4970b.png "adding raw honey to the raw  dough")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb30c4970b.png)  
+![adding raw honey to the raw  dough](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb30c4970b.png)  
   
   
 **FAST RAW PIE CRUST IN 30 SECONDS**!  
@@ -69,13 +69,13 @@ I love that I can make it as a fast and spontaneous idea, since it takes few ing
   
 Chop the apples and simmer in a fry pan on the stove in some organic coconut oil and cinnamon while you make the raw pie crust.  
   
-[![Best raw pie crust!! Easy, Fast, No Bake  Pie Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ad9d4970c.png "Best raw pie crust!! Easy, Fast, No Bake  Pie Recipe:")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ad9d4970c.png)  
+![Best raw pie crust!! Easy, Fast, No Bake  Pie Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ad9d4970c.png)  
   
 **NO ROLLING PIN NEEDED AND NO-BAKE**  
   
 Use your fingers to fill the pie pan or in my case, just a shallow bowl as it works fine too and won't go in an oven. You can use a fork to make that pie-look around the edges, but not really needed.  
   
-[![Easy, Fast, No Bake Apple Pie Recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da5e6e7970d.png "Easy, Fast, No Bake Apple Pie Recipe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da5e6e7970d.png)  
+![Easy, Fast, No Bake Apple Pie Recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73da5e6e7970d.png)  
 **CHILL TO SET**  
   
 Put the bowl in the freeze for a few moments as that is how you "bake" this pie. When the apples are soft and sweet, put them in the pie crust. Really you can stop there, but if you want to get fancier add a top.  
@@ -84,7 +84,7 @@ Put the bowl in the freeze for a few moments as that is how you "bake" this pie.
   
 I added chopped, fresh stevia to this batch of apples, but it is not really necessary and I likely will not do it again. You can add honey or maple syrup to the apples mix, but we find it unnecessary and healthier to avoid extra fructose.  
   
-[![Best Easy, Fast, No Bake  Pie Crust Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb3190970b.png "Best Easy, Fast, No Bake  Pie Crust Recipe:")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb3190970b.png)  
+![Best Easy, Fast, No Bake  Pie Crust Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb3190970b.png)  
   
 **TOP OR NOT**  
   
@@ -94,7 +94,7 @@ For this pie I happened to add the top ( depends on my mood). Just "roll out" so
   
 Vegans can just omit the raw honey ( if they don't eat it) and replace with pure Maple Syrup and replace the grass fed butter with all coconut oil.  
   
-[![Easy, Fast, No Bake Apple Pie Recipe:gluten free , grain free, paleo, vegan, healthy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb31ae970b.png "Easy, Fast, No Bake Apple Pie Recipe:gluten free , grain free, paleo, vegan, healthy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb31ae970b.png)  
+![Easy, Fast, No Bake Apple Pie Recipe:gluten free , grain free, paleo, vegan, healthy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fceb31ae970b.png)  
   
 **TASTE AND** **TEXTURE**  
   
@@ -104,7 +104,7 @@ The only bad news about this pie is it crumbles easily, so doesn't hold it's sha
   
 We sometimes top it and make a "pie a la mode" style with either Greek Yogurt made with [raw milk](http://soultravelers3new.local/2013/04/raw-milk-fast-and-cure.html "raw milk") or [homemade ice cream](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html "home made ice cream recipe without a machine"). I make a homemade French Vanilla ice cream without a machine, just omitting the raw cacao and using organic vanilla instead. In Asia I used [coconut](http://soultravelers3new.local/2012/08/-superfood-healthy-coconut-tropical-nourishing-tradition-in-asia.html "coconut milk health benefits") milk, but here I mostly use raw milk because it is easier and cheaper here ( and not processed at all or in a can). The taste is similar, so it is a matter of preference.  
   
-[![Paleo Pie a la mode! Easy, Fast, No Bake Apple Pie Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ada89970c.png "Paleo Pie a la mode! Easy, Fast, No Bake Apple Pie Recipe:")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ada89970c.png)  
+![Paleo Pie a la mode! Easy, Fast, No Bake Apple Pie Recipe:](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5119ada89970c.png)  
   
 **RECIPE FOR PALEO APPLE PIE**  
   

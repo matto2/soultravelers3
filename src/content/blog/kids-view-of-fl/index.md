@@ -6,7 +6,7 @@ categories:
   - "italy"
 ---
 
-[![Img_5634](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5634.png "Img_5634")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5634.png) Kid's View Of Florence!  
+![Img_5634](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5634.png) Kid's View Of Florence!  
 March 11, 2008
 
 Florence can be a fascinating place for  
@@ -17,7 +17,7 @@ around amongst great art.
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5634_2.png)
 
-[![Img_5634_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5634_3.png "Img_5634_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5634_3.png)
+![Img_5634_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5634_3.png)
 
 Florence can be a fascinating place for kids and it is a great city for walking around amongst great art.  
 I think family travel with kids should always include museums and it is often the best part of cities for children. Part of the key is to do museums in a different way as a family and also preparing well before going, to make the experience richer. 
@@ -34,26 +34,26 @@ We are in the habit now of buying a plain notebook before we start in a museum a
 
 She loves museum tours, so she decided to make this book a tour of the museums and she was constantly occupied writing away in it and making quick thumbnails of the paintings and sculptures that she liked. I had to smile when I looked at what she had put down, when we got back to the RV one night and after she had fallen asleep. Some day she is going to giggle at her just-turned-seven thumbnail of Michelangelo’s David, misspelling of Botticelli as Botechelley and attempt at a sophisticated French good bye with an “Avua” at the end.
 
-[![Img_6058](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6058.png "Img_6058")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6058.png)
+![Img_6058](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6058.png)
 
-[![Img_5598](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5598.png "Img_5598")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5598.png)
+![Img_5598](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5598.png)
 
-[![Img_5030](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5030.png "Img_5030")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5030.png)
+![Img_5030](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5030.png)
 
-[![Img_6061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6061.png "Img_6061")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6061.png)
+![Img_6061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6061.png)
 
-[![Img_6062](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6062.png "Img_6062")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6062.png)
+![Img_6062](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6062.png)
 
-[![Img_6075](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6075.png "Img_6075")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6075.png)
+![Img_6075](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6075.png)
 
-[![Img_5707](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_5707.png "Img_5707")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5707.png)
+![Img_5707](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_5707.png)
 
-[![Img_6080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6080.png "Img_6080")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6080.png)
+![Img_6080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6080.png)
 
-[![Img_6092](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6092.png "Img_6092")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6092.png)
+![Img_6092](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6092.png)
 
-[![Img_4885](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_4885.png "Img_4885")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4885.png)
+![Img_4885](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_4885.png)
 
-[![Img_6094](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6094.png "Img_6094")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6094.png)
+![Img_6094](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6094.png)
 
-[![Img_6089](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/22/img_6089.png "Img_6089")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6089.png)
+![Img_6089](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/22/img_6089.png)

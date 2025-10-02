@@ -12,7 +12,7 @@ tags:
   - "writing-travel"
 ---
 
-  [![Picture 13](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f174fd52970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f174fd52970b.jpg) Travel Blogger Love FollowFriday on Twitter  
+  ![Picture 13](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f174fd52970b.jpg) Travel Blogger Love FollowFriday on Twitter  
 June 18th, 2010
 
 Do you like Twitter? It's been an  
@@ -21,7 +21,7 @@ our peripatetic global journey as 
 
 <!--more-->
 
-[![Picture 13](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f174fe57970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f174fe57970b.jpg)
+![Picture 13](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f174fe57970b.jpg)
 
 Do you like Twitter? It's been an unexpected an  amazing help on our [peripatetic global journey](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) as we knew nothing about [social media with travel](http://dannybrown.me/2010/04/07/social-media-and-travel-by-jeanne-dee/)  before we began our [family world tour in 2006](http://soultravelers3new.local/2006/08/timing-is-eve-1.html). I wrote a while ago about [Twitter & Travel 2.0](http://soultravelers3new.local/2009/02/twitter-travel-20.html) and I recently commented to [Chris Guillebeau](http://chrisguillebeau.com/3x5/) on [The Art of Non-conformity](http://chrisguillebeau.com/3x5/) when I agreed with him about it's surprising value;
 

@@ -25,7 +25,7 @@ tags:
 ---
 
   
-[![Screen Shot 2015-04-15 at 2.25.36 AM](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0827ebd6970d.jpg "Screen Shot 2015-04-15 at 2.25.36 AM")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0827ebd6970d.jpg)Teen Singer Mozart's Speech at  
+![Screen Shot 2015-04-15 at 2.25.36 AM](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0827ebd6970d.jpg)Teen Singer Mozart's Speech at  
 NAACE Conference to UK Educators!  
   
 14 year old trilingual singer/songwriter  
@@ -34,7 +34,7 @@ UK educators at the NAACE Conference
 
 <!--more-->  
   
-[![Teen Singer Mozart speech at NAACE conference](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d111f435970c.png "Teen Singer Mozart speech at NAACE conference")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d111f435970c.png)  
+![Teen Singer Mozart speech at NAACE conference](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d111f435970c.png)  
   
   
 
@@ -64,32 +64,32 @@ UK educators at the NAACE Conference
   
 [Global Citizens and Languages](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html "Global citizens and language immersion")
 
- [Friends on our ULTIMATE Family Adventure](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends on our family travel adventure") [![Mozart the world traveling kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf14e970d.png "Mozart the world traveling kid")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf14e970d.png)[  
+ [Friends on our ULTIMATE Family Adventure](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends on our family travel adventure") ![Mozart the world traveling kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf14e970d.png)[  
   
 ](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends on our family travel adventure")[Mozart](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "teen singer Mozart") [was interviewed by](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends on our family travel adventure") [Drew Buddie](https://twitter.com/digitalmaverick "digitalmaverick") [who is an educational technologist and teacher in the UK.](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends on our family travel adventure")
 
   
 We actually met him about 7 years ago when we were in [Spain](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html "learning spanish in spain") and Mozart was taking a [Johns Hopkins University CTY](http://cty.jhu.edu "johns hopkins cty") online course. Finding the English books required in Spain was a challenge, I mentioned it on Twitter and like magic he came to our rescue and sent them from the UK.
 
-  [![Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f876970b.png "Teen Singer Mozart's Speech at NAACE Conference to UK Educators!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f876970b.png)
+  ![Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f876970b.png)
 
 He has always been on the cutting edge  of tech in education, enjoys creativity and our unusual story, so asked Mozart if she would participate via Skype. 
 
-  [![travel teen and singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f8ea970b.png "travel teen and singer Mozart")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f8ea970b.png)
+  ![travel teen and singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f8ea970b.png)
 
 It went so well, they said, they would ask her back in person next  year! We recorded the Skype session so did a Youtube video to share the experience with all.  
   
-[![Mozart exploring museums around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf1da970d.png "Mozart exploring museums around the world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf1da970d.png)  
+![Mozart exploring museums around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf1da970d.png)  
   
   
 Things have changed greatly since we started our location independent lifestyle in 2005 and took off to Europe in 2006. No smart phones then or social media, we had to start out with a huge portable satellite!  
   
 
-  [![Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f90f970b.png "Teen Singer Mozart's Speech at NAACE Conference to UK Educators!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f90f970b.png)
+  ![Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f90f970b.png)
 
 Nevertheless, tech, the internet and social media had a huge impact on our trip and her education. We never expected these changes when we left. 
 
-  [![Teen Singer Mozart learning around the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf1fe970d.png "Teen Singer Mozart learning around the world ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf1fe970d.png)
+  ![Teen Singer Mozart learning around the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb082cf1fe970d.png)
 
 [Mozart](http://soultravelers3new.local/2014/10/mozart-sings-at-the-house-of-blues.html "teen singer Mozart sings at house of blues") shared about her song You’re Not Alone that is going to be in a movie soon! She wrote it to help the cause of Human Trafficking.  
   
@@ -109,12 +109,12 @@ Her song [Ashes](https://www.youtube.com/watch?v=c3_kNH3RU3Y "\"Ashes\" by Mozar
 
 She has a new fast song out called Round The world which is about to be released thanks to the help she is getting from fans on her [GoFundMe](http://www.gofundme.com/t7q2nx8%20 "gofundme for Mozart's music") ( that you are welcome to participate in!).   
   
-[![Travel kid Mozart playing violin in  a gondola in Venice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f92b970b.png "Travel kid Mozart playing violin in  a gondola in Venice")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f92b970b.png)  
+![Travel kid Mozart playing violin in  a gondola in Venice](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f92b970b.png)  
   
 
 We didn’t know how her education would affect her, but we see now that her travels, her languages ( fluent Mandarin and Spanish) and unusual education has had a huge effect on her music and a blossoming career that is taking off early. 
 
-  [![Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f93b970b.png "Teen Singer Mozart's Speech at NAACE Conference to UK Educators!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f93b970b.png)
+  ![Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c788f93b970b.png)
 
 **WORLDSCHOOL TO COLLEGE**
 

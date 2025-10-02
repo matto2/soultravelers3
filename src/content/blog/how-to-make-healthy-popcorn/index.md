@@ -14,13 +14,13 @@ tags:
   - "the-best-popcorn"
 ---
 
-[![IMG_4063](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676848f3fe970b.jpg "IMG_4063")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676848f3fe970b.jpg)How to Make Healthy Popcorn
+![IMG_4063](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676848f3fe970b.jpg)How to Make Healthy Popcorn
 
 Did you know that some  
 popcorn can be dangerous  
 to your health? It was listed
 
-<!--more--> [![How to make healthy popcorn](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676848f4dd970b.jpg "How to make healthy popcorn")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676848f4dd970b.jpg)  
+<!--more--> ![How to make healthy popcorn](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676848f4dd970b.jpg)  
   
 Did you know that some popcorn can be dangerous to your health? It was listed recently,  as one of the [8 Alarmingly Unhealthy Snacks for Kids](http://shine.yahoo.com/parenting/8-alarmingly-unhealthy-snacks-kids-201400865.html "8 unhealthy snacks for kids") and some say [microwave popcorn is toxic](http://www.naturalnews.com/034386_microwave_popcorn_diacetyl_lungs.html "popcorn is toxic") and can cause cancer.  
   

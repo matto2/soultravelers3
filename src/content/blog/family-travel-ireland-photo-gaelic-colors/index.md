@@ -15,13 +15,13 @@ tags:
   - "visiting-ireland-with-kids"
 ---
 
-[![IMG_8198](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431f2de19970c.jpg "IMG_8198")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431f2de19970c.jpg) Family travel Ireland: Photo Gaelic Colors
+![IMG_8198](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431f2de19970c.jpg) Family travel Ireland: Photo Gaelic Colors
 
 Ireland is a popular  
 destination for American  
 tourists because so many
 
-<!--more--> [![Family travel Ireland: Photo Gaelic Colors](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1fb9f0970b-scaled.jpg "Family travel Ireland: Photo Gaelic Colors")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1fb9f0970b-scaled.jpg)  
+<!--more--> ![Family travel Ireland: Photo Gaelic Colors](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e1fb9f0970b-scaled.jpg)  
   
   
   

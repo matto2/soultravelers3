@@ -24,14 +24,14 @@ tags:
   - "winning-speech-contest"
 ---
 
-[![IMG_6420_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94c7cd7970d.jpg "IMG_6420_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94c7cd7970d.jpg)Mandarin TED Talk? American  
+![IMG_6420_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94c7cd7970d.jpg)Mandarin TED Talk? American  
 Kid's Inspiring Speech  
   
 Wow! Mandarin TED Talk or not,  
 this American girl's inspiring  
 Chinese speech about Lao Tzu got
 
-<!--more--> [![IMG_6420_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41d8b49e970c.jpg "IMG_6420_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41d8b49e970c.jpg)  
+<!--more--> ![IMG_6420_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41d8b49e970c.jpg)  
   
   
 Wow! Mandarin TED Talk or not, this [American girl's inspiring Chinese speech](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "Beautiful American girl in Chinese school") about Lao Tzu got her a [big fat trophy](http://soultravelers3new.local/2011/04/chinese-school-trophy-girl-.html "big fat trophy for elocution contest") from her 1000 kid [Chinese High School in Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Chinese high school in Asia") and a feather in her cap forever. She [won the English Elocution](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "beautiful girl won english elocution contest speech") at this school at 10, but decided to go for the even harder [Mandarin](http://soultravelers3new.local/2012/02/mandarin-chinese-learning-at-home-and-abroad.html "learning Mandarin at home and abroad") option this year and as well as writing her own speech ( rarely done) for the Chinese elocution contest and was the only non-Asian to compete in it.   
@@ -48,22 +48,22 @@ Since Mandarin ( Pǔtōnghuà 普通话) is the native and dominant tongue here 
 Of course, all the judges were Chinese.  
   
   
-[![IMG_6434](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94d0c40970d.jpg "IMG_6434")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94d0c40970d.jpg)  
+![IMG_6434](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94d0c40970d.jpg)  
   
 She had to decide if she should compete in the English and Chinese, or focus on just one.  
   
-[![IMG_6433](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94d11b5970d.jpg "IMG_6433")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94d11b5970d.jpg)  
+![IMG_6433](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee94d11b5970d.jpg)  
   
   
 We think she went for the right choice to do just one this year because it's mid-term exam time here, so she didn't want to split her energy in too many directions. Funnily, the principal who knows she is excellent at public speaking, told her she should have done both. Maybe next year.  
   
-[![IMG_6447](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41d92d2c970c.jpg "IMG_6447")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41d92d2c970c.jpg)  
+![IMG_6447](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41d92d2c970c.jpg)  
   
 She loves competition and trophies, so now she has collected her third here ( she also placed in the [singing competition](http://soultravelers3new.local/2012/11/chinese-school-fun.html "singing competition chinese school") last year and was the youngest finalist, for another trophy, but we only used her elocution trophies for this impromptu photo session to celebrate.  
   
   
   
-[![IMG_6431](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37a9ebcb970b.jpg "IMG_6431")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37a9ebcb970b.jpg)  
+![IMG_6431](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c37a9ebcb970b.jpg)  
   
 We were absolutely thrilled when she made the finals as we considered that alone as a major win, especially since she had been told by her teacher that it was a 4 minute speech and then found out at the final she had to shorten it to 3 minutes.  
   

@@ -17,13 +17,13 @@ tags:
   - "visiting-arles"
 ---
 
-[![IMG_7768](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676480d712970b.jpg "IMG_7768")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676480d712970b.jpg)Arles, France Vacation  
+![IMG_7768](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676480d712970b.jpg)Arles, France Vacation  
   
 During our many  
 years of road trips  
 around Europe, we've
 
-<!--more--> [![Arles France..beautiful Roman arena](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038bde00970d.jpg "Arles France..beautiful Roman arena")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038bde00970d.jpg)  
+<!--more--> ![Arles France..beautiful Roman arena](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330163038bde00970d.jpg)  
   
   
 During our many years of [road trips around Europe](During our many years of road trips around Europe, we've managed to find some  "road trips around Europe"), we've managed to find some of the [best European vacation spots](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "Best European vacation spots") to explore and relax luxuriously on a low budget and [Provence](http://soultravelers3new.local/2010/11/family-travel-provence-france-narbonne.html "Provence travel") is one of our favorite areas that we return to regularly. I love this photo, don't you? Brings back happy memories!  

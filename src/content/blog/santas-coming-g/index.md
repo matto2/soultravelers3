@@ -14,7 +14,7 @@ shopping yet! No worries, there is plenty of
 
 <!--more-->
 
-[![Img_4069_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_4069_2.jpg "Img_4069_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4069_2.jpg)
+![Img_4069_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4069_2.jpg)
 
 Yikes! Christmas is a week a way and if you are like us, you have not even started shopping yet! No worries, there is plenty of time if you do it online. No matter what holiday you are celebrating, we have lots of good suggestions!
 
@@ -39,7 +39,7 @@ Are toys on your list? Do you have a munchkin like us?
 The Amazon link above features all the favorite toys by age which is a big help. We also love the things at [National Geographic](http://shop.nationalgeographic.com/jump.jsp?itemID=1&itemType=HOME_PAGE&code=MR10054) for kids and adults. I have lots of reviews on books up, but still working on toys. Hopefully we will get more caught up with things by next Christmas. What can I say, traveling and building  
 a website are not the most compatible vocations.
 
-[![Img_3176](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3176.jpg "Img_3176")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_3176.jpg)
+![Img_3176](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_3176.jpg)
 
 Have you heard about [Hiefer International](http://www.heifer.org/) ? It is a wonderful non-profit that has been doing awe inspiring things to end poverty and world hunger for sixty years. I am proud to say some travel blogging friends of mine from Seattle (**[Nerd's Eye View](http://www.nerdseyeview.com/), [Wanderlust and Lipstick](http://www.wanderlustandlipstick.com/), [WanderMom](http://wanderlustandlipstick.com/blogs/wandermom/), and [DeliciousBaby](http://www.deliciousbaby.com/))** got together for coffee and came up with a great way that all the travel bloggers can help and participate, along with their readers.
 

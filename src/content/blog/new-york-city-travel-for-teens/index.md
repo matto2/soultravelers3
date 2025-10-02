@@ -29,7 +29,7 @@ tags:
   - "what-to-do-with-teens-nyc"
 ---
 
-[![IMG_7340](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fd725d970d.jpg "IMG_7340")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fd725d970d.jpg)New York City Travel for Teens!   
+![IMG_7340](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fd725d970d.jpg)New York City Travel for Teens!   
   
   
 Planning a trip to New York City  
@@ -37,7 +37,7 @@ with teens and looking for ideas 
 that will keep even the most picky
 
 <!--more-->  
-[![Teens travel tips for New York City ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe6794970d.png "Teens travel tips for New York City ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe6794970d.png)  
+![Teens travel tips for New York City ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe6794970d.png)  
   
   
 Planning a trip to [New York City](http://soultravelers3new.local/2014/09/cool-new-york-city-vacation-rental-with-flipkey.html "new york city filpkey rental ") with teens and looking for ideas that will keep even the most picky teenager [excited and engaged](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html "teen reporting at New York fashion week") in the Big Apple? Luckily, NYC is so full of a huge variety of things to do there won't be time for any eye-rolling adolescent angst or drama.   
@@ -50,21 +50,21 @@ Our [world-traveling](http://soultravelers3new.local/2013/09/the-most-well-trave
   
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1e49eae970c-150x150.png)She has been [around the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family traveling around the world ") a few times with us as a family, but this time, she wanted to go on her own...(well with a good friend and her mom), and these two teens planned their own trip.   
   
-[![New York City Travel for Teens! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c85ae27f970b.png "New York City Travel for Teens! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c85ae27f970b.png)
+![New York City Travel for Teens! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c85ae27f970b.png)
 
 They only had a weekend and I made suggestions like seeing a Broadway show again, the [Metropolitan Museum of Art](http://soultravelers3new.local/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "kids at Metropolitan Museum of Art nyc") again, Rockefeller Center again ( Top of the Rock) , TMZ Celebrity Tour, MOMA, Madame Tussauds, boat around Manhattan, Empire State Building, Statue of Liberty etc., as possible ideas. 
 
-  [![New York City Travel for Teens! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1e4a931970c.png "New York City Travel for Teens! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1e4a931970c.png)  
+  ![New York City Travel for Teens! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1e4a931970c.png)  
   
 Mozart's friend Maggie had never been to New York or been on a plane, nor had her mother, so they delighted in the adventure. They loved just walking around and enjoying the sights as even the buildings, traffic and fire stations are exciting in this city.
 
-[![New York City Travel for Teens!  ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe725a970d.png "New York City Travel for Teens!  ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe725a970d.png)  
+![New York City Travel for Teens!  ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe725a970d.png)  
    
 They took a ferry that stopped at the Statue of Liberty, Wall Street, and Ground Zero Memorial and relished learning a little history in this fun way.  
   
 They loved going to M&M's World in Time Square as well as the NBC Experience store where they pretended they were on the Voice and bought some "Friends" souvenirs. 
 
-  [![New York City Travel for Teens! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe7277970d.png "New York City Travel for Teens! ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe7277970d.png)
+  ![New York City Travel for Teens! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08fe7277970d.png)
 
 They got some famous cannoli at the famous Carlos Bakery from Cake Boss TV show. 
 

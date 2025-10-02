@@ -21,14 +21,14 @@ tags:
   - "tips-for-language-learning-for-kids"
 ---
 
-[![IMG_5884](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee71d9726970d.jpg "IMG_5884")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee71d9726970d.jpg)Raising a Bilingual Child - 
+![IMG_5884](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee71d9726970d.jpg)Raising a Bilingual Child - 
 or Trilingual  
   
 Can monolingual parents  
 find it easy raising a bilingual  
 child or a trilingual or even
 
-<!--more--> [![raising a bilingual or trilingual kid including 2nd language literacy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c357a6635970b.jpg "raising a bilingual or trilingual kid including 2nd language literacy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c357a6635970b.jpg)  
+<!--more--> ![raising a bilingual or trilingual kid including 2nd language literacy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c357a6635970b.jpg)  
   
 
 Can monolingual parents find it easy [raising a bilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html#more "how to raise a bilingual kid") or a trilingual or even more multilingual speaking offspring? We say absolutely yes, anyone [CAN raise a bilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-3.html "how to raise a bilingual child") and defining  "easy" or "hard" primarily depends on attitude, commitment and depth of [second  language/literacy](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html "second language or bilingual literacy").  
@@ -44,18 +44,18 @@ We are firm believers in MIT Linguist Pinker’s quote  ”One free lunch in th
 
 I’ve written a lot about [language learning](http://soultravelers3new.local/2012/02/mandarin-chinese-learning-at-home-and-abroad.html) and our process on our blog and a 3 part  series  about [how to raise a multilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html)(even if the parents are monolingual).  
   
-[![learning languages makes a global kid- girl and globe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fa9bf12970c.jpg "learning languages makes a global kid- girl and globe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fa9bf12970c.jpg)  
+![learning languages makes a global kid- girl and globe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fa9bf12970c.jpg)  
   
   
 "Learning a new language forces a person to realign his whole system of ideas, to reorganize his entire world view, and to operate a higher level of intellectual mastery. Therefore, foreign language training provides a special intellectual training that cannot be offered by any other discipline." Vygotsky
 
 Learning more than one language is rare in the USA and interestingly more so around the world than we expected. Many people take languages in school, but can’t really use them, except in places where they view it as extremely important like Scandinavia, Holland, Malaysia, India etc. I am a perfect example as I was an  A student in Spanish, French and Latin, but can’t speak any of them. One learns languages best through immersion and using them.  
   
-[![2nd language literacy- learning young is key like these classic kids books in 2nd language](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee71e3e63970d.jpg "2nd language literacy- learning young is key like these classic kids books in 2nd language")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee71e3e63970d.jpg)
+![2nd language literacy- learning young is key like these classic kids books in 2nd language](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee71e3e63970d.jpg)
 
 It’s easiest to get languages early when young and many studies show that learning  languages young has many life long benefits like it helps with maths, task-switching capacities, creativity and even prevents cognitive decline in old age.  It broadens ones world in many, many ways. [Travel](http://www.chinatravel20.com/ "Beijing travel") to different countries where no one speaks your language/s helps a child to understand the importance of learning more than one language.  
   
-[![Chinese costume - fun for young Mandarin language learner](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fa9ce25970c.jpg "Chinese costume - fun for young Mandarin language learner")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fa9ce25970c.jpg)
+![Chinese costume - fun for young Mandarin language learner](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fa9ce25970c.jpg)
 
   
 "Foreign language learning is rich in the various types of learning or kinds of cognitive functioning (analyzing, discriminating, identifying, categorizing, inferring, including, deconstructing)....Given this principle, it is possible to argue that language study provides abundant practice in mental skills." Herron  
@@ -63,7 +63,7 @@ It’s easiest to get languages early when young and many studies show that lear
 We started language education in the womb and luckily we had friends who were native speakers in Spanish and Mandarin. We’ve found dipping into foreign schools ( in  
 [Spain](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html), [Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html) and [China](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html)) great for both immersion as well as [friendships](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friendships through travel") as we tend to return to these bases over years.  
   
-[![globe and books - languages expand our world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee72a3291970d.jpg "globe and books - languages expand our world")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee72a3291970d.jpg)  
+![globe and books - languages expand our world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee72a3291970d.jpg)  
   
 "In a world being reconstructed by information, the importance of communication is paramount to power in the new world view paradigm. As the world shifts from an agricultural/industrial- to an information/service-based economy, the focus is not on military supremacy, but for supremacy in the control and dissemination of information." - Alvin Toffler
 
@@ -76,19 +76,19 @@ This reminds me of a favorite song by Bobby McFerrin that says: “No discipline
 
 [Mandarin](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "learning mandarin in Asia") is a difficult language ( especially reading and writing) even for Chinese kids who are fluent and raised in it ( they spend more years learning it than English speaking kids do in learning theirs). Chinese culture is ancient, fascinating, wise and complex. [China](http://www.chinatravel20.com/ "china travel 2.0") is in a blossoming time and will continue to be due to demographics during my child’s entire life, so it was a logical choice for us. When we met friends who were fluent in Mandarin when she was a baby, it just clicked and made sense to take advantage of that.  
   
-[![learning Mandarin in RV in Spain with teacher in Malaysia via skype webcam- homeschool or worldschooling a trilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fb5afdd970c.jpg "learning Mandarin in RV in Spain with teacher in Malaysia via skype webcam- homeschool or worldschooling a trilingual")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fb5afdd970c.jpg)
+![learning Mandarin in RV in Spain with teacher in Malaysia via skype webcam- homeschool or worldschooling a trilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3fb5afdd970c.jpg)
 
 Even before having a child, it was always my goal to raise a multilingual child and one trained deeply in music. I think these disciplines add to life and can be passed down for generations if the value and importance  of them are also passed on. Being monolingual parents and not musically trained, we were at a disadvantage, but she will change that now in our lineage as she sees first hand the advantages and disadvantages of having these skills or not. Being the best at these in the family has allowed her to lead from a very early age and translate amongst different people.
 
 Our daughter Mozart was quite fluent in Mandarin at two, but we found it very difficult to maintain all 3 languages, so we dropped Mandarin for a while. Spanish is probably a more important language for an American to learn and is much easier to do there ( and in Spain) so we focused on those for a while.  
   
-[![bilingual and trilingual kids in Asia learning together](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee72a291e970d.jpg "bilingual and trilingual kids in Asia learning together")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee72a291e970d.jpg)
+![bilingual and trilingual kids in Asia learning together](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee72a291e970d.jpg)
 
 Once she was fluent as a native in Spanish and we saw how enriching that experience was in [Spain](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to winter in spain"), we decided to put the focus on Mandarin and Asia. She would like to learn many languages and many instruments, but we’ve put a limit on them in childhood to get them deeply and not split her energy in too many ways.
 
 No one can learn all the languages on this planet, so we’re focused on the most popular and she is interested in learning French next ( which should be a lot easier than written Mandarin and very easy due to her fluency in Spanish). That will allow her to speak to most people on this planet and hopefully have more compassion for other people and ways of  thinking.  
   
-[![Mandarin word for Love- in trilingual kids notebook ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3586f39c970b.jpg "Mandarin word for Love- in trilingual kids notebook ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3586f39c970b.jpg)
+![Mandarin word for Love- in trilingual kids notebook ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3586f39c970b.jpg)
 
 We see learning languages as a way to [greater peace on our planet](http://soultravelers3new.local/2012/12/sacred-asian-rituals-photo.html "greater peace on our planet kids creating"), for her and hopefully for the people she touches in her life. It was very obvious to us that knowing Spanish in Spain and Spanish-speaking countries and knowing Mandarin in China made her experience so much deeper. Part of our fun in China was the surprised and happy reaction from locals when they realized they could talk to her.  Makes one wish we could all speak all the beautiful languages of our planet!
 

@@ -18,13 +18,13 @@ tags:
   - "road-trip-vacation-in-europe"
 ---
 
- [![IMG_4395](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543320ef79970c.jpg "IMG_4395")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543320ef79970c.jpg) Road Trip Europe - Plan, Then Improvise!
+ ![IMG_4395](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543320ef79970c.jpg) Road Trip Europe - Plan, Then Improvise!
 
 This is our fifth year of  
 doing extensive 3 to 7 month  
 road trips around Europe
 
-<!--more--> [![road tripping europe hanging out at the pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f4dd479970b.jpg "road tripping europe hanging out at the pool")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f4dd479970b.jpg)  
+<!--more--> ![road tripping europe hanging out at the pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f4dd479970b.jpg)  
   
   
 This is our fifth year of doing extensive 3 to 7 month [road trips around Europe](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html "road trips around Europe"),  so we have it down to an art form now. I've written about our many road trips and our 4th [Grand Tour of Europe](http://soultravelers3new.local/2010/06/grand-tour-europe-iv-family-travel-extended-vacation-road-trip-summer-holiday-abroad.html "grand tour of europe")  last year, along with [best campsites in Europe](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "best campsites in europe"), [tent camping](http://soultravelers3new.local/2010/06/big-tent-camping-in-europe-glamping-european-style-frugal-minimalist-luxury-backpacking-flashpacking.html "tent camping in europe") and [best books for camping Europe](http://soultravelers3new.local/2010/06/big-tent-camping-in-europe-glamping-european-style-frugal-minimalist-luxury-backpacking-flashpacking.html "best books for camping europe") to name a few. Free [kids clubs in Europe](http://soultravelers3new.local/2010/08/camping-europe-with-kids-free-kids-clubs-family-friendly-international-travel-tips.html "kid's clubs in Europe for family travel") also make it a language-learning fun time for families.  

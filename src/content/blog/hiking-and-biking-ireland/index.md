@@ -12,13 +12,13 @@ tags:
   - "visiting-ireland-with-kids"
 ---
 
-[![IMG_7599](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153906b7bec970b.jpg "IMG_7599")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153906b7bec970b.jpg) Hiking and Biking Ireland
+![IMG_7599](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153906b7bec970b.jpg) Hiking and Biking Ireland
 
 Beautiful green Ireland  
 is a fabulous place to hike  
 and bike as a family and
 
-<!--more--> [![hiking and biking in Ireland](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a5ebe5e970d.jpg "hiking and biking in Ireland")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a5ebe5e970d.jpg)  
+<!--more--> ![hiking and biking in Ireland](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a5ebe5e970d.jpg)  
   
 Beautiful green [Ireland](http://en.wikipedia.org/wiki/Ireland "ireland") is a fabulous place to hike and bike as a family and we loved doing lots of it during our long stay there. This photo was taken near [Blarney](http://soultravelers3new.local/2009/10/family-travel-photo-ireland-blarney-stone-castles-exploring-adventure-motorhome.html "Blarney family vacation"), but we also loved exploring  [Killarney](http://soultravelers3new.local/2010/03/family-travel-photo-ireland-st-patricks-day-killarney-ring-of-kerry-traditional-muckross-farms.html "Kilarney family vacation"), [Dingle](http://soultravelers3new.local/2010/01/family-travel-photo-ireland-dingle-fusia-red-flower-green-landscape.html "dingle family vacation"), [Rock of Cashel](http://soultravelers3new.local/2009/08/family-travel-photo-ireland-rock-of-cashel-st-pat.html "Rock of Cashel photo") and much more as we encircled and criss crossed the entire Emerald Isle.  
   

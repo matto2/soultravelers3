@@ -19,13 +19,13 @@ tags:
   - "travel-to-spain"
 ---
 
-[![11980653](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a659d3970d.jpg "11980653")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a659d3970d.jpg)Southern Spain Cave Houses  
+![11980653](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee6a659d3970d.jpg)Southern Spain Cave Houses  
   
 Have you ever vacationed in a cave?  
 We did luxuriously in Turkey and  
 considered Spain troglodyte living
 
-<!--more--> [![Intriguing caves and cave dwellers in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3502d19b970b.jpg "Intriguing caves and cave dwellers in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3502d19b970b.jpg)  
+<!--more--> ![Intriguing caves and cave dwellers in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3502d19b970b.jpg)  
   
 Have you ever [vacationed in a cave](http://soultravelers3new.local/2007/07/cappadocia-cave.html "cave vacation turkey cappadocia ")? We did [luxuriously in Turkey](http://soultravelers3new.local/2007/07/esbelli-evi.html "luxury cave esbelli evi in Cappadocia") , considered [Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/spain/ "spain travel tips") troglodyte living when [we wintered in Andalusia](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to winter in spain") and loved visiting [Barcelona's best cava cave](http://soultravelers3new.local/2011/11/-barcelona-cava-cave-spanish-wine-catalan-champagne.html "Barcelona best cava cave").  
   

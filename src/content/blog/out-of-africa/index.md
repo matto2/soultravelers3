@@ -7,7 +7,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4064](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4064.png "Img_4064")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4064.png) Out of Africa  
+ ![Img_4064](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4064.png) Out of Africa  
 April 23, 2007
 
 Despite our flying into Madrid, it was a  
@@ -16,7 +16,7 @@ Essouria at one in the afternoon and did
 
 <!--more-->
 
-[![Img_4064_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4064_2.png "Img_4064_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4064_2.png)
+![Img_4064_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4064_2.png)
 
 Despite our flying into Madrid, it was a long day’s night leaving Africa. We left Essouria at one in the afternoon and did not land in Madrid until after three o’clock in the morning. As usual, Mozart found it to be a very exciting day, but her parents were less enthused.
 
@@ -47,8 +47,8 @@ We didn’t even have books because we were packed so light and I was too afraid
 
 It took us almost the same time to take the “quick” way out of Africa as it did taking the long way in and cost a lot more. You just never know what will happen in Morocco.....and that is part of its charm.
 
-[![Img_4062](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4062.png "Img_4062")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4062.png)
+![Img_4062](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4062.png)
 
-[![Img_4060](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4060.png "Img_4060")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4060.png)
+![Img_4060](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4060.png)
 
-[![Img_4070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/24/img_4070.png "Img_4070")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4070.png)
+![Img_4070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/24/img_4070.png)

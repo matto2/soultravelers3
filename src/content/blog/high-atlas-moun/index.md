@@ -8,7 +8,7 @@ categories:
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3339.png)
 
-[![Img_3338](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3338.png "Img_3338")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3338.png) High Atlas Mountain  
+![Img_3338](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3338.png) High Atlas Mountain  
 April 14, 2007
 
 Full of trepidation, we headed in our  
@@ -19,7 +19,7 @@ capped Tizi ‘n Tichkna mountain pass
 
  [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3339_2.png)
 
-[![Img_3338_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3338_2.png "Img_3338_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3338_2.png)
+![Img_3338_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3338_2.png)
 
 Full of trepidation, we headed in our Grand taxi towards the spectacular snow capped Tizi ‘n Tichkna mountain pass to Marrakech which is at 8000 feet (2400m) with rugged peaks that rise to over 13,000 feet. It twists, snakes and cork screws its way through multiple hairpin turns which gives one plenty of time to take in the gorgeous scenery of ever changing patchwork colors. This massive mountain range is truly breathtakingly beautiful and the weather was divine.
 
@@ -32,26 +32,26 @@ the way we almost stumbled over a decapitated, bloody goat’s head right in fro
 
 As we got close to Marrakech, the road became more straight and level and we came across some bright green pasture land that almost looked like Ireland. Soon it became clear why they call the imperial city of Marrakech, the “pink city”.
 
-[![Img_3352](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3352.png "Img_3352")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3352.png)
+![Img_3352](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3352.png)
 
-[![Img_3355](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3355.png "Img_3355")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3355.png)
+![Img_3355](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3355.png)
 
-[![Img_3356](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3356.png "Img_3356")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3356.png)
+![Img_3356](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3356.png)
 
-[![Img_3381](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3381.png "Img_3381")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3381.png)
+![Img_3381](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3381.png)
 
-[![Img_3376](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3376.png "Img_3376")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3376.png)
+![Img_3376](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3376.png)
 
-[![Img_3374](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3374.png "Img_3374")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3374.png)  
+![Img_3374](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3374.png)  
 
-[![Img_3339_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3339_3.png "Img_3339_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3339_3.png)
+![Img_3339_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3339_3.png)
 
-[![Img_3170](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3170.png "Img_3170")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3170.png)
+![Img_3170](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3170.png)
 
-[![Img_3348](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3348.png "Img_3348")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3348.png)
+![Img_3348](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3348.png)
 
-[![Img_3368](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3368.png "Img_3368")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3368.png)
+![Img_3368](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3368.png)
 
-[![Img_3361](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3361.png "Img_3361")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3361.png)
+![Img_3361](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3361.png)
 
-[![Img_3370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/25/img_3370.png "Img_3370")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3370.png)
+![Img_3370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/25/img_3370.png)

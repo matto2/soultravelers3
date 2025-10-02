@@ -16,7 +16,7 @@ the perfect place
 
 <!--more-->
 
-[![Img_5506](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5506.png "Img_5506")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5506.png)
+![Img_5506](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5506.png)
 
 We wrapped a wreath of olive branches around Mozart’s head just like the original Greek Olympic athletes, as she pretended to win races and events. More dreamy than dramatic, Olympia is the perfect place to see while in the fantasy stage of childhood and we did not want to miss it on our ancient ruins tour. The tradition of the wild olive wreath as the prize started with a relevant Delphic oracle. It will be a special souvenir that we will always keep.
 
@@ -46,26 +46,26 @@ Camping Alphios was not as convenient to town and that was a minus, but they did
 
 One of the things I liked best about this campsite was how pretty the morning sunrise was. We were high on a hill and the views around this part of Greece are quite lush and filled with vineyards and farms. We ended up staying four days and catching up with things like booking our ferries to Croatia and such. It was a peaceful and idyllic respite from the heat wave. We were saddened to hear about the recent fires that arrived after we left  as its a beautiful special area.
 
-[![Img_5661](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5661.png "Img_5661")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5661.png)
+![Img_5661](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5661.png)
 
-[![Img_5737](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5737.png "Img_5737")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5737.png)
+![Img_5737](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5737.png)
 
-[![Img_5546](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5546.png "Img_5546")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5546.png)
+![Img_5546](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5546.png)
 
-[![Img_5480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5480.png "Img_5480")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5480.png)
+![Img_5480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5480.png)
 
-[![Img_5596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5596.png "Img_5596")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5596.png)
+![Img_5596](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5596.png)
 
-[![Img_5540](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5540.png "Img_5540")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5540.png)
+![Img_5540](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5540.png)
 
-[![Img_5633](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5633.png "Img_5633")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5633.png)
+![Img_5633](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5633.png)
 
-[![Img_5724](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5724.png "Img_5724")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5724.png)
+![Img_5724](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5724.png)
 
-[![Img_5774](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5774.png "Img_5774")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5774.png)
+![Img_5774](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5774.png)
 
-[![Img_5794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5794.png "Img_5794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5794.png)
+![Img_5794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5794.png)
 
-[![Img_5812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5812.png "Img_5812")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5812.png)
+![Img_5812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5812.png)
 
-[![Img_5840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/27/img_5840.png "Img_5840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5840.png)
+![Img_5840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/27/img_5840.png)

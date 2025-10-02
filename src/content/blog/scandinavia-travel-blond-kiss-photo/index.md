@@ -17,7 +17,7 @@ tags:
   - "vacation-skandinavia"
 ---
 
- [![IMG_7691_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e2b7218970b.jpg "IMG_7691_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e2b7218970b.jpg) Scandinavia Travel: Blond Kiss Photo
+ ![IMG_7691_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538e2b7218970b.jpg) Scandinavia Travel: Blond Kiss Photo
 
 When you take a trip to  
 or vacation in Scandinavia,  
@@ -25,7 +25,7 @@ one thing you can not miss
 
 <!--more-->
 
-[![ Scandinavia Travel: Blond Kiss Photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431fe8d6d970c.jpg " Scandinavia Travel: Blond Kiss Photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431fe8d6d970c.jpg)  
+![ Scandinavia Travel: Blond Kiss Photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015431fe8d6d970c.jpg)  
   
 When you take a trip to or vacation in [Scandinavia](http://en.wikipedia.org/wiki/Scandinavia "scandinavia"), one thing you can not miss is all the [blondes](http://en.wikipedia.org/wiki/Blonde "blond or blonde")! In most places, blondes are a rarity, but in Scandinavia they are every where you look. "Tow heads" as my mother use to call us when we were kids.  
   

@@ -14,7 +14,7 @@ tags:
   - "rickshaw-ride-in-penang"
 ---
 
-[![IMG_5024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c82ebef2970c.jpg "IMG_5024")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c82ebef2970c.jpg) Family Travel Asia: Photo  
+![IMG_5024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c82ebef2970c.jpg) Family Travel Asia: Photo  
 Georgetown, Malaysia
 
 Have you taken a ride in a  
@@ -23,7 +23,7 @@ in Georgetown, Penang in Malaysia
 
 <!--more-->
 
-[![family travel asia rickshaw ride photo in georgetown, penang, Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2257b98970b.jpg "family travel asia rickshaw ride photo in georgetown, penang, Malaysia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2257b98970b.jpg)  
+![family travel asia rickshaw ride photo in georgetown, penang, Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e2257b98970b.jpg)  
   
   
 

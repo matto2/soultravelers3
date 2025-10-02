@@ -22,14 +22,14 @@ tags:
   - "sunrise-photo"
 ---
 
-[![IMG_5942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4918712970d.jpg "IMG_5942")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4918712970d.jpg)Beautiful Sunrise and  
+![IMG_5942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4918712970d.jpg)Beautiful Sunrise and  
 Positive Quotes  
   
 This has been an intense  
 time for many of us around  
 the world, but there is nothing like
 
-<!--more--> [![gorgeous sunrise photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d1c2a98970c.jpg "gorgeous sunrise photo")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d1c2a98970c.jpg)  
+<!--more--> ![gorgeous sunrise photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d1c2a98970c.jpg)  
   
  This has been an intense time for many of us [around the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world travel"), but there is nothing like watching the day break to remind us that life goes on and we are all blessed. Having lived through a few [disasters](http://soultravelers3new.local/2011/10/travel-distasters-vacation-nightmares.html "travel disasters and vacation nightmares") myself, including a hurricane, my heart goes out to those hit by Sandy, and we keep them in our prayers.  
   

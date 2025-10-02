@@ -15,7 +15,7 @@ tags:
   - "medical-tourism"
 ---
 
-[![IMG_4454](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742fff806970d.jpg "IMG_4454")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742fff806970d.jpg)Penang - Best Hospitals - 
+![IMG_4454](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017742fff806970d.jpg)Penang - Best Hospitals - 
 Great Health Care at Low Cost  
   
 When you are sick or injured  
@@ -24,7 +24,7 @@ to know where to go in an
 
 <!--more-->
 
-[![Best Hospitals in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616e87350970c.jpg "Best Hospitals in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616e87350970c.jpg)  
+![Best Hospitals in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616e87350970c.jpg)  
   
   
 
@@ -34,7 +34,7 @@ We took our sick kid to a great children's hospital here in Asia ( [Georgetown, 
   
 Malaysia has a highly rated health care system and is very low cost, so one of the reasons we picked it as our base in Asia. This article calls [Malaysia  one of the world's best and cheapest](http://internationalliving.com/2012/03/great-health-care-at-a-low-cost-in-malaysia/ "Malaysia  one of the world's best and cheapest health care"), plus says 4 plane loads a day come to Penang just for medical and dental tourism.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176161bf344970c.jpg)[![medical tourism Penang - typical clinic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ced238970d.jpg "medical tourism Penang - typical clinic")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ced238970d-300x225-1.jpg)
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176161bf344970c.jpg)![medical tourism Penang - typical clinic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ced238970d-300x225-1.jpg)
 
 In almost [7 years of non-stop travel](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world tour around the world") to 44 countries on 5 continents, we have rarely gotten sick ( until my recent [digestive problems](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health")) so we are not experts on the health care here, but can give our experience and show you photos.  Other expats, and especially a Canadian and Australian expat missionary family friends who lived in Penang for almost 5 years with three kids,  first told us about and highly recommended Hope Children's Hospital.  
   
@@ -42,7 +42,7 @@ Hope Children's Hospital is a 24-hour clinic and in a very central area along Ja
   
 Dr. Chew M.D., a  pediatrician and father of 5 kids, is very popular with the expat community and we saw him once last year for something minor and liked him. He wasn't in this time, so we saw another M.D. that we liked.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d-300x225-1.jpg)[![Children's Hospital and clinic in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ced678970d.jpg "Children's Hospital and clinic in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ced678970d-300x225-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d-300x225-1.jpg)![Children's Hospital and clinic in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743ced678970d-300x225-1.jpg)  
   
   
 As a former nurse, organic eating, natural health proponent, non-vaccinating parent and someone who hosted alternative healers at my [home in California](http://soultravelers3new.local/2006/08/home-and-hous-1.html "home in California") for many years, I tend to avoid allopathic medicine usually if possible or do it in my own informed way. ( Taking prescription medicines as prescribed  is the third biggest killer in the United States and I almost [bled to death from a common over-the-counter medicine](http://soultravelers3new.local/2007/11/bloody-monday-i.html "bleeding to death danger of ibrupropen"), so we are very cautious and rarely take any).  
@@ -51,7 +51,7 @@ We actually went to the [Traditional Chinese Medicine hospital in Penang](http:/
   
 Both the Chinese Medicine Acupuncturist and the M.D. thought it was food poisoning ( which I had guessed at as well, based on the symptoms). Apparently she ate something bad at her school, but none of the other kids got sick, nor did we, so it is a mystery, thus now we insist she takes her lunch only and are even more resolute with our organic healthy eating, no junk food program. ( She had slipped and eaten some junk food after school in tuition the day before she got sick...she had forgotten she had a bag of non-GMO organic [healthy popcorn](http://soultravelers3new.local/2012/07/how-to-make-healthy-popcorn.html "healthy popcorn") that I had made fresh late the night before.)  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d-300x225-1.jpg)[![buying prescription drugs at Penang pharmacy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768f3b5a0970b.jpg "buying prescription drugs at Penang pharmacy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768f3b5a0970b-300x225-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d-300x225-1.jpg)![buying prescription drugs at Penang pharmacy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768f3b5a0970b-300x225-1.jpg)  
   
   
 I was happy that this M.D. ordered a French clay ( natural method) and also probiotics. I had been giving her these things on our own, and don't think an American M.D. would be smart or educated enough to do this ( I've never experienced such in the U.S. and acually found out about the value of healing clay and probiotics through natural healers). He was also smart enough to say we could have her drink coconut water ( which is plentiful here, filled with potassium, good minerals and sold on the street corners fresh), instead of the Pedialyte.  
@@ -60,7 +60,7 @@ He also ordered an antispasmotic, Pedialyte and Imodium, but I didn't use them a
   
 They do have the pharmacy right where you check out and we were the only family there until another one came with a child as we were about to leave. The doctor and staff also speak English ( as well as Mandarin and Malay) which made it fast and easy. ( Although English here is more Manglish, so often hard to understand and bears some repeating often in conversations).  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d-300x225-1.jpg)[![Our sick child watiing at the Children's hosptial in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768f3b7f9970b.jpg "Our sick child watiing at the Children's hosptial in Penang")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768f3b7f9970b-1024x768-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743068484970d-300x225-1.jpg)![Our sick child watiing at the Children's hosptial in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768f3b7f9970b-1024x768-1.jpg)  
   
   
 It is pretty scary to have a sick or [injured child](http://soultravelers3new.local/2007/03/black-eyed-pea.html "injured child when traveling"), perhaps even more so when traveling in a foreign land. This makes me even more grateful to the [organic health food regime](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy food and travel") we have been on which supports her immune system and realize how lucky I am that she is almost never sick.   

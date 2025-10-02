@@ -21,7 +21,7 @@ tags:
   - "worldschool-science"
 ---
 
-[![IMG_3368](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116c5f5e970c.jpg "IMG_3368")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116c5f5e970c.jpg)Home school Science - 
+![IMG_3368](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116c5f5e970c.jpg)Home school Science - 
 Unschool and World School Tips  
   
 Can you homeschool science  
@@ -29,7 +29,7 @@ or math in a way that will
 prepare a teen for a top college
 
 <!--more-->  
-[![homeschool science -unschool tips like Perot museum lab experiment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6db7970c.png "homeschool science -unschool tips like Perot museum lab experiment")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6db7970c.png)  
+![homeschool science -unschool tips like Perot museum lab experiment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6db7970c.png)  
   
 Can you homeschool science or math in a way that will prepare a teen for a top college if you use [unschool](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "unschool tips for global kids") or [worldschooling](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "worldschooling") methods? Yes and in our experience [homeschooling and travel](http://soultravelers3new.local/2011/09/learning-while-traveling-travel-homeschool-road-school-abroad-5-best-reasons.html "homeschooling and travel") is the [best education for a gifted child](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "homeschool and travel with gifted child").  
   
@@ -39,7 +39,7 @@ In this recent photo you see 13 year old Mozart in her lab coat and gloves doing
   
 Awesome hands-on science for a teen with a wonderful assistant who had a master's degree in Cell Biology. A perfect example how our [taking kids to museums tips](http://soultravelers3new.local/2010/08/10-tips-for-travel-tours-museums-with-kids-family-friendly-travel-advice-information-help-education.html "taking kids to museums tips") have been a huge help on our [world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "amazing family world tour") and one way we do science as we roam the world.  
   
-[![homeschool or wordschool science - feeding turtles in bora bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6dc9970c.png "homeschool or wordschool science - feeding turtles in bora bora")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6dc9970c.png)  
+![homeschool or wordschool science - feeding turtles in bora bora](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6dc9970c.png)  
   
 **YES, HOMESCHOOL KIDS GO TO TOP COLLEGES**  
   
@@ -47,7 +47,7 @@ We are homeschooling middle school and plan to [homeschool high school](http://s
   
 My niece is also a homeschooled child who went on to graduate early and with honors from a top University to become a chemical engineer and quickly got a 6 figure income on her first job!  
   
-[![homeschool science kid workign with marine biologists with dolphin in Portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6dda970c.png "homeschool science kid workign with marine biologists with dolphin in Portugal")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6dda970c.png)  
+![homeschool science kid workign with marine biologists with dolphin in Portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6dda970c.png)  
   
 **HANDS ON LEARNING WITH SCIENTISTS**  
   
@@ -55,13 +55,13 @@ We've hunted down hands-on opportunities in many countries like working with [ma
   
 Mozart has always been advanced and exceptional in math and science so she has loved many great online courses through Johns Hopkins University's CTY programs and some in person like one where she explored tide pools, collected plankton and  dissected a squid using microscopes at  Marin Headlands.  
   
-[![Homeschool science in London Museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bcb1970d.png "Homeschool science in London Museum")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bcb1970d.png)  
+![Homeschool science in London Museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bcb1970d.png)  
   
 **SCIENCE EDUCATIONAL FIELD TRIPS**  
   
 We search out science educational field trips where ever we go, be it the [Everglades](http://soultravelers3new.local/2012/03/omg-wrestling-alligator-in-the-everglades.html "Everglades alligators"),  [Ria Formosa Natural Park in Portugal](http://soultravelers3new.local/2008/06/celebrating-in.html#more "bird migration and nature park portugal"), [elephant seals in Ano Nuevo](http://soultravelers3new.local/2012/02/elephant-seals-at-ano-nuevo-world-school-fieldtrip.html "elephant seals in ano nuevo homeschool") , Kennedy Space center, [trekking in Bhutan ,](http://soultravelers3new.local/2012/09/bhutans-bountiful-nature.html "trekking in bhutan") the [Nemo science center in Amsterdam](http://soultravelers3new.local/2006/09/science-center.html "Nemo science center in Amsterdam"), [snorkeling in Hawaii](http://soultravelers3new.local/2011/02/sailing-the-stunning-napali-coast-of-kauai-hawaii-with-dolphins-snorkeling-fun.html "snorkeling in Hawaii") and even an overnight safari at a zoo in Sweden!  
   
-[![homeschool science snorkeling in Hawaii](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb55a970b.png "homeschool science snorkeling in Hawaii")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb55a970b.png)  
+![homeschool science snorkeling in Hawaii](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb55a970b.png)  
   
 **ENVIRONMENTAL EDUCATION**  
   
@@ -77,13 +77,13 @@ ad.com/.a/6a00e5502a9507883301a3fcbeb564970b-pi)
 We do [organic gardening homeschool](http://soultravelers3new.local/2010/05/travel-organic-garden-homeschool-green-unschool-nature-unit-study-lessons-from-gardening-travel-.html "organic gardening homeschool") even with world travel, enjoy [visiting farms](http://soultravelers3new.local/2014/01/travel-and-paleoprimal-grain-free-gapswapf-healthy-eating.html "visiting farmers for real food sustainable living") around the world and as an 11 year old, Mozart got to be a lab assistant in gardening/botany/entomology/ doing experiments with the amazing Juli Idleman who runs [Dirt to Dinner](http://fromdirttodinner.net/ "dirt to dinner").
 
   
-[![Homeschool science organic gardening in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb57c970b.png "Homeschool science organic gardening in Spain")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb57c970b.png)  
+![Homeschool science organic gardening in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb57c970b.png)  
   
 **HOMESCHOOL SCIENCE CLASSES**  
   
 We do [science homeschool classes](http://www.imagination4kids.com/ "science homeschool san jose") in person when ever we can find great ones, like one in Los Altos where she took apart cameras, phones, remote controls etc and put them back together to learn and she loved that dip into electricity and mechanical engineering.  
   
-[![homeschool science field trip close up seals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb593970b.png "homeschool science field trip close up seals")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb593970b.png)
+![homeschool science field trip close up seals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb593970b.png)
 
 **UNSCHOOL JUST MEANS FOLLOWING/ENCOURAGING A CHILD'S PASSIONS IN LEARNING**  
   
@@ -91,13 +91,13 @@ I actually hate the term "unschool" but all it means to me is following the chil
   
 [Our travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html#more "OUR TRAVEL LIFESTYLE") means we spend much [more time in nature](http://soultravelers3new.local/2011/07/beautiful-butterfly-flowers-and-family-travel.html "MORE TIME IN NATURE") than most people, get close up global experiences and we use EVERYTHING as a learning opportunity.  
   
-[![science homeschool on laptop in Asia ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bd0f970d.png "science homeschool on laptop in Asia ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bd0f970d.png)  
+![science homeschool on laptop in Asia ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bd0f970d.png)  
   
 **GREAT FREE ONLINE COURSES IN SCIENCE**  
   
 Much learning can be done on the computer for free, so of course we take advantages of things like [**Khan Academy**](http://www.khanacademy.org/) , [**MIT OpenCourseWare,**](http://ocw.mit.edu/index.htm) [**Open Yale Courses**](http://oyc.yale.edu/) , [**Oxford University Mathematics OpenCourseWare**](http://www.maths.ox.ac.uk/opencourseware/) and [**TED**](http://www.ted.com/) to name a few.  
   
-[![homeschool science at science museum in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bd21970d.png "homeschool science at science museum in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bd21970d.png)  
+![homeschool science at science museum in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d79bd21970d.png)  
   
 **SCIENCE IN FOREIGN SCHOOLS AND LANGUAGES**  
   
@@ -105,7 +105,7 @@ Our brand of [homeschool is very eclectic](http://soultravelers3new.local/2010/0
   
 Despite being primarily unschooled, Mozart has always been ahead academically whenever she was in a school environment ( although always being the youngest) or did classes like JHU-CTY with kids from top schools, which was always very reassuring about our homeschool progress.  
   
-[![homeschool science museum tour Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6e6a970c.png "homeschool science museum tour Austria")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6e6a970c.png)  
+![homeschool science museum tour Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5116e6e6a970c.png)  
   
 **SECRET BEST TIP FOR LEARNING?**  
   
@@ -118,7 +118,7 @@ When Mozart was squealing with delight and jumping for joy at that recent opport
   
 “Most people, most of the time, learn most of what they know about science and technology outside of school.”~ National Science Foundation
 
-[![homeschool science - nature- butterfly close up](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb5df970b.png "homeschool science - nature- butterfly close up")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb5df970b.png)  
+![homeschool science - nature- butterfly close up](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcbeb5df970b.png)  
   
 Do you homeschool science or want to?  
   

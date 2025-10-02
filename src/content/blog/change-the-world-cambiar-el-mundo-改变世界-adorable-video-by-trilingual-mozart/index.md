@@ -24,7 +24,7 @@ tags:
   - "改变世界"
 ---
 
-[![IMG_0267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02eebfe5970b.jpg "IMG_0267")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02eebfe5970b.jpg)Change the world! Cambiar el Mundo! 改变世界!  
+![IMG_0267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02eebfe5970b.jpg)Change the world! Cambiar el Mundo! 改变世界!  
 Adorable Video by Trilingual Mozart!  
   
 I adore this amazing trilingual  
@@ -32,7 +32,7 @@ video and big goal of 13 year old
 Mozart to change the world, so
 
 <!--more-->  
-[![Changing the world one kid at a time!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02efa82a970b.png "Changing the world one kid at a time!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02efa82a970b.png)  
+![Changing the world one kid at a time!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02efa82a970b.png)  
   
 I adore this amazing [trilingual](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "growing up bilingual or  trilingual ") video and big goal of [13 year old Mozart to change the world](http://soultravelers3new.local/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html "inspiring speech by 13 year old Mozart"), so just had to share it with you. I can't believe we pulled this together quickly the morning before we left Asia,but we wanted to get it up for [Mozart's service project and fundraiser with Pencils for Promise](http://fundraise.pencilsofpromise.org/fundraise?fcid=290456 "Mozart's fundraiser for Pencils of Promise").  
   

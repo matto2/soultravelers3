@@ -19,20 +19,20 @@ tags:
   - "raw-eggs-in-asia"
 ---
 
-[![IMG_5748](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36665a99970b.jpg "IMG_5748")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36665a99970b.jpg)Raw Eggs - Healthy or Not?  
+![IMG_5748](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36665a99970b.jpg)Raw Eggs - Healthy or Not?  
   
 If you told me 2 years  
 ago that we would be  
 eating raw, pastured eggs daily
 
-<!--more--> [![raw eggs from pastured hens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36665b2b970b.jpg "raw eggs from pastured hens")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36665b2b970b.jpg)  
+<!--more--> ![raw eggs from pastured hens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36665b2b970b.jpg)  
   
 If you told me 2 years ago that we would be eating raw, pastured eggs daily ( we 60 year old [retirees](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retirees and travel"), our 12 year old child and my 85 year old mother), I never would have believed it, or the [health benefits.](http://articles.mercola.com/sites/articles/archive/2011/09/02/why-does-this-commonly-vilified-food-actually-prevent-heart-disease-and-cancer.aspx "health benefits raw eggs") But learning to [travel while sick](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "travel while sick") on my [health journey](http://soultravelers3new.local/health-and-travel/ "health journey"), I've learned a lot about [raw organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "raw organic food and travel") and what works for us.  
   
 Are raw eggs healthy? Like most things, that depends on who you listen to, what eggs and how deep you research. I certainly bought into the status quo on this one and never looked deeper until [a doctor](http://www.candidaplan.com/ "Dr, Jeff McCombs") suggested that I eat raw egg yolks to help my mysterious illness. I must admit, I was a bit stunned and afraid at the thought of it..and even more so about doing it in [tropical Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical Asia") in a developing country.  
   
   
-[![sunny side up eggs from pastured eggs - note the orange yolks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4094204d970c.jpg "sunny side up eggs from pastured eggs - note the orange yolks")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4094204d970c.jpg)  
+![sunny side up eggs from pastured eggs - note the orange yolks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4094204d970c.jpg)  
   
   
 Now that we have been eating healthy, raw, pastured eggs from small farms in Asia for over a year ( and almost 6 months of organic pastured raw eggs in [California](http://soultravelers3new.local/2012/02/beautiful-capitola-californias-oldest-beach.html "capitola, California") before that) I have much more confidence and see it's benefits in healing. I was totally debilitated, sick and in pain, before I began eating them and almost 100% healed now thanks to a few important diet changes like this.  
@@ -51,7 +51,7 @@ As I looked deeper into the issue, I discovered other MD's and health experts wh
 "I eat raw eggs but lots of people are scared to do it because of infectious disease and biotin deficiency issues. I am not because my diet is very balanced and I have no AI diseases." Dr. Jack Kruse M.D. Neurologist  
   
   
-[![cute egg made into a chick](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d409a178a970c.jpg "cute egg made into a chick")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d409a178a970c.jpg)  
+![cute egg made into a chick](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d409a178a970c.jpg)  
   
 **RAW EGG - RISKY OR SUPERFOOD?**  
   
@@ -71,7 +71,7 @@ It’s important, however, to make sure that you buy organic, pasture-raised egg
 **"The well-circulated salmonella risk, which isn’t the dire prospect it’s often made out to be**.  Of course, [not all eggs are created equal](http://www.marksdailyapple.com/egg-purchasing-guide/ "Egg Purchasing Guide") when it comes to salmonella or nutrition. Not only are organic, free range eggs more nutrient-dense, one study found them to be [significantly less contaminated than battery cage hens](http://www.worldpoultry.net/news/salmonella-levels-in-poultry-higher-in-battery-eggs-id2162.html " Salmonella levels in poultry higher in battery eggs"). Hens that graze and eat a natural diet as well as have more space to roam (to avoid living in feces) are naturally healthier." Mark Sisson  
   
 
-  _[![pastured eggs in a bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee80ef0b4970d.jpg "pastured eggs in a bowl")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee80ef0b4970d.jpg)_ **HOW RISKY IS SALMONELLA IN RAW EGGS?**  
+  _![pastured eggs in a bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee80ef0b4970d.jpg)_ **HOW RISKY IS SALMONELLA IN RAW EGGS?**  
   
  In truth, only 0.003% ([1 in 30,000](http://www.ncbi.nlm.nih.gov/pubmed/12022671?dopt=Abstract "An overview of the Salmonella enteritidis risk assessment for shell eggs and egg products.")) eggs are actually contaminated with salmonella, **BUT** the risk is even less if the eggs you are consuming are free range, pastured eggs.  
   
@@ -85,7 +85,7 @@ It is more of a risk for babies and the elderly, so I did consider this fact whe
   
 Interestingly, Vonderplanitz documents a case in his book about  an almost dying 80 year old, who had a miraculous recovery just by eating raw eggs.  
   
-[![smoothie made with raw eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c366bd37c970b.jpg "smoothie made with raw eggs")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c366bd37c970b.jpg)  
+![smoothie made with raw eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c366bd37c970b.jpg)  
   
 **HEALTH BENEFITS OF RAW EGGS** - **A SUPERFOOD!**  
  There are reasons why atheletes and bodybuilders, just like that Rocky movie scene, like to eat raw eggs. I've learned to eat them like that, but prefer them in a raw milk eggnog or [raw milk kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "raw milk kefir") smoothie like I give to my family. I also love poached or soft boiled ( best ways to cook them if you must) and my husband likes sunny side up with liquid yokes for more nutrition as heating kills some of the advantages.  
@@ -116,22 +116,22 @@ Eggs from pastured chickens ( compared to commericial USDA eggs) contained:
 For those who have bought into the [Cholesterol myths](http://www.ravnskov.nu/cholesterol.htm "chloresterol myths"), check out that link ( by M.D. PhD) as well as any books by Gary Taubes or Mary G. Enig PhD who explain the science well backed by studies  
 
   
-  [![soaking raw eggs in a bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee808b73b970d.jpg "soaking raw eggs in a bowl")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee808b73b970d.jpg)  
+  ![soaking raw eggs in a bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee808b73b970d.jpg)  
   
 We get 50 eggs one or two times a week from the farmers market here ( gathered from small farms of free range organic eggs..or so they say as I haven't been to them yet) or from the [organic stores in Penang](http://soultravelers3new.local/2012/08/where-to-buy-organic-food-in-penang.html "organic food stores  in Penang"). We eat most of them raw daily in smoothies that combine things like organic raw milk or coconut  kefir, tumeric, organic prunes, organic raw unheated honey, banana, organic cinnamon and organic goji berries to the eggs. LOTS of antioxidants!  
   
-[![eggs in asia come in 10's not dozen and we recycle/reuse containers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8107929970d.jpg "eggs in asia come in 10's not dozen and we recycle/reuse containers")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8107929970d.jpg)  
+![eggs in asia come in 10's not dozen and we recycle/reuse containers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8107929970d.jpg)  
   
   
 I can get wonderful pastured chickens from DQ and now can find delicious fresh raw goats milk from [Happy Goat Farm](http://www.happygoats.com.my/ "happy goat farm penang fresh milk"), but I have yet to find pastured grass fed beef, so eggs are an important protein source for us.  
   
 I buy them fresh ( most eggs in USA stores are at least 3 weeks old), and refrigerate them, but first I wash them and soak them in either peroxide and water or GSE in water. I also always use a bit of organic cold pressed coconut oil with them as an added protection as it is  naturally  antiviral, antifungal and antibacterial.  
   
-[![peroxide and or GSE for soaking eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c366bc5ea970b.jpg "peroxide and or GSE for soaking eggs")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c366bc5ea970b.jpg)  
+![peroxide and or GSE for soaking eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c366bc5ea970b.jpg)  
   
 Each person, must decide on their own diets and risks, but for us, this seems to really work. Any questions?  
   
-[![delicious, nutritious raw eggs from pastured hens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4094ca87970c.jpg "delicious, nutritious raw eggs from pastured hens")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4094ca87970c.jpg)  
+![delicious, nutritious raw eggs from pastured hens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4094ca87970c.jpg)  
   
   
   

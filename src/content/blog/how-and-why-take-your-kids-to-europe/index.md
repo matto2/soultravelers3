@@ -17,7 +17,7 @@ tags:
   - "visit-europe-with-kids"
 ---
 
-[![IMG_3779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0c6bd5970b.jpg "IMG_3779")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0c6bd5970b.jpg)How and Why Take Your Kids to Europe  
+![IMG_3779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0c6bd5970b.jpg)How and Why Take Your Kids to Europe  
   
 Why Europe with kids? As the  
 base of Western Culture, Europe  
@@ -25,36 +25,36 @@ is a huge living museum of history,
 
 <!--more-->  
   
-[![why take your kids to Europe? Education!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e3fc1970b.png "why take your kids to Europe? Education!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e3fc1970b.png)  
+![why take your kids to Europe? Education!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e3fc1970b.png)  
    
 Why [Europe with kids](http://soultravelers3new.local/2012/10/camping-europe-with-kids.html "Europe travel with kids")? As the base of Western Culture, [Europe](http://soultravelers3new.local/2013/02/europes-rustic-old-world-charm-romantic-road.html "Europe travel") is a huge living [museum](http://soultravelers3new.local/2010/10/family-travel-london-free-museums-educational-family-adventures-for-homeschool.html "Free museums london") of history, so perfect for [educational travel for families](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html "educational travel for kids") with endless lessons about [international travel](http://soultravelers3new.local/2011/09/international-kids-water-fun-european-style.html "international travel with kids") and [multilingual](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "multilingual")/multiculturalism.  
   
 Not to mention the amazing [food](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "how to eat cheaply while traveling Europe"), sights, beauty and fun factor!  
   
-[![why take your kids to Europe? Culture and beauty!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e3fdb970b.png "why take your kids to Europe? Culture and beauty!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e3fdb970b.png)  
+![why take your kids to Europe? Culture and beauty!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e3fdb970b.png)  
   
   
 [Europe](http://soultravelers3new.local/2010/06/grand-tour-europe-iv-family-travel-extended-vacation-road-trip-summer-holiday-abroad.html "grand tour Europe") is dense, with many countries, speaking [many languages](http://soultravelers3new.local/language-learning/ "language learning"), and many cultures, in a fairly compact area ( compared to North America), so unparalleled opportunity to understand the past and [learn](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html#more " school around the world equals best education").  
   
-[![why take your kids to Europe? Exploring History and museums](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc91d0f970d.png "why take your kids to Europe? Exploring History and museums")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc91d0f970d.png)  
+![why take your kids to Europe? Exploring History and museums](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc91d0f970d.png)  
   
   
 One can visit [prehistoric art in caves](http://soultravelers3new.local/2008/11/altamira-sistin.html "prehistoric art in caves in Europe"),inspect [Roman ruins](http://soultravelers3new.local/2013/03/best-places-to-visit-ancient-roman-and-greek-ruins.html "best Roman ruins"), see [wild horses and medieval fortresses](http://soultravelers3new.local/2010/08/stunning-horses-in-the-camargue-france-family-travel-ideal-vacation-holiday-saintes-maries-de-la-mer.html "wild horses france "), hear [gypsy guitar at Moorish palace,](http://soultravelers3new.local/2013/07/-alhambra-moorish-palace-in-granada-with-gypsy-guitar.html "gypsy guitar at alhambra")  and [explore an ancient working wind mill](http://soultravelers3new.local/2006/09/windmills-insid.html "explore an ancient working wind mill in Holland"), all within a few days!  
   
-[![why take your kids to Europe? Education through traditions and festivals ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e4028970b.png "why take your kids to Europe? Education through traditions and festivals ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e4028970b.png)  
+![why take your kids to Europe? Education through traditions and festivals ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e4028970b.png)  
   
   
 Although I highly recommend that you spend as much time as you can and do [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel") in [Europe](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html "europe family road trip") and take time to enjoy the [food](http://soultravelers3new.local/2011/09/best-catalan-food-in-barcelona.html "best catalan food in Barcelona"), people, cultures or even learn a language like [Spanish in Spain](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html "learning spanish in spain").  
   
   
-[![why take your kids to Europe? Education and museums for 21st century kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc91d45970d.png "why take your kids to Europe? Education and museums for 21st century kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc91d45970d.png)  
+![why take your kids to Europe? Education and museums for 21st century kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc91d45970d.png)  
   
   
 **HOW?**  
   
 We think the [best way to see Europe is camping](http://soultravelers3new.local/camping-europe/ "best way to see Europe is camping")! One of our best decisions on our 8 year open ended [family trip around the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family trip around the world") has been using an [RV for Europe](http://soultravelers3new.local/2010/05/camping-europe-in-a-motorhome-rv-5-best-sites-roadtrip-europe-family-travel-budget-best-price.html "RV or motorhome camping Europe"). [Vacation rentals](http://soultravelers3new.local/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "Vacation rental in Spain") and [trains in Europe](http://soultravelers3new.local/2013/05/train-travel-in-europe-with-kids.html "train travel in Europe") can work too while staying on a tight budget like we do.  
   
-[![why take your kids to Europe? Fun camping Europe on a budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e4075970b.png "why take your kids to Europe? Fun camping Europe on a budget")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e4075970b.png)  
+![why take your kids to Europe? Fun camping Europe on a budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd0e4075970b.png)  
   
   
 I have written extensively on this topic, but here some more ideas that might help in your planning:  

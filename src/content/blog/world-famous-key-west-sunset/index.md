@@ -19,13 +19,13 @@ tags:
   - "visit-key-west"
 ---
 
-[![IMG_6839](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfaae51970c.jpg "IMG_6839")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfaae51970c.jpg)World Famous Key West Sunset
+![IMG_6839](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfaae51970c.jpg)World Famous Key West Sunset
 
 One of the many things  
 you don't want to miss when  
 you visit Key West, Florida is
 
-<!--more--> [![Key West Sunset is world famous](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfaaed2970c.jpg "Key West Sunset is world famous")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfaaed2970c.jpg)  
+<!--more--> ![Key West Sunset is world famous](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfaaed2970c.jpg)  
   
 One of the many things you don't want to miss when you [visit Key West](http://soultravelers3new.local/2012/02/key-west-vacation.html "visit key west"), Florida is the world famous sunsets in Mallory Square. I first went to [Key West](http://soultravelers3new.local/2012/07/-beach-bliss-romantic-dining-fantasy-in-key-west.html "Key west vacation tip") almost 50 years ago when I was a kid and was happy to return in my twenties to join the crowd at the docks in Mallory Square to celebrate the beautiful sunsets and applaud the setting sun.  
   

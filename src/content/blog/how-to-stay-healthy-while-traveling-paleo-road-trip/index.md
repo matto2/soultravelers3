@@ -24,7 +24,7 @@ tags:
   - "travel-food-cheap-and-healthy"
 ---
 
-[![IMG_1804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd14cbfa970b.jpg "IMG_1804")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd14cbfa970b.jpg)How to Stay Healthy While Traveling - 
+![IMG_1804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd14cbfa970b.jpg)How to Stay Healthy While Traveling - 
 Paleo Road Trip  
   
 Can you do a road trip, vacation  
@@ -32,13 +32,13 @@ or travel the world and eat healthy
 on a very non-standard diet?
 
 <!--more-->  
-[![IMG_1804How to Stay Healthy While Traveling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154a8a970b.png "IMG_1804How to Stay Healthy While Traveling")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154a8a970b.png)  
+![IMG_1804How to Stay Healthy While Traveling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154a8a970b.png)  
   
 Can you do a [road trip](http://soultravelers3new.local/2014/01/road-trip-usa-best-of-the-west.html "road trip USA"), [vacation](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best european family vacations") or [travel the world](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "travel the world") and [eat healthy](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "eat healthy") on a very non-standard diet? YES!   
   
 We eat [Paleo](http://soultravelers3new.local/2013/08/healthy-banana-bread-recipe-paleogapsgluten-free.html "paleo")\-[Primal](http://www.foodrenegade.com/why-i-heart-paleo-primal-wapf-diets/ "primal eating") - [WAPF](http://www.westonaprice.org/ "weston price ") - [GAPS](http://www.gapsdiet.com/ "gaps diet") style ( eating more veggies than many vegans) for healing and [preventing cavities and gum disease naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "preventing and curing gum disease and cavities naturally").  
   
-[![bananas!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154aab970b.png "bananas!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154aab970b.png)  
+![bananas!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154aab970b.png)  
   
 SECRETS TO CHEAP, HEALTHY EATING  
   
@@ -46,7 +46,7 @@ We mostly [eat organic](http://soultravelers3new.local/2012/04/health-organic-ra
   
 Plus, we live on a very tight budget, have a [super minimalist life](http://soultravelers3new.local/2013/02/minimalist-family-frugal-tip-omg.html "super minimalist life"), and  [travel with little luggage](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html "top travel tips for packing light"),so  [travel and healthy primal eating](http://soultravelers3new.local/2014/01/travel-and-paleoprimal-grain-free-gapswapf-healthy-eating.html "travel and paleo/primal grain-free, gluten free diet") on the move, as a family, has become an art form for us.  
   
-[![How to Stay Healthy While Traveling - paleo road trip ideas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154adc970b.png "How to Stay Healthy While Traveling - paleo road trip ideas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154adc970b.png)  
+![How to Stay Healthy While Traveling - paleo road trip ideas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154adc970b.png)  
   
 KEEP IT SIMPLE  
   
@@ -57,19 +57,18 @@ PLAN AHEAD
 On our [health journey](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html "health journey") I am always looking for [cheap health secrets](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "cheap health secrets") for our [minimalist family.](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist family")  
 Profound but [simple ideas](http://soultravelers3new.local/2013/08/grounding-earthing-nature-better-health.html "grounding for health") or [recipes](http://soultravelers3new.local/recipes/ "recipes for healthy living paleo/primal/GAPS/WAPF") that we can use as we [travel the world](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "travel the world") for our [travel health](http://soultravelers3new.local/health-and-travel/ "travel and health tips"), but also for you at home on a budget.  
   
-[![How to Stay Healthy While Traveling - GAPS road trip ideas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e441970c.png "How to Stay Healthy While Traveling - GAPS road trip ideas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e441970c.png)  
+![How to Stay Healthy While Traveling - GAPS road trip ideas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e441970c.png)  
   
 EASIEST, HEALTHY PORTABLE FOODS  
   
 We found pastured eggs even in Asia, so boiled eggs are always a dependable, easy, on-the-move snack. Many meals we ate in the car while moving, so portable food like a banana, apple, boiled egg or Nick's Sticks etc are essential. We also did picnics and help-yourself meals in our room, on [historic route 66](http://soultravelers3new.local/2014/02/historic-route-66-.html "historic route 66"),  or on the train to [Grand Canyon.](http://soultravelers3new.local/2014/02/grand-canyon-family-adventure.html "Grand Canyon")  
   
-[![delicious gluten free food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e45e970c.png "delicious gluten free food")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e45e970c.png)  
+![delicious gluten free food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e45e970c.png)  
   
   
 We often ran into refrigerators in hotels which helped and some hotels fed us delicious gluten-free primal food we could eat and then, even boiled pastured eggs for us for our road trip travel like [Four Seasons in Santa Fe](http://soultravelers3new.local/2014/02/romantic-winter-getaway-santa-fe.html "Four Seasons Santa Fe").  
   
-[![family road trip with special diet restrictions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e478970c.png "family road trip with special diet restric
-tions")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e478970c.png)  
+![family road trip with special diet restrictions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e478970c.png)  
   
 Our car was packed full and we ordered some things before leaving [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "top california destinations"), because the health choices in the USA are like no where else in the world.  
   
@@ -79,14 +78,14 @@ Nevertheless, finding health food stores on the move is not easy, so we had a sh
   
 Most places have avocados and they are very satisfying. Organic baby carrots, cherry tomatoes and cucumbers are portable and usually easy to find in the U.S..  
   
-[![fresh fruit and veggies](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e495970c.png "fresh fruit and veggies")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e495970c.png)  
+![fresh fruit and veggies](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e495970c.png)  
   
   
 HEALTHY FOOD TIPS  
   
 We don't usually eat many nuts because of [phytic acid](http://www.westonaprice.org/health-topics/living-with-phytic-acid/ "phytic acid cons"), but we enjoy them on trips for their ease and satiety. [Julien bakery](http://www.julianbakery.com/ "julian bakery") makes a gluten-free decent almond thin cracker that is handy for the road. [Vital Choice](http://www.vitalchoice.com/shop/pc/home.asp "vital choice ") canned wild salmon is also road trip worthy and has an easy-open top.  
   
-[![portable food for paleo/primal/ gluten-free road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e523970c.png "portable food for paleo/primal/ gluten-free road trip")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e523970c.png)  
+![portable food for paleo/primal/ gluten-free road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c4e523970c.png)  
   
   
 HEALTHY PORTABLE SNACKS  
@@ -98,7 +97,7 @@ WHY GOUDA CHEESE
 We are big believers in [kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "making kefir with goats milk or coconut milk") and [raw milk](http://soultravelers3new.local/2013/04/raw-milk-fast-and-cure.html "raw milk") but make an exception with [gouda cheese](http://www.thehealthyhomeeconomist.com/gouda-the-nutrient-dense-cheese-of-choice/ "gouda cheese health benefits") ( and sometimes brie) on the move, due to it's [high vitamin K benefits](http://articles.mercola.com/sites/articles/archive/2013/06/17/heart-healthy-cheese.aspx "cheese benefits"), portability, taste and ease in availability.  
   
   
-[![How to Stay Healthy While Traveling - primal road trip ideas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154b19970b.png "How to Stay Healthy While Traveling - primal road trip ideas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154b19970b.png)  
+![How to Stay Healthy While Traveling - primal road trip ideas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd154b19970b.png)  
   
 HEALTHY FOOD AND LIVING IDEAS  
   

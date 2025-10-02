@@ -18,7 +18,7 @@ water taxi approached Rovinj.
 
 <!--more-->
 
-[![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC channel, TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9893.png "日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC channel, TV-ADAHI 最高のテレビ番組")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9893.png)
+![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC channel, TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9893.png)
 
 Mozart was jumping for joy, waving and calling out, as her eagle eyes spotted her “friends” from the Japanese film crew as our water taxi approached Rovinj. We were stunned to run into them for the third time in yet another location in Croatia, as it was a great distance from Korcula and we had spent five days in other locations since then. What are the chances we would be in the identical location at the same moment again?
 
@@ -57,26 +57,26 @@ I am uploading the blog more slowly now because we are moving faster and finding
 
 Our unplanned forty plus days in Croatia has put a little pressure on our schedule, but perhaps we will make up for it by arriving a little later in our village in Spain. Last year we had to arrive by November first, but this year we have not booked our winter rental, so could arrive a little later if need be. We are looking forward to our home away from home, but also do not want to miss some things in this part of the world as long as the weather holds out. We will see how it unfolds!
 
-[![Img_9662](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9662.png "Img_9662")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9662.png)
+![Img_9662](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9662.png)
 
-[![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC channel, TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9664.png "日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC channel, TV-ADAHI 最高のテレビ番組")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9664.png)
+![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC channel, TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9664.png)
 
-[![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9667.png "日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9667.png)
+![日本の映画スター Maako 運行 Japan 日本 on Travel Salad 旅行のサラダ Japanese ABC かわいいブロンドの女の子 TV-ADAHI 最高のテレビ番組](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9667.png)
 
-[![Img_9668](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9668.png "Img_9668")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9668.png)
+![Img_9668](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9668.png)
 
-[![Img_9695](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9695.png "Img_9695")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9695.png)
+![Img_9695](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9695.png)
 
-[![Img_9887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9887.png "Img_9887")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9887.png)
+![Img_9887](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9887.png)
 
-[![Img_9890](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9890.png "Img_9890")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9890.png)
+![Img_9890](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9890.png)
 
-[![Img_9891](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9891.png "Img_9891")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9891.png)
+![Img_9891](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9891.png)
 
-[![Img_9892](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9892.png "Img_9892")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9892.png)
+![Img_9892](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9892.png)
 
-[![Img_9897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9897.png "Img_9897")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9897.png)
+![Img_9897](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9897.png)
 
-[![Img_9894](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9894.png "Img_9894")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9894.png)
+![Img_9894](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9894.png)
 
-[![Img_9893_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/02/26/img_9893_2.png "Img_9893_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9893_2.png)
+![Img_9893_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/02/26/img_9893_2.png)

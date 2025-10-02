@@ -15,13 +15,13 @@ tags:
   - "travel-and-leanring"
 ---
 
-[![IMG_7104](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33ae3271970b.jpg "IMG_7104")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33ae3271970b.jpg)Life in China  
+![IMG_7104](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33ae3271970b.jpg)Life in China  
   
 What is life like in China?  
 Like most places, that is a  
 question with as many answers
 
-<!--more--> [![Man walking in China near Chinese flag](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ddcb0a0970c.jpg "Man walking in China near Chinese flag")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ddcb0a0970c.jpg)  
+<!--more--> ![Man walking in China near Chinese flag](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3ddcb0a0970c.jpg)  
   
 What is life like in [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "travel to China tips")? Like most places, that is a question with as many answers as there are people. On our [trip to China](http://soultravelers3new.local/2012/11/babies-in-beijing-china-travel-joy.html "trip to China"), we are getting a wonderful insider look at [life in China](http://soultravelers3new.local/2012/11/china-parks-and-martial-arts.html "life in China") and the [Beijing lifestyle](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "beijing lifestyle"), thanks to local friends, [immersing in Mandarin at a local school](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "immersing in Mandarin in a local tradional Chinese school"), and living with a local family.  
   

@@ -19,13 +19,13 @@ tags:
   - "tropical-color"
 ---
 
-[![IMG_5317](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427c007c970c.jpg "IMG_5317")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427c007c970c.jpg)Southeast Asia Color  
+![IMG_5317](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427c007c970c.jpg)Southeast Asia Color  
   
 One of the great joys of escaping  
 winter in Southeast Asia is all  
 the color here, from the tropical
 
-<!--more--> [![Southeast Asia Color - Sacred Chinese dragons](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427c00c0970c.jpg "Southeast Asia Color - Sacred Chinese dragons")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427c00c0970c.jpg)  
+<!--more--> ![Southeast Asia Color - Sacred Chinese dragons](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427c00c0970c.jpg)  
   
 One of the great joys of [escaping winter in Southeast Asia](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html "escapign winter in southeast Asia") is [exploring colorful Asia](http://soultravelers3new.local/2012/08/exploring-colorful-asia.html "exploring colorful Asia"), from the [tropical flowers](http://soultravelers3new.local/2013/04/spring-fever-tropical-flowers-in-asia.html "tropical flowers") and [tropical fruits](http://soultravelers3new.local/2012/10/colorful-exotic-fruit-in-tropical-asia.html "tropical fruits in Asia") to the [colorful festivals](http://soultravelers3new.local/2013/02/worlds-best-festival-.html "world's best festival") like [Thaipusam](http://soultravelers3new.local/2013/01/thaipusam-2013.html "Thaipusam"), [Chinese New Year](http://soultravelers3new.local/2013/02/chinese-new-year-in-asia.html "Chinese New Year in Asia") and [Eid ul-Fitr](http://soultravelers3new.local/2012/08/ramadan-ends-eid-ul-fitr-festival-begins.html "Eid ul fitr").  
   

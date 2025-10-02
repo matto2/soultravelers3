@@ -15,7 +15,7 @@ tags:
   - "travel-secrets"
 ---
 
- [![How to avoid crowds in high season = Freedom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348542bb80970c.jpg "How to avoid crowds in high season = Freedom")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348542bb80970c.jpg)How To Travel Without Crowds In High Season!  
+ ![How to avoid crowds in high season = Freedom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348542bb80970c.jpg)How To Travel Without Crowds In High Season!  
 July 15, 2010
 
 I hate crowds, don't you?  
@@ -24,7 +24,7 @@ to special places as there is 
 
 <!--more-->
 
-[![family travel avoiding crowds in high season for more freedom & peace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3683970b.jpg "family travel avoiding crowds in high season for more freedom & peace")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3683970b.jpg)  
+![family travel avoiding crowds in high season for more freedom & peace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3683970b.jpg)  
 
  I hate crowds, don't you? Especially when I'm traveling to special places as there is nothing better than having them all to your self or sharing with just a few others, so one can truly take in the essence of a place. How can anyone really enjoy a place when you are in wall to wall people in a mass of humanity? That is not the way I want to experience the world.  
   
@@ -38,7 +38,7 @@ How did we manage to do these things? We are not magicians and found that it is 
   
 **1) Make it a priority to avoid crowds** 
 
-[![family travel seeing cruise ship crowds and buses- how to avoid this & have more fun for less](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3b27970b.jpg "family travel seeing cruise ship crowds and buses- how to avoid this & have more fun for less")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3b27970b.jpg)
+![family travel seeing cruise ship crowds and buses- how to avoid this & have more fun for less](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3b27970b.jpg)
 
 _Bus loads of folks from the expensive river cruise boats touring the crowded, high cost way_  
   
@@ -69,7 +69,7 @@ We also went back on a non-cruise day and were the first ones there. We had it t
   
 We really got to enjoy Melk and the other gems that we saw in high season, because we had the time, space, quiet and ease to take it all in with time to relax and reflect. No rushing, no crowds.
 
-  [![Family travel Austria, frugal travel can be better than luxury travel for avoiding crowds](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3eed970b.jpg "Family travel Austria, frugal travel can be better than luxury travel for avoiding crowds")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3eed970b.jpg)
+  ![Family travel Austria, frugal travel can be better than luxury travel for avoiding crowds](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f21d3eed970b.jpg)
 
 _Enjoying a whole peaceful park to ourselves in Melk right on the Danube for less than 20 euros a day next to the expensive cruise boats & we did a day cruise plus our bikes  for a pittance._  
   

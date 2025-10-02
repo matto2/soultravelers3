@@ -20,13 +20,13 @@ tags:
   - "visiting-provence"
 ---
 
-[![IMG_6454](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630503068a970d.jpg "IMG_6454")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630503068a970d.jpg)France With Kids - Exploring Provence  
+![IMG_6454](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301630503068a970d.jpg)France With Kids - Exploring Provence  
   
 Provence is an ideal place  
 to vacation as a family and  
 take your kids. So much to
 
-<!--more--> [![FRANCE FAMILY TRIP - KID EXPLORING PROVENCE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f65024970b.jpg "FRANCE FAMILY TRIP - KID EXPLORING PROVENCE")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f65024970b.jpg)
+<!--more--> ![FRANCE FAMILY TRIP - KID EXPLORING PROVENCE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765f65024970b.jpg)
 
 [Provence](http://soultravelers3new.local/2006/10/good-morning-pr.html "PROVENCE") is an ideal place to [vacation as a family in France](http://soultravelers3new.local/2010/07/darling-dordogne-vacation-holiday-for-families-in-france.html "VACATION HOLIDAY FRANCE") and take your kids. So much to do, spectacularly beautiful, good weather, great food, culture, and each village has it's own special flavor. We've spent months and months exploring Provence many times on our [family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "AROUND THE WORLD FAMILY TRIP") and will continue to return.  
   

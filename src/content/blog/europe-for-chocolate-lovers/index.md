@@ -23,13 +23,13 @@ tags:
 ---
 
 [  
-](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153914bd8d8970b-150x150-1.jpg)[![IMG_4840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b3f4291970d.jpg "IMG_4840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b3f4291970d.jpg)Europe for Chocolate Lovers!
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153914bd8d8970b-150x150-1.jpg)![IMG_4840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b3f4291970d.jpg)Europe for Chocolate Lovers!
 
 Is Europe a mecca  
 for chocoholics?  
 This chocolate truffle photo
 
-<!--more--> [![chocolate truffle or Trufa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b3f245b970d.jpg "chocolate truffle or Trufa")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b3f245b970d.jpg)  
+<!--more--> ![chocolate truffle or Trufa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b3f245b970d.jpg)  
   
 Is Europe a mecca for chocoholics? This beautiful chocolate truffle photo was taken in Sitges, Spain, but some of the [best chocolate in the world is in Europe](http://www.foodandwine.com/articles/the-worlds-best-chocolate "best chocolate in the world is in Europe"), so we have indulged in it in MANY places. When it comes to [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel"), there is never a [chocolate shop/chocolatier](http://soultravelers3new.local/2006/09/sun-arc-de-triu.html "chocolate shop chocolatier")  that children ( full grown or pint sized) will not want to stop at and try a piece or two.  
   

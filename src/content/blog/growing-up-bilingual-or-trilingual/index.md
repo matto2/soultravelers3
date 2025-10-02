@@ -20,20 +20,20 @@ tags:
   - "trilingual-kid"
 ---
 
-[![IMG_9737](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427d3fb1970c.jpg "IMG_9737")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427d3fb1970c.jpg)Growing Up Bilingual or Trilingual  
+![IMG_9737](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d427d3fb1970c.jpg)Growing Up Bilingual or Trilingual  
   
 Can anyone raise a bilingual, trilingual  
 or multilingual child? Does growing  
 up bilingual or trilingual as a global
 
-<!--more--> [![growing up bilingual and trilingual - our multilingual kid writing Mandarin in Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9f19096970d.jpg "growing up bilingual and trilingual - our multilingual kid writing Mandarin in Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9f19096970d.jpg)  
+<!--more--> ![growing up bilingual and trilingual - our multilingual kid writing Mandarin in Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9f19096970d.jpg)  
   
   
 Can anyone [raise a bilingual](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "how to raise a bilingual child"), [trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html "raising a bilingual child or trilingual") or [multilingual child](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html "tips for raising a multilingual child - reading")? Does [growing up bilingual](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-3.html "growing up bilingual ") or trilingual as a [global kid](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "global kid") have advantages that are life long? Studies show that there are indeed many, [many advantages of bilingualism](http://www.nytimes.com/2012/03/18/opinion/sunday/the-benefits-of-bilingualism.html?_r=0 "benefits of bilingualism") and with concentrated, long term effort, I think anyone can do this.  
   
 We've all learned a lot along the way about [world schooling](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html/ "world schooling best education tips") this area and I've written a whole series about [how to raise a multilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "how to raise a multilingual child") to share the things that have worked for us.  
   
-[![Multilingual kid reading in  3 languages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d429f65c9970c.jpg "Multilingual kid reading in  3 languages")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d429f65c9970c.jpg)  
+![Multilingual kid reading in  3 languages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d429f65c9970c.jpg)  
   
   
 The lead photo is of our [American child](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "American child in Chinese school") working on [Chinese writing](http://soultravelers3new.local/2012/02/mandarin-chinese-learning-at-home-and-abroad.html "learning Mandarin at home an abroad") while visiting the [Dead Sea in Jordan](http://soultravelers3new.local/2012/09/stunningly-beautiful-dead-sea-water.html "dead sea jordan") on our [long term family world trip](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "long term family world trip"). We see first hand how [language learning](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "language learning") has already given her tons of benefits, not just in [gifted learning](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "gifted learning and travel") circles, but adding such [richness to everyday life](http://soultravelers3new.local/2012/12/random-acts-of-kindness-in-travel.html "random acts of kindness in travel") and icing on the cake for [travel](http://soultravelers3new.local/2012/02/travel-schooling-learning-through-travel.html "travel schooling").  
@@ -47,13 +47,13 @@ We are monolingual parents raising a trilingual and triliterate child in [Spanis
   
 She just [won a trophy](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "ted talk mandarin amazing speech") at 12 ( setting a 63 year record!) at her huge 1000-kid [Chinese High School in Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "best chinese high school in Asia") for the [Chinese Elocution contest](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "winning elocution contest kid") and the first Caucasian to ever do this. She was also recently offered a full scholarship to Harvard by some [good people in China](http://soultravelers3new.local/2013/03/good-people-helping-good-people-%E8%B4%B5%E4%BA%BA%E7%9B%B8%E5%8A%A9.html "good people in China") and being able to [bridge worlds](http://soultravelers3new.local/2012/12/china-bridge-summer-palace.html "china bridge"), can't help but add to her future no matter what she chooses. We think multilingualism helps [world peace](http://soultravelers3new.local/2012/10/world-peace-love-and-happiness.html "world peace") as it broadens understanding and compassion.  
   
-[![Our bilingual baby with Spanish tutor in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea13acaa970d.jpg "Our bilingual baby with Spanish tutor in California")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea13acaa970d.jpg)  
+![Our bilingual baby with Spanish tutor in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eea13acaa970d.jpg)  
   
 Many people ( even native speaking bilingual parents) fail at raising a bilingual child, so we are very proud of how fluent and literate she is at 12 in all of her languages. Interestingly, my advice on [raising a reader](http://soultravelers3new.local/2013/03/10-tips-to-raise-a-reader-book-lover.html "raising a reader"), also applies to raising a multilingual child: support them in reading and writing in ALL of their languages.  
   
 I didn't realize what a long commitment this was when I first thought of this idea or when we attempted it when she was a baby. Most people thought we were crazy and most thought we would fail. I didn't know if we would make it, but thought it was worth a try.  
   
-[![Our little blond trilingual in Chinese outfit - multilingual kid fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d429f74a1970c.jpg "Our little blond trilingual in Chinese outfit - multilingual kid fun!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d429f74a1970c.jpg)  
+![Our little blond trilingual in Chinese outfit - multilingual kid fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d429f74a1970c.jpg)  
   
 I didn't know that it is normal to have periods where the child has resistance to speaking the language,( if it is not the dominant one),  starting around age four as they become more verbal. I had no idea how long it takes ( similar to her [violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "violin around the world") and [piano](http://soultravelers3new.local/2007/12/pool-play-piano.html "piano and travel")) ....YEARS of daily practice, to get really fluent. I didn't realize the added challenges of doing all of this on the move.  
   
@@ -92,7 +92,7 @@ Just because you are a traveler or expat or a parent who is fluent in another la
   
 The key is starting young ( preferably at birth or during pregnancy), making it a daily priority like one teaches a child to brush their teeth and looking for every possible opportunity to create immersion (even in the home)  in the minority languge or languages. There truly are amazing opportunities EVERY WHERE, but it is up to the parents to keep the bilingual baby ( or trilingual, multilingual) on track for the long term. Life has a way of getting busy when you have a child, but daily good habits and setting priorities over the long haul creates success.  
   
-[![growing up bilingual or trilingual - our blond girl writing Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38704bce970b.jpg "growing up bilingual or trilingual - our blond girl writing Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38704bce970b.jpg)  
+![growing up bilingual or trilingual - our blond girl writing Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38704bce970b.jpg)  
   
 "One free lunch in the world is to learn another language in early childhood." Pinker ( MIT Linguist)  
   

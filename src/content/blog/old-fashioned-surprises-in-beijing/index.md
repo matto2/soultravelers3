@@ -17,14 +17,14 @@ tags:
   - "travel-to-beijing"
 ---
 
-[![IMG_6457](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55d48e5970d.jpg "IMG_6457")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55d48e5970d.jpg)Old Fashioned Surprises  
+![IMG_6457](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55d48e5970d.jpg)Old Fashioned Surprises  
 in Beijing  
   
 China is full of contrasts.Right  
 next to opulent luxury shopping  
 and skyscraper skylines, one will
 
-<!--more--> [![Beijing travel surprises and contrasts ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33b9af04970b.jpg "Beijing travel surprises and contrasts ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33b9af04970b.jpg)  
+<!--more--> ![Beijing travel surprises and contrasts ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c33b9af04970b.jpg)  
   
 [China](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html "China family vacation") is full of contrasts.Right next to opulent [luxury shopping](http://soultravelers3new.local/2013/06/shanghai-louis-vuitton-chinese-luxury-shopping.html "luxury shopping in China") and [skyscraper skylines](http://soultravelers3new.local/2012/12/shanghai-skyline-worlds-best-.html "world's best skyline shanghai"), one will also see sights like these over stuffed primitive bike carts piled high with various goods.  
   

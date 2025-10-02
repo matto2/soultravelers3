@@ -16,7 +16,7 @@ tags:
   - "travel-friends"
 ---
 
-[![IMG_4367](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432f52407970c.jpg "IMG_4367")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432f52407970c.jpg) Delicious Dinner in Barcelona
+![IMG_4367](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432f52407970c.jpg) Delicious Dinner in Barcelona
 
 Where is the best meal  
 in Barcelona? Is this the  
@@ -24,7 +24,7 @@ latest hot spot? I think
 
 <!--more-->
 
-[![dinner with friends in Barcelona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e891508f0970d.jpg "dinner with friends in Barcelona")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e891508f0970d.jpg)
+![dinner with friends in Barcelona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e891508f0970d.jpg)
 
 Where is the best meal in [Barcelona](http://soultravelers3new.local/2007/05/bye-bye-barcelo.html "family tour barcelona")? Is this the latest hot spot? I think it is at our friends house! So scrumptious that I am still dreaming about it and with the dearest of friends.  
   

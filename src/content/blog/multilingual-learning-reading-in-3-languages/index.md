@@ -20,14 +20,14 @@ tags:
   - "teaching-reading-and-writing-to-multilingual-kids"
 ---
 
-[![IMG_5465](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee423c1f0970d.jpg "IMG_5465")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee423c1f0970d.jpg)Multilingual Learning - 
+![IMG_5465](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee423c1f0970d.jpg)Multilingual Learning - 
 Reading in 3 Languages  
   
 One of the hardest things  
 about raising a multilingual  
 child is teaching literacy and
 
-<!--more--> [![reading books in 3 languages- multilingual literacy advantages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee423c250970d.jpg "reading books in 3 languages- multilingual literacy advantages")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee423c250970d.jpg)  
+<!--more--> ![reading books in 3 languages- multilingual literacy advantages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee423c250970d.jpg)  
   
 One of the hardest things about [raising a multilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "raising a multilingual child") is teaching literacy and many parents of bilingual or trilingual kids, just give up when it comes to [second language literacy](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html "second language literacy spanish and chinese") because it is hard work for many years and there is only so much time in a day. This is true even for parents who speak the second language as their native tongue and even more so in a difficult written [languages like Mandarin](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "language learning like Mandarin why do it") ( despite [tutoring](http://soultravelers3new.local/2012/10/tutoring-in-asia-why-asians-get-superior-test-scores.html "tutoring in Asia") or going to [Chinese school](http://soultravelers3new.local/2012/11/chinese-school-fun.html "chinese school") in USA).  
   

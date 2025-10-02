@@ -20,13 +20,13 @@ tags:
   - "using-art-with-travel-education"
 ---
 
- [![IMG_4480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8941a843970d.jpg "IMG_4480")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8941a843970d.jpg) Art, Travel, Kids, Jordan
+ ![IMG_4480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8941a843970d.jpg) Art, Travel, Kids, Jordan
 
 Did you know that adding  
 colored pencils and paper  
 to your day pack when you
 
-<!--more--> [![Drawing of Petra Jordan by 10 year old child ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433217ab1970c.jpg "Drawing of Petra Jordan by 10 year old child ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433217ab1970c.jpg)  
+<!--more--> ![Drawing of Petra Jordan by 10 year old child ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015433217ab1970c.jpg)  
   
   
 Did you know that adding colored pencils and paper to your day pack when you [travel with kids](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "travel with kids"), can add a lot of enjoyment, [educational value to your family travel](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "family travel education value"), and the best [family vacation souvenirs](http://soultravelers3new.local/2010/06/family-travel-scotland-edinburgh-funny-sign-souvenir-shop-edinburgh-festival-camping.html "family vacation souvenirs")?  

@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
-[![Img_3955_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_3955_2.jpg "Img_3955_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/30/img_3955_2.jpg) I Have Not Forgotten You!  
+![Img_3955_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/30/img_3955_2.jpg) I Have Not Forgotten You!  
 December 1, 2008
 
 This is just a quick post to let you know  

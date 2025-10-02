@@ -18,7 +18,7 @@ tags:
   - "winter-rental"
 ---
 
-[![IMG_0718](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875c92df3970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875c92df3970c.jpg)
+![IMG_0718](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875c92df3970c.jpg)
 
 What's a Winter Rental in Spain Like?  
 November 24, 2009
@@ -29,7 +29,7 @@ the Andalusian country side that
 
 <!--more-->
 
-[![landscape, vacation home, costa del sol, andalusia,pool, Med sea](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875c92ec0970c.jpg "landscape, vacation home, costa del sol, andalusia,pool, Med sea")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875c92ec0970c.jpg)  
+![landscape, vacation home, costa del sol, andalusia,pool, Med sea](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012875c92ec0970c.jpg)  
 
 This is the stunning view from the Spanish rental home in the Andalusian country side that we almost moved into for the winter. It was breath-taking in person including a huge expanse of the Med sea, but too panoramic to be able to include it all or really capture in one photo. Almost all the places in our area have [spectacular Med sea](http://soultravelers3new.local/2008/04/post-1.html) and mountain views
 
@@ -49,7 +49,7 @@ It is such a [small white village](http://en.wikipedia.org/wiki/White_Towns_of_A
 
 It is amazing what these kids notice as quite a few times (once even in the dark) they spotted her at a great distance from their terrace high above and it took us a while to figure out who was calling! Also when DaVinci was separated from us to park our RV, he ran into a young boy he didn't recognize, but who did know exactly who he was as he asked if "Mozart" was back. Ah, the many small joys of life in a little hill town near the sea.
 
-[![IMG_0727](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6cf3e2d970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6cf3e2d970b.jpg)  
+![IMG_0727](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6cf3e2d970b.jpg)  
 
 The three of us could hardly keep the grins off our faces as we strolled around "our" village once again in the gorgeous, sunny late November weather, taking in all the familiar beauty. After seeing a bunch of rental homes, village houses and apartments (ALL worthy candidates for a low budget, luxury winter stay), we had a delicious lunch at one of our favorite restaurants here ( at bargain prices).
 
@@ -69,7 +69,7 @@ The first winter [we rented an older village house](http://soultravelers3new.loc
 
 Every winter home that you pick will have pros and cons as there is no absolutely perfect home at rock bottom prices in any country or place.The downside to our first winter's place was the dated kitchen and bathroom, but that was also the reason we got it for such a low price (plus expert negotiation).
 
-[![IMG_0741](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg33012875d0d457970c-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg
+![IMG_0741](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg
 33012875d0d457970c-pi)  
 
 We don't use dishwashers or microwaves (it had one) so we didn't mind the kitchen which did have lots of storage space. The bathroom was only a challenge because it was that common European type that had no shower curtain and we never mastered the fine art of keeping the water off the floor, thus that got old.
@@ -80,13 +80,13 @@ Both rentals had fabulous large terraces and stunning sea and mountain views, bu
 
 This year we had more requirements because I have a [severely injured arm](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html) which even affects my walking, stairs and bathroom/shower choices, but we still found many choices and it was hard to narrow our "must-see's"  down to 9 rental places to see in person.
 
-[![IMG_0746](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg33012875d0d5f8970c-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0d5f8970c-pi)  
+![IMG_0746](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0d5f8970c-pi)  
 
 We arrive early and like to see them all in a day, then make a choice, move in and handle the paper work all at once in one day. Mozart usually starts back at the local school on that same day or the next. By lunch time we had it narrowed down to two places and didn't even finish seeing our whole list (some were great two bedroom places that were much cheaper, but we prefer more space).
 
 The photos don't fully convey this approximately 2000 square foot, 3 bedroom, 2 bathroom place, but gives you a rough idea about what 600 euros a month gets you in winter in a special white village near the sea in Andalusia, Spain.There are tons of similar style two bedrooms (most common size) that go for around 400 euros per month and almost all have beautiful views, balconies, plus every convenience from dishwashers to washing machines and British Sky TV, etc. (Yes, fridge and dishwasher are built into kitchen cabinetry).
 
-[![IMG_0743](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg33012875d0d6f0970c-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0d6f0970c-pi)  
+![IMG_0743](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0d6f0970c-pi)  
 
 **There are basically two types to rent in rural areas:**
 
@@ -96,7 +96,7 @@ B) Villas or separate houses in the country side
 
 There are some spectacularly beautiful places in both locations, but the nicer the place, the higher the cost. All are bargains during the winter, so much just depends on your budget. We could afford to pay more and sometimes have been tempted by the highest end places ( as well as highest end motorhomes), but being frugal pragmatists, we tend to settle for the most luxury that we can obtain at the lowest price. Considering that we rented a not-nearly-as-nice unfurnished two bedroom place in California for 1700 dollars a month before we took off on our world tour, we find these great bargains!
 
-[![IMG_0760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg330120a6cf5088970b-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf5088970b-pi)  
+![IMG_0760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf5088970b-pi)  
 
 The downside to any country home is that one is very isolated, a car is a must (so more money on fuel and more restrictions on time) and there are often added costs like for garbage collection etc.
 
@@ -106,23 +106,23 @@ We almost took the one with the spectacular view shown in our lead photo as it w
 
 Alas, just as we were about to close the deal, they told us the Spanish owners had it booked for the weekend, so we could not get into it until Monday. That turned the tide because it was an older dated, somewhat funky place inside and there were lots of unknowns and really many more stairs than I needed. It was on the bus route, but being totally dependent on the buses for school everyday might become a daunting task when we have gotten so spoiled by a short quick walk to everything.Given the added burden of my slow healing paralyzed arm this year, it seemed chancy.
 
-[![IMG_0767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg330120a6cf534e970b-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf534e970b-pi)  
+![IMG_0767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf534e970b-pi)  
 
 Thus, we went for the safe choice that is in the same exact building we have been in the last two years, so we know it well and will not have any surprises. This one is on the ground floor so no steps to deal with ( a real rarity in a hill village) and everything is like brand new as it's never been rented in the winter. It is very cheerful, modern and convenient with good storage space, high speed cable internet, excellent mattresses ( something to ALWAYS check in a rental), air conditioning/heating, pool, views etc.
 
-[![IMG_0755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg33012875d0e0bb970c-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e0bb970c-pi) 
+![IMG_0755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e0bb970c-pi) 
 
-[![IMG_0822](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg33012875d0e196970c-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e196970c-pi) 
+![IMG_0822](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e196970c-pi) 
 
-[![IMG_0761](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg33012875d0e3c6970c-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e3c6970c-pi)  
+![IMG_0761](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e3c6970c-pi)  
   
 We're happy to be "home" for the winter! The only added cost is electricity that averages out to around 70 euros a month the last 3 winters. Every place that we have rented so far has had British owners and either they or their caretakers handle any problems that might come up. Each bedroom has a large built in closet like the one shown in the picture, shutters for the windows which is part of Spanish life, bidet in the bathroom and quality bedroom and kitchen supplies well beyond what one needs.
 
-[![IMG_0757](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg330120a6cf5b8c970b-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf5b8c970b-pi) 
+![IMG_0757](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf5b8c970b-pi) 
 
-[![IMG_0763](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg330120a6cf5d4c970b-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf5d4c970b-pi) 
+![IMG_0763](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg330120a6cf5d4c970b-pi) 
 
-[![IMG_0769](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b.jpg33012875d0e82a970c-500wi)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e82a970c-pi)  
+![IMG_0769](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302a30d4ea748200b-1024x576-1.jpg33012875d0e82a970c-pi)  
   
   
 Is there anything else that you would like to know about renting a place in Spain for the winter? Please leave it in the comments and I will address it!

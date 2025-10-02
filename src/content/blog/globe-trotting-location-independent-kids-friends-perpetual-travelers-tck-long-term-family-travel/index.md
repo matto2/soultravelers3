@@ -24,7 +24,7 @@ tags:
   - "travel-with-kids"
 ---
 
- [![IMG_4942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480e9209f970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480e9209f970c.jpg) Can Globe Trotting Location Independent Kids Have Friends?  
+ ![IMG_4942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480e9209f970c.jpg) Can Globe Trotting Location Independent Kids Have Friends?  
 May  18, 2010
 
 One of the concerns about long term  
@@ -33,7 +33,7 @@ living as a family, extended family
 
 <!--more-->
 
-[![hugging girls spain, globe trotting, location independent, global nomad kids! TCK, ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb6d0b8970b.jpg "hugging girls spain, globe trotting, location independent, global nomad kids! TCK, ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb6d0b8970b.jpg)
+![hugging girls spain, globe trotting, location independent, global nomad kids! TCK, ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb6d0b8970b.jpg)
 
 One of the big concerns about [long term family travel](http://frugaltraveler.blogs.nytimes.com/2009/11/11/qa-with-jeanne-dee-the-nomadic-family-traveler/), [location independent living as a family](http://www.locationindependentparents.com/2009/inspiration-social-proof-an-interview-with-soultravelers3/), extended family sabbaticals abroad or [round-the-world trips with kids](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) seems to be a worry about how that will affect their friendships and the social life of both the kids and the parents. So far, this has not been a problem for us and in fact, we find our [global nomad lifestyle](http://soultravelers3new.local/2008/06/how-to-do-exten.html) **enhances** all of our relationships. We see it as a **great advantage** to us as a family and for our child. [Vagabonding with kids](http://soultravelers3new.local/2008/06/how-to-do-exten.html) rocks!
 
@@ -45,12 +45,12 @@ Being a [global nomad family](http://soultravelers3new.local/2010/03/long-term-f
 
 Today's world is very different than the so called  ["third culture kid's"](http://en.wikipedia.org/wiki/Third_culture_kid) that was coined by a woman who raised kids in India in the fifties. Technology makes things **very different today** when even very young kids can webcam-call relatives and friends around the world  for free from their laptops or smart phone and ubiquitous worldwide pop culture permeates even remote areas of the globe. Many [global nomad travelers](http://mixergy.com/nomad-family/) and expats today are not just military, wealthy business people, or missionaries (who usually stayed quite separate from the cultures they lived in), but [a whole new breed](http://www.fourhourworkweek.com/blog/) who are finding [new ways](http://untemplater.com/) to [live abroad](http://www.facebook.com/locationindependent)!
 
-[![Cute BFF! Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480e952ac970c.jpg "Cute BFF! Spain, globe trotting, location independent, global nomad kids! TCK,")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480e952ac970c.jpg)
+![Cute BFF! Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480e952ac970c.jpg)
 
-[![PJ party Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb705aa970b.jpg "PJ party Spain, globe trotting, location independent, global nomad kids! TCK,")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb705aa970b.jpg) 
+![PJ party Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb705aa970b.jpg) 
 
   
-[![2 cute kids in white village Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb706a6970b.jpg "2 cute kids in white village Spain, globe trotting, location independent, global nomad kids! TCK,")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb706a6970b.jpg)
+![2 cute kids in white village Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb706a6970b.jpg)
 
 Some people commenting on the [New York Times](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html) ' [Frugal Traveler](http://frugaltraveler.blogs.nytimes.com/2009/11/11/qa-with-jeanne-dee-the-nomadic-family-traveler/)'s article about us wondered if Mozart had any friends and some parents think you can't do extended travel unless you go to an expensive international schools, spend a fortune and basically try to recreate the exact same life that you had at home.
 
@@ -62,14 +62,14 @@ _"I expect she's got playmates and penpals all over the world.I really can't say
 
     
 
-_[![GetAttachment-5](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb82902970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb82902970b.jpg)  
+_![GetAttachment-5](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb82902970b.jpg)  
 She Skyped Grandma in California to send Best Friends Forever bracelets to Spain and together they created a special ceremony at a sleep over in Spain with UK friend who has also lived in South Africa._
 
-[![GetAttachment-1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8280b970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8280b970b.jpg)
+![GetAttachment-1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8280b970b.jpg)
 
 _Deciding to make their hair like twins to fool people into thinking that they are sisters_
 
-[![Sheep, young girls, horses in Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480ea7daa970c.jpg "Sheep, young girls, horses in Spain, globe trotting, location independent, global nomad kids! TCK,")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480ea7daa970c.jpg)  
+![Sheep, young girls, horses in Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480ea7daa970c.jpg)  
 _Walking home from school in Spain, you never know what you will see._
 
 _"In today’s busy world, days can go by without the entire family sitting down together. Mom and Dad are working, there’s play rehearsal, soccer practice, doctor appointments—and we lose touch. Traveling together gives everyone a chance to get reacquainted."_ Cynthia Harriman
@@ -82,16 +82,16 @@ Interestingly, as I was writing this, my [Facebook](http://www.facebook.com/grou
 
     
 
-    [![3 kings festival Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb87f2c970b.jpg "3 kings festival Spain, globe trotting, location independent, global nomad kids! TCK,")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb87f2c970b.jpg)  
+    ![3 kings festival Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb87f2c970b.jpg)  
 _  
 Celebrating and participating in festivals with school mates in Spain is multi-cultural lessons at it's best!_  
  
 
-  [![IMG_0968](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb866c0970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb866c0970b.jpg)
+  ![IMG_0968](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb866c0970b.jpg)
 
 _Teaching her English best friend about American girl dolls at one of many sleep overs in Spain._
 
- [![GetAttachment-3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb881f9970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb881f9970b.jpg)
+ ![GetAttachment-3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb881f9970b.jpg)
 
 _Making art for their Best Friends Forever ceremony. Yes, that is a world map on our unwatched TV._ 
 
@@ -116,7 +116,7 @@ _
 
  
 
-[![GetAttachment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8af7c970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8af7c970b.jpg)
+![GetAttachment](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8af7c970b.jpg)
 
 _Nail painting time and giggles!_
 
@@ -124,11 +124,11 @@ _Nail painting time and giggles!_
 
 _Two best friends forever who both play the violin!_
 
-[![IMG_4908](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eafb88970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eafb88970c.jpg)
+![IMG_4908](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eafb88970c.jpg)
 
 _Playing at the Koi pond fountain on the playful walk home from school, the highlight of my day!_
 
-[![music, piano, violin, 2 girls, Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8b4ce970b.jpg "music, piano, violin, 2 girls, Spain, globe trotting, location independent, global nomad kids! TCK,")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8b4ce970b.jpg) 
+![music, piano, violin, 2 girls, Spain, globe trotting, location independent, global nomad kids! TCK,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edb8b4ce970b.jpg) 
 
 _Playing a duet for fun!_
 
@@ -142,13 +142,13 @@ There is just one expat in her grade who happens to be a boy, but  at first I d
 
 I've heard of some families doing one year around-the-world trips who almost never ran into other kids, which always seems so odd to me. Since we mostly use our RV for travel, we always meet LOTS of kids where ever we go and Mozart really enjoys those friendships too. This experience has taught her really great skills of going up to strangers to connect, even with no language in common and letting go easily when it is time to go, whether that is after an hour, a day or weeks or months. Playing with kids from many different countries that speak many different languages in many diverse locations  over the last four years has enriched her life and global understanding immensely. Her connections also help us meet others, as families tend to connect through their kids.
 
-[![IMG_3239](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb36c2970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb36c2970c.jpg) 
+![IMG_3239](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb36c2970c.jpg) 
 
-[![GetAttachment-2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb39c2970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb39c2970c.jpg)
+![GetAttachment-2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb39c2970c.jpg)
 
 They happily made "twin" pony tail hair do all by themselves.
 
-[![IMG_4918](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb3bd7970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb3bd7970c.jpg)
+![IMG_4918](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480eb3bd7970c.jpg)
 
 "The most beautiful discovery true friends make is that they can grow separately without growing apart." Elisabeth Foley 
 
@@ -170,15 +170,15 @@ My hope is that she retains all the best things of a life in one place, few of t
 
 What are your thoughts or experiences?
 
-[![IMG_4193](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edbbf7df970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edbbf7df970b.jpg) 
+![IMG_4193](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edbbf7df970b.jpg) 
 
 _Enjoying  a friends Karoke birthday party_
 
-[![IMG_1677](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480ee449b970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480ee449b970c.jpg)
+![IMG_1677](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013480ee449b970c.jpg)
 
 _Participating in this year's Carnival in our village where a whole group of school mates dressed as Indians._
 
-   [![IMG_5045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edbc04bd970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edbc04bd970b.jpg)_Last year's going away/early birthday/pool party for Mozart with two best friends_  
+   ![IMG_5045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133edbc04bd970b.jpg)_Last year's going away/early birthday/pool party for Mozart with two best friends_  
   
    
 

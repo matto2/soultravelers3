@@ -17,7 +17,7 @@ tags:
   - "traditions-in-france"
 ---
 
-[![stunning horses in Camargue France beautiful photography](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef17b0970c.jpg "stunning horses in Camargue France beautiful photography")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef17b0970c.jpg)
+![stunning horses in Camargue France beautiful photography](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef17b0970c.jpg)
 
 Stunning Horses in the Camargue, France  
 August 2, 2010  
@@ -32,7 +32,7 @@ surprises! We have lots to tell about
   
 
   
-[![stunning horses in the Camargue, France Saintes Maries de la Mer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef1c99970c.jpg "stunning horses in the Camargue, France Saintes Maries de la Mer")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef1c99970c.jpg)  
+![stunning horses in the Camargue, France Saintes Maries de la Mer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef1c99970c.jpg)  
  
 
   
@@ -44,7 +44,7 @@ Family travel in the Camargue in southern France is full of delightful surprises
   
 
   
-[![Amazing photo of Camargue, France horses & traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9cb0970b.jpg "Amazing photo of Camargue, France horses & traditional dress")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9cb0970b.jpg)  
+![Amazing photo of Camargue, France horses & traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9cb0970b.jpg)  
    
  I've been wanting to get to the [Camargue](http://en.wikipedia.org/wiki/Camargue) for quite some time, even before our [family world trip](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) when I visited Provence and the Cote d'Azure on various trips in the past. When I live and modeled in Milan long ago, I would come to the south of France almost every weekend in good weather, as my boyfriend kept his yacht in Antibes, but some how we never made it to the Camarugue for explorations.
 
@@ -57,26 +57,26 @@ Family travel in the Camargue in southern France is full of delightful surprises
   
 
   
-[![Camargue, France horse riding at sunset in traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb98d3970b.jpg "Camargue, France horse riding at sunset in traditional dress")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb98d3970b.jpg)
+![Camargue, France horse riding at sunset in traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb98d3970b.jpg)
 
   
   
 
   
-[![IMG_6762](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9e25970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9e25970b.jpg)
+![IMG_6762](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9e25970b.jpg)
 
   
   
 
   
-[![Stes. Maries de la Mer traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef28fc970c.jpg "Stes. Maries de la Mer traditional dress")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef28fc970c.jpg)  
+![Stes. Maries de la Mer traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef28fc970c.jpg)  
  
 
   
   
 
   
-[![Camargue horse & sidesaddle rider Stes. Maries de la Me](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9f85970b.jpg "Camargue horse & sidesaddle rider Stes. Maries de la Me")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9f85970b.jpg)  
+![Camargue horse & sidesaddle rider Stes. Maries de la Me](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9f85970b.jpg)  
    
  By chance, we arrived in Stes. Maries de la Mer just before sunset and noticed some people starting to line up along the main  street. We had stopped at the beach nearby beforehand, wandered along the pretty yacht harbor and noticed there was a bullfight in progress because we could see people at the top of the arena and the waiting ambulance nearby.  Ste Maries de la Mer is famous for it's gypsy gathering every May, and we found it more charming in summer than expected. It's a popular place for motorhomes and they have a place to park them for 48 hours right in the town for just 9 euros, thus we did and joined the small line of people on the main street. 
 
@@ -84,19 +84,19 @@ Family travel in the Camargue in southern France is full of delightful surprises
   
 
   
-[![IMG_6820](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef2b15970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef2b15970c.jpg)
+![IMG_6820](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef2b15970c.jpg)
 
   
   
 
   
-[![IMG_6793](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef2bf2970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef2bf2970c.jpg)
+![IMG_6793](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef2bf2970c.jpg)
 
   
   
 
   
-[![IMG_6823](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cba4ed970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cba4ed970b.jpg)  
+![IMG_6823](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cba4ed970b.jpg)  
    
  Wow! We were so glad we did as it was quite a show. Women wearing traditional dresses of the Camargue, rode sidesaddle really fast from one end of town to the other, leading a large pack of [wild horses](http://en.wikipedia.org/wiki/Camargue_%28horse%29) thundering after them with nothing attached, and two guardians ( France's Camargue cowboys) followed behind with their traditional long sticks. Then they turn around and do it from the other direction. You are so close to the horses ( as you can see my Mozart's head in the second shot) that it is quite thrilling and took our breath away.
 
@@ -104,19 +104,19 @@ Family travel in the Camargue in southern France is full of delightful surprises
   
 
   
-[![stunning horses Stes. Maries de la Mer, France guardian cowboys](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef3512970c.jpg "stunning horses Stes. Maries de la Mer, France guardian cowboys")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef3512970c.jpg)
+![stunning horses Stes. Maries de la Mer, France guardian cowboys](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef3512970c.jpg)
 
   
   
 
   
-[![sunset Stes. Maries de la Mer camargue france](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485efe7fa970c.jpg "sunset Stes. Maries de la Mer camargue france")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485efe7fa970c.jpg)
+![sunset Stes. Maries de la Mer camargue france](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485efe7fa970c.jpg)
 
   
   
 
   
-[![Stes. Maries de la Me Camargue guardian house](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef37c5970c.jpg "Stes. Maries de la Me Camargue guardian house")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef37c5970c.jpg)  
+![Stes. Maries de la Me Camargue guardian house](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833013485ef37c5970c.jpg)  
    
   
 
@@ -135,7 +135,7 @@ We'll try to get a video up soon, but I just had to share these photos with you!
   
 
   
-[![Stes. Maries de la Mer camargue france flamingos ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cbb0e4970b.jpg "Stes. Maries de la Mer camargue france flamingos ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cbb0e4970b.jpg)  
+![Stes. Maries de la Mer camargue france flamingos ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cbb0e4970b.jpg)  
  
 
   

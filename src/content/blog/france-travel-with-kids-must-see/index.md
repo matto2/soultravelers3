@@ -16,13 +16,13 @@ tags:
   - "travel-to-france"
 ---
 
-[![IMG_7284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305032dda970d.jpg "IMG_7284")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305032dda970d.jpg)France Travel With Kids - Must See!  
+![IMG_7284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016305032dda970d.jpg)France Travel With Kids - Must See!  
   
 Planning a trip with kids  
 to France? There is a reason  
 why France is the number one
 
-<!--more--> [![Family trip to France, don't miss these horses at Puy du Fou!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf8b988970c.jpg "Family trip to France, don't miss these horses at Puy du Fou!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf8b988970c.jpg)  
+<!--more--> ![Family trip to France, don't miss these horses at Puy du Fou!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf8b988970c.jpg)  
   
 Planning a [trip with kids to France](http://soultravelers3new.local/2012/06/france-with-kids-exploring-provence.html "trip with kids to France")? There is a reason why France is the number one travel destination in Europe and I picked it as one of the [5 Best European Family Vacations](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "5 best european family vacations").  
   

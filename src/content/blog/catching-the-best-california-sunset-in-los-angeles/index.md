@@ -29,14 +29,14 @@ tags:
   - "travel-to-los-angeles"
 ---
 
-[![O88A0061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb098336ab970d-scaled.jpg "O88A0061")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb098336ab970d-scaled.jpg)Catching the Best California  
+![O88A0061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb098336ab970d-scaled.jpg)Catching the Best California  
 Sunset in Los Angeles   
   
 As a world traveling family, we've  
 been blessed to catch some of the  
 best sunsets and sunrises in the world;
 
-<!--more--> [![Catching the Best California Sunset in Los Angeles ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0983376f970d.png "Catching the Best California Sunset in Los Angeles ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0983376f970d.png)  
+<!--more--> ![Catching the Best California Sunset in Los Angeles ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0983376f970d.png)  
   
 As a [world traveling family](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "world traveling family"), we've been blessed to catch some of the [best sunsets](http://soultravelers3new.local/2012/10/sweet-sunset.html "best sunsets around the world ") and [sunrises in the world](http://soultravelers3new.local/2012/10/spectacular-sunrise-and-quote.html "beautiful sunrises around the world "), but the spectacular one we experienced in Los Angeles was beyond breathtaking and it couldn't have happened at a better time.  
   

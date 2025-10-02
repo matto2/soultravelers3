@@ -22,14 +22,14 @@ tags:
   - "why-no-shampoo"
 ---
 
-[![IMG_5216](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b0842970d.jpg "IMG_5216")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b0842970d.jpg)How to Make DIY Homemade Shampoo  
+![IMG_5216](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b0842970d.jpg)How to Make DIY Homemade Shampoo  
 and Creme Rinse - Easy, Cheap, Healthy  
   
 Do you know how to clean  
 your hair without shampoo?  
 Did you know you that you never
 
-<!--more--> [![Beautiful hair- shampoo free to avoid toxins and chemicals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d7834970b.jpg "Beautiful hair- shampoo free to avoid toxins and chemicals")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d7834970b.jpg)
+<!--more--> ![Beautiful hair- shampoo free to avoid toxins and chemicals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315d7834970b.jpg)
 
 Do you know how to clean your hair without shampoo? Did you know  that you never have to shampoo your hair again and can go shampoo free forever?  
   
@@ -66,7 +66,7 @@ All these [toxins and chemicals](http://articles.mercola.com/sites/articles/arch
   
 We are frugal parents raising a frugal kid, so she did get the advantages of saving money right away. Since she has a [passion for green issues](http://soultravelers3new.local/2012/04/environmental-education-world-school-kid.html "kid with passion for green environmental issues"), she understood immediately that not only do these chemicals harm our bodies and hair, but they are also washed down the drain causing harm to the environment and ecosystems.  
   
-[![baking soda makes a great natural shampoo and coconut oil is fab for deep conditioning hair ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c322a8e47970b.jpg "baking soda makes a great natural shampoo and coconut oil is fab for deep conditioning hair ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c322a8e47970b.jpg)  
+![baking soda makes a great natural shampoo and coconut oil is fab for deep conditioning hair ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c322a8e47970b.jpg)  
   
   
 **'POO FREE STILL MEANS BEAUTIFUL HAIR**  
@@ -86,7 +86,7 @@ You can find other complicated variations for natual alternatives for [shampoo a
   
 "People will always try to stop you from doing the right thing if it is unconventional" - Warren Buffet  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5a3402970c-1024x768-1.jpg)[![Lemons have many health benefits--including using them for creme rinse](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5a3402970c.jpg "Lemons have many health benefits--including using them for creme rinse")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5a3402970c-1024x768-1.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5a3402970c-1024x768-1.jpg)![Lemons have many health benefits--including using them for creme rinse](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c5a3402970c-1024x768-1.jpg)  
   
   
 **  

@@ -23,7 +23,7 @@ His experienced hands, covered in oozing clay, turned the glob of earth into a b
 
 We arrived at this potters studio before anyone was there. Like curious mice we had the run of the place to see if we could ferret out any of the secrets to this art. DaVinci always enjoys the process of artists. He has taught Mozart and I to appreciate the beauty that is there in the prep stages. A good artist has his tools organized well, which in turn is almost an art in itself or like a shrine to the final piece. Process is so important to art and how an artist manages his space, tells one more about the art. This one was fun to explore uninhibitedly.
 
-[![Img_2538](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2538.jpg "Img_2538")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2538.jpg)
+![Img_2538](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2538.jpg)
 
 When the artist finally arrived, we were the only people there, so it was almost like a private show. Mozart instructed her bear Pippa in how it is done. The studio has been there and in use for four generations, the owner proudly told us.
 
@@ -33,7 +33,7 @@ This town, Buno in Galicia, Spain has been dedicated to pottery since Roman time
 
 [![Img_2499](http://soultravelers3new.local/images/2008/10/01/img_2499.jpg "Img_2499")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2499.jpg)
 
-[![Img_2481](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2481.jpg "Img_2481")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2481.jpg)
+![Img_2481](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2481.jpg)
 
   
   
@@ -52,7 +52,7 @@ Mozart picked out a very special handkerchief with her initial on it. The lady w
 
 Both Canmarinas and Buno are beautiful Galician towns, but it will be the special moments with these talented crafts people which we will remember most.Do you like to include watching and exploring local crafts people when you travel? What has been your favorite one?
 
-[![Img_2779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/img_2779.jpg "Img_2779")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2779.jpg)
+![Img_2779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2779.jpg)
 
 [![Img_2781](http://soultravelers3new.local/images/2008/10/01/img_2781.jpg "Img_2781")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/01/img_2781.jpg)
 

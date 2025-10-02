@@ -18,7 +18,7 @@ tags:
   - "primal-paleo"
 ---
 
-[![IMG_7494](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a3fb4b970c.jpg "IMG_7494")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a3fb4b970c.jpg)Paleo Pasta Recipe  
+![IMG_7494](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a3fb4b970c.jpg)Paleo Pasta Recipe  
 (Grain-Free & Gluten-Free)  
   
 Looking for a Paleo pasta recipe  

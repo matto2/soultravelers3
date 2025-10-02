@@ -21,14 +21,14 @@ tags:
   - "worldschool-tips-for-homeschool-kids-in-europe"
 ---
 
-[![IMG_4209](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcca603a970b.jpg "IMG_4209")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcca603a970b.jpg)Homeschool Family European Tour  
+![IMG_4209](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcca603a970b.jpg)Homeschool Family European Tour  
   
 World as your classroom? We take  
 this literally, so planning our  
 homeschool family European tour
 
 <!--more-->  
-[![Homeschool Family European Tour - fun on the road for curious kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d8889fe970d.png "Homeschool Family European Tour - fun on the road for curious kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d8889fe970d.png)  
+![Homeschool Family European Tour - fun on the road for curious kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d8889fe970d.png)  
   
 [World as your classroom](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "World as your classroom -speech by trilingual travel kid")? We take this literally, so planning our [homeschool](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool family travel tips") family [European tour](http://soultravelers3new.local/2010/06/grand-tour-europe-iv-family-travel-extended-vacation-road-trip-summer-holiday-abroad.html "family European tour") to explore more of the richness of our favorite continent, next on our [unschool](http://soultravelers3new.local/2014/02/home-school-science-unschool-and-world-school-tips.html "unschool and science")/[worldschool](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school or unschool") agenda.  
   
@@ -36,33 +36,33 @@ Can a [homeschool](http://soultravelers3new.local/2013/07/homeschool-high-school
   
 **HOMESCHOOL FAMILY TRAVEL ON A BUDGET**  
   
-[![Homeschool Family European Tour - exploring Europe with kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccd6826970b.png "Homeschool Family European Tour - exploring Europe with kids")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccd6826970b.png)  
+![Homeschool Family European Tour - exploring Europe with kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccd6826970b.png)  
   
   
 **SECRETS TO TRAVELING EUROPE WITH KIDS**  
   
 Having spent 5 years [traveling Europe](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "traveling Europe in a campervan, RV, motorhome"), on our [world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "amazing family world tour RTW"), we know it well, exploring more of Europe than most Europeans. [Visiting Paris](http://soultravelers3new.local/2011/08/paris-travel-with-kids.html "visiting Paris with kids") at 5 is very different than at 10 or 13, so always good reasons to return for a deeper experience on our [ultimate famly adventure](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "ultimate family adventure tips").  
   
-[![Homeschool Family European Tour - kid on ferry between Greece and Turkey doing math and Greek Myths!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccd68fa970b.png "Homeschool Family European Tour - kid on ferry between Greece and Turkey doing math and Greek Myths!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccd68fa970b.png)  
+![Homeschool Family European Tour - kid on ferry between Greece and Turkey doing math and Greek Myths!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fccd68fa970b.png)  
   
 **HOMESCHOOL AND TRAVEL**  
   
 [Homeschooling and travel](http://soultravelers3new.local/2012/03/home-school-kids-travel.html "homeschool and travel") are a perfect pair and going slow enriches families, is cheaper, more educational, better for [language learning](http://soultravelers3new.local/language-learning/ "language learning tips") and prevents [travel burnout](http://soultravelers3new.local/2011/08/how-to-prevent-travel-burnout.html "travel burn out prevention"). We learn more every time we go.  
   
-[![Homeschool Family European Tour - Mozart exploring Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d888b23970d.png "Homeschool Family European Tour - Mozart exploring Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d888b23970d.png)  
+![Homeschool Family European Tour - Mozart exploring Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d888b23970d.png)  
   
 **LIVING LIKE A LOCAL ON EUROPE VACATION**  
   
 [Visiting Barcelona](http://soultravelers3new.local/2011/07/costa-brava-and-barcelona.html "visiting Barcelona") 18 plus times in 8 years, (often for months at a time), with [dear friends](http://soultravelers3new.local/2011/06/delicious-dinner-in-barcelona.html "living like a local in Barcelona") who are locals, makes it one of "homes" and a very different experience than doing a holiday or vacation week or getaway weekend there.  
   
-[![Homeschool Family European Tour - making friends abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117d4c93970c.png "Homeschool Family European Tour - making friends abroad")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117d4c93970c.png)  
+![Homeschool Family European Tour - making friends abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117d4c93970c.png)  
   
 **ADDING LANGUAGES WITH TRAVEL**  
   
 Having spent several recent years [based in Asia](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "learning Mandarin in Asia") for [Mandarin fluency](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "Fluent Mandarin"), we are missing our [Spanish "homes"](http://soultravelers3new.local/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "Spanish home for winter rental") and friends in Europe. [Trilingual Mozart](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "growing up bilingual or trilingual") wants to add French to her languages and graduate to a fluent quadrilingual.  
   
-[![Camping Europe - perfect for homeschooling family in Eur
-ope](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d888bce970d-300x256-1.png "Camping Europe - perfect for homeschooling family in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d888bce970d.png)  
+![Camping Europe - perfect for homeschooling family in Eur
+ope](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d888bce970d.png)  
   
 **CAMPING IN EUROPE BEST FOR FAMILIES**  
   

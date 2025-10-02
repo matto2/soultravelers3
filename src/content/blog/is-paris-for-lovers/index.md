@@ -20,13 +20,13 @@ tags:
   - "romantic-paris"
 ---
 
-[![IMG_4167](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e8aa41970b.jpg "IMG_4167")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e8aa41970b.jpg)Is Paris for Lovers?
+![IMG_4167](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e8aa41970b.jpg)Is Paris for Lovers?
 
 The City of Light is  
 one of the most romantic  
 cities in the world, but
 
-<!--more--> [![Paris for lovers - romantic - The Kiss by Rodin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e8aabd970b.jpg "Paris for lovers - romantic - The Kiss by Rodin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e8aabd970b.jpg)  
+<!--more--> ![Paris for lovers - romantic - The Kiss by Rodin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016768e8aabd970b.jpg)  
   
 The City of Light is one of the most romantic cities in the world, but can't you find romance in Paris, even as a family? I think  so! I loved it as a single traveler, a couple and now as a family. Romance is really a state of mind, isn't it? Last night we watched a movie set in Paris and it made us all smile to see so many locations there that we love, like this statue by Rodin.  
   

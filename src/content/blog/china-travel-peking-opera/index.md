@@ -19,13 +19,13 @@ tags:
   - "travel-to-china"
 ---
 
-[![IMG_1350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3490c846970b.jpg "IMG_1350")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3490c846970b.jpg)China Travel - Peking Opera  
+![IMG_1350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3490c846970b.jpg)China Travel - Peking Opera  
   
 When you take your trip  
 to China, don't miss the  
 Peking Opera (京剧) while
 
-<!--more--> [![Beijing Opera or Peking Opera](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3490c8c2970b.jpg "Beijing Opera or Peking Opera")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3490c8c2970b.jpg)  
+<!--more--> ![Beijing Opera or Peking Opera](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3490c8c2970b.jpg)  
   
 When you take your [trip to China](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "trip to China"), don't miss the  [Peking Opera](http://en.wikipedia.org/wiki/Peking_opera "Peking Opera") (京剧) while in [Beijing](http://soultravelers3new.local/2012/11/real-beijing-hutong-nights.html "Travel to Beijing"), for it is one of the top  "must-see" things if you are interested in [Chinese culture](http://soultravelers3new.local/2012/04/the-beauty-of-traditional-chinese-culture.html "Chinese culture") or [learning Mandarin](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html "learning Mandarin"). Also known as Beijing Opera, it is over 200 years old and worth it for the stunning costumes alone, which fascinated me.  
   

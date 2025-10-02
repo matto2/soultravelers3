@@ -19,7 +19,7 @@ tags:
   - "vote-for-mozart-earth-day-rising-star-singing-contest"
 ---
 
-[![6a00e5502a9507883301a73d9db6ce970d-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dac6c61970d.png "6a00e5502a9507883301a73d9db6ce970d-800wi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dac6c61970d.png)Vote for Mozart! - Earth Day  
+![6a00e5502a9507883301a73d9db6ce970d-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dac6c61970d.png)Vote for Mozart! - Earth Day  
 Rising Star Singing Contest  
   
 We need your help! Please take  
@@ -27,7 +27,7 @@ a few seconds to vote for Mozart
 to sing at an Earth Day Rising Star
 
 <!--more-->  
-[![Trilingual travel teen Mozart singing contest and songwriting contest for Earth Day](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a18a18970c.png "Trilingual travel teen Mozart singing contest and songwriting contest for Earth Day")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a18a18970c.png)  
+![Trilingual travel teen Mozart singing contest and songwriting contest for Earth Day](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a18a18970c.png)  
   
 We need your help! Please take a few seconds to vote for Mozart to sing at an [Earth Day](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "Earth Day kids winning speech and song") Rising Star [Performance contest](https://www.facebook.com/TexasMusicProject "Texas Music Project") in front of 60,000 people. A big dream she wants badly.  
   
@@ -40,7 +40,7 @@ You can VOTE once a day. The voting closes this coming Monday, April 21st at 5pm
 We came late to this so VOTE often if you can for the next few days. This is open to kids between 13 and 19 and the five with the most votes get to sing on stage and then judges pick the winner.  
   
   
-[![ Travel Teen Mozart Rising Star Singing Contest and songwriting contest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a18a69970c.png " Travel Teen Mozart Rising Star Singing Contest and songwriting contest")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a18a69970c.png)  
+![ Travel Teen Mozart Rising Star Singing Contest and songwriting contest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511a18a69970c.png)  
   
 **TALENTED SONGWRITER**  
   

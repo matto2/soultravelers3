@@ -16,14 +16,14 @@ tags:
   - "secrets-to-reading-with-young-kids"
 ---
 
-[![IMG_1531_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9b91f33970d.jpg "IMG_1531_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9b91f33970d.jpg)3 Top Tips to Raise  
+![IMG_1531_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9b91f33970d.jpg)3 Top Tips to Raise  
 a Reader / Book Lover  
   
 Are you raising a reader and book  
 lover? "Wow, I wish my kid loved  
 to read like yours does". As a
 
-<!--more--> [![Tips on raising a reader and book lover like our young girl in London bookstore](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3815ed97970b.jpg "Tips on raising a reader and book lover like our young girl in London bookstore")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3815ed97970b.jpg)  
+<!--more--> ![Tips on raising a reader and book lover like our young girl in London bookstore](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3815ed97970b.jpg)  
   
   
 Are you raising a reader and [book lover](http://soultravelers3new.local/2007/02/book-bonanza.html#more "raising a book lover")? "Wow, I wish my kid loved to read like yours does". As a  [world schooling](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world schooling"), [travel family](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel family") , we hear this CONSTANTLY from parents, as our 12 year old daughter,  Mozart, loves to read and always has a [book](http://soultravelers3new.local/books_family_travel/ "family travel books") in her hands to devour ( often in [3 different languages](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html "multilingual reading")).  
@@ -32,7 +32,7 @@ This is not an accident. Readers are not born, they are raised. Literacy is one 
   
 “Learning is not to be found on a printout, it’s not on call at the touch of the finger. Learning is acquired mainly from books, and most readily from great books.” -  David McCullough  ( Pulitzer Prize winner)  
   
-[![Our little bookworm reading Harry Potter in England at Cambridge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9b9f41e970d.jpg "Our little bookworm reading Harry Potter in England at Cambridge")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9b9f41e970d.jpg)  
+![Our little bookworm reading Harry Potter in England at Cambridge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9b9f41e970d.jpg)  
   
   
 "Two thirds of eighth graders do not read at grade level" - NAEP Reading\_2009  
@@ -48,14 +48,14 @@ rarely and narrowly." - Scholastic
   
 "Children with low-education families can do as well as children with high-education families if they have access to books at home." Scholastic  
   
-[![Fun with books around the world - we bought ton of Lindgreen in Sweden - Mozart's clay creation of admiration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4245f897970c.jpg "Fun with books around the world - we bought ton of Lindgreen in Sweden - Mozart's clay creation of admiration")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4245f897970c.jpg)  
+![Fun with books around the world - we bought ton of Lindgreen in Sweden - Mozart's clay creation of admiration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4245f897970c.jpg)  
   
   
 That great discussion got me to finally start this series on raising a reader that I have been planning to do for a while. [Books](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "books and travel for kids") are the key to our [homeschooling](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel") or [roadschool](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "roadschool on the road of life long term travel") [travel education](http://soultravelers3new.local/2012/03/home-school-kids-travel.html "homeschool travel education tips") methods of being a [RTW digital nomad family](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "RTW digital nomad family tips") on the move.  
   
 Mozart taught herself to read at two, was tested at a third grade level at barely three and was reading Harry Potter at 4, but you don't have to be a [gifted learner](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "gifted learner and travel") to be a book lover and MUCH of it has to do with how the parents support reading and learning.  
   
-[![Baby reading books in English, Spanish and Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9bac01b970d.jpg "Baby reading books in English, Spanish and Mandarin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9bac01b970d.jpg)  
+![Baby reading books in English, Spanish and Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9bac01b970d.jpg)  
   
   
 **3 BEST TIPS ON RAISING A READER AND BOOKWORM**  
@@ -97,7 +97,7 @@ consequences." -  Dr. Aric Sigman
   
 "He is part of a generation which, more and more, is reading less and less. This is having a negative impact on writing skills, depth of expression and, in this case, employment prospects, at least while her employers belong to Generation X."- Chris Harrison  
   
-[![Our girl reading in our campervan as we travel around Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9bc2da8970d.jpg "Our girl reading in our campervan as we travel around Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9bc2da8970d.jpg)  
+![Our girl reading in our campervan as we travel around Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9bc2da8970d.jpg)  
   
   
 We almost never watch TV, never bought cable, purposely do not have an iphone, (rarely even use our old cheap cell phone), bought a Kindle very late and use only as necessary and prefer to read real books as much as possible. I did let her play on [StarFall](http://www.starfall.com/ "starfall ") for ten minutes, when she was learning to read at two, and a little Spanish Sesame Street videos, but we read real books for hours every day and spent time outside in nature exploring the real world when not reading. Even today, we do the same, making sure that we only use tech for limited time and educational purposes and educate her about it's addictive problems. We make sure she learns to use the tool, instead of the tools ( and endless marketing and consumerism) using her.  
@@ -107,7 +107,7 @@ A  [Pew Research Center](http://pewinternet.org/Reports/2012/Student-Research) 
 Mozart is an extremely capable digital native at 12, but thanks to lifelong severe limits that prevent time-wasting and brain-draining, mindless screen time, she has the luxury of time to read a ton of classic, great  books which she thoroughly enjoys ( and studies show will give her sky-high SAT scores too ....effortlessly.) She also avoids some [EMF dangers](http://www.chargehealthproducts.com/page/326150203 "EMF dangers").  
   
 
-  [![3 month old baby reading - little bookworm - even an extremely active child who crawled at 4 months and walked at 6 months can love books](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38181e8e970b.jpg "3 month old baby reading - little bookworm - even an extremely active child who crawled at 4 months and walked at 6 months can love books")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38181e8e970b.jpg)
+  ![3 month old baby reading - little bookworm - even an extremely active child who crawled at 4 months and walked at 6 months can love books](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c38181e8e970b.jpg)
 
 Oh, sooo much more to write on this topic, but I see I am running out of time and space, so will have to continue in other posts. What information and tips do you want to know about raising a reader and passionate bookworm?  
 

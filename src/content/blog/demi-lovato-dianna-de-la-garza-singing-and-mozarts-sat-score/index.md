@@ -25,7 +25,7 @@ tags:
   - "training-for-singers"
 ---
 
-[![IMG_6780_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de2a8ff970d.jpg "IMG_6780_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de2a8ff970d.jpg)Demi Lovato, Dianna De La Garza,  
+![IMG_6780_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de2a8ff970d.jpg)Demi Lovato, Dianna De La Garza,  
 Singing and Mozart's SAT Score!  
   
 What an exciting weekend  
@@ -33,7 +33,7 @@ for Soultravelers3! Mozart met
 Demi Lovato's mom Dianna De La Garza
 
 <!--more-->  
-[![Demi Lovato's mom Dianna De La Garza and singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd282512970b.png "Demi Lovato's mom Dianna De La Garza and singer Mozart")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd282512970b.png)  
+![Demi Lovato's mom Dianna De La Garza and singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd282512970b.png)  
   
 What an exciting weekend for [Soultravelers3](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html "soultravelers3 ")! Mozart met [Demi Lovato](http://demilovato.com/ "demi lovato")'s mom [Dianna De La Garza](https://twitter.com/DiannaDeLaGarza "dianna dellagarza") who is writing a book about guiding [talented children in singing](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html "mozart talented tween singer") and acting. Mozart is studying with the same great voice coach that taught Demi Lovato from childhood ( and she still works with her some).  
   

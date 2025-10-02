@@ -9,13 +9,13 @@ tags:
   - "wine-vacations-with-kids"
 ---
 
-[![Kids love vineyards and wine tasting!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e55b9351970c.jpg "Kids love vineyards and wine tasting!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e55b9351970c.jpg)Kids Love Vineyards and Wine Tasting!
+![Kids love vineyards and wine tasting!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e55b9351970c.jpg)Kids Love Vineyards and Wine Tasting!
 
 Do you love vineyards  
 and wine tasting? You  
 might be surprised about
 
-<!--more--> [![Kids love vineyards and wine tasting!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ff660279970d.jpg "Kids love vineyards and wine tasting!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ff660279970d.jpg)  
+<!--more--> ![Kids love vineyards and wine tasting!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162ff660279970d.jpg)  
   
 Do you love wine and wine tasting? You might be surprised about how much your kids will love a wine vacation!  
   

@@ -7,7 +7,7 @@ categories:
   - "germany"
 ---
 
- [![IMG_2328](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f9f7daa970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f9f7daa970c.jpg) Family Travel Photo- Germany  
+ ![IMG_2328](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f9f7daa970c.jpg) Family Travel Photo- Germany  
 May 19, 2009
 
 Have you traveled the Romantic Road  
@@ -16,7 +16,7 @@ castles, vineyards and multi-colored autumn
 
 <!--more-->
 
-[![Sunflowers, Romantic Road, Germany, Autumn trees, Romantische Strasse](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157095bc0c970b.jpg "Sunflowers, Romantic Road, Germany, Autumn trees, Romantische Strasse")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157095bc0c970b.jpg)
+![Sunflowers, Romantic Road, Germany, Autumn trees, Romantische Strasse](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157095bc0c970b.jpg)
 
 Have you traveled the Romantic Road in Germany? Checkered with sunflowers, castles, vineyards and multi-colored autumn trees, the ["Romantische Strasse"](http://en.wikipedia.org/wiki/Romantic_Road)  is "one of the most scenically beautiful" according to [Frommers.](http://www.frommers.com/destinations/theromanticroad/0826010001.html)
 

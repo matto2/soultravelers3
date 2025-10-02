@@ -16,14 +16,14 @@ tags:
   - "tips-for-low-budget-luxury"
 ---
 
-[![IMG_2563](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e31cd4970d.jpg "IMG_2563")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e31cd4970d.jpg)Paris - Sunset Picnic at  
+![IMG_2563](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e31cd4970d.jpg)Paris - Sunset Picnic at  
 the Louvre: Budget luxury
 
 Who says you can't have  
 luxury on a low budget? It's  
 truly a total myth that travel
 
-<!--more--> [![beautiful sunset picnic in Paris at the Louvre- or cheap luxury travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e31d20970d.jpg "beautiful sunset picnic in Paris at the Louvre- or cheap luxury travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e31d20970d.jpg)
+<!--more--> ![beautiful sunset picnic in Paris at the Louvre- or cheap luxury travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e31d20970d.jpg)
 
   
   

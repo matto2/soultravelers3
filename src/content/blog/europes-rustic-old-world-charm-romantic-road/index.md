@@ -16,14 +16,14 @@ tags:
   - "travel-to-germany"
 ---
 
-[![IMG_3257](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e0f01b970d.jpg "IMG_3257")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e0f01b970d.jpg)Europe's Rustic old world charm - 
+![IMG_3257](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e0f01b970d.jpg)Europe's Rustic old world charm - 
 Romantic Road  
   
 Do you love the rustic old world  
 charm of Europe? As we traveled  
 the Romantic Road in Germany
 
-<!--more--> [![Europe's rustic old world charm](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d418ec970b.jpg "Europe's rustic old world charm")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d418ec970b.jpg)  
+<!--more--> ![Europe's rustic old world charm](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d418ec970b.jpg)  
   
 Do you love the rustic old world charm of [Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "europe vacation")? As we traveled the [Romantic Road](http://soultravelers3new.local/2009/05/family-travel-photo-germany-romantic-road.html "romantic road") in [Germany](http://soultravelers3new.local/2010/07/family-travel-germany-rothenberg-beautiful-architectural-details-romantic-road.html "germany"), we discovered [castles](http://soultravelers3new.local/2011/11/family-travel-heidelberg-germany-.html "castle germany") and [festivals](http://soultravelers3new.local/2009/01/family-travel-photorothenberg-germany.html "germany romantic road festival") and [half-timbered buildings](http://soultravelers3new.local/2012/08/travel-with-kids-germany.html "half timbered building Germany travel") plus much more, but some how this old building caught our eye.  
   

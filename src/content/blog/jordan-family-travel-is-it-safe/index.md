@@ -15,13 +15,13 @@ tags:
   - "vacation-in-jordan"
 ---
 
- [![IMG_1690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543266cdc5970c.jpg "IMG_1690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543266cdc5970c.jpg) Jordan Family Travel: Is It Safe?
+ ![IMG_1690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543266cdc5970c.jpg) Jordan Family Travel: Is It Safe?
 
 As you can tell by this photo  
 at Petra, our child had a blast  
 in Jordan as did our whole family.
 
-<!--more--> [![beautiful petra jordan photo/ family vacation jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543266cdfa970c.jpg "beautiful petra jordan photo/ family vacation jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543266cdfa970c.jpg)
+<!--more--> ![beautiful petra jordan photo/ family vacation jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543266cdfa970c.jpg)
 
 As you can tell by this [photo at Petra](http://en.wikipedia.org/wiki/Petra "photo at petra"), our child had a blast in Jordan as did our whole family. Is [Jordan](http://en.wikipedia.org/wiki/Jordan "Jordan") a fun, educational and safe place for a family holiday or family vacation in the Middle East? Absolutely!  
   

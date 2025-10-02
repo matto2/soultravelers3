@@ -14,13 +14,13 @@ tags:
   - "visiting-ireland-with-kids"
 ---
 
-[![IMG_8223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d5470970b-scaled-1.jpg "IMG_8223")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d5470970b-scaled-1.jpg) Family Travel Ireland: Photo Ring of Kerry
+![IMG_8223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d5470970b-scaled-1.jpg) Family Travel Ireland: Photo Ring of Kerry
 
 Sometimes family travel  
 and a family friendly  
 vacation with young kids
 
-<!--more--> [![family travel ireland, green farm, nursing animals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d552c970b-scaled-1.jpg "family travel ireland, green farm, nursing animals")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d552c970b-scaled-1.jpg)  
+<!--more--> ![family travel ireland, green farm, nursing animals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f2d552c970b-scaled-1.jpg)  
   
 Sometimes [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel") and a [family friendly vacation](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "family friendly vacation international") with young kids is all  about the animals that you see along the way. As we walked  by this lush green farmland not far from [Killarney](http://en.wikipedia.org/wiki/Killarney) on the [Ring of Kerry](http://en.wikipedia.org/wiki/Ring_of_Kerry), we spotted this sweet scene of a mama donkey feeding her baby.  
   

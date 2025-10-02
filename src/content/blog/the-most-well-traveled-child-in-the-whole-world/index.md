@@ -28,18 +28,18 @@ tags:
   - "worlds-most-traveled-kid"
 ---
 
-[![IMG_2619](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa2c2a970b.jpg "IMG_2619")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa2c2a970b.jpg)The Most Well-Traveled Child  
+![IMG_2619](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa2c2a970b.jpg)The Most Well-Traveled Child  
 in the Whole World  
   
 Who is the most well-traveled child  
 in the whole world? Our trilingual 12  
 year old has explored Bhutan, Montenegro
 
-<!--more--> [![world's Most Well-Traveled Child - sipping tropical drink in Bora Bora sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa0867970c.jpg "world's Most Well-Traveled Child - sipping tropical drink in Bora Bora sunset")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa0867970c.jpg)  
+<!--more--> ![world's Most Well-Traveled Child - sipping tropical drink in Bora Bora sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa0867970c.jpg)  
   
 Who is the most well-traveled child in the whole world?  Our trilingual 12 year old has [explored Bhutan](http://soultravelers3new.local/2013/05/bhutan-travel.html "Bhutan Travel"), [Montenegro](http://soultravelers3new.local/2007/09/montenegrowho-k.html#more "Montenegro Travel"), [Australia](http://soultravelers3new.local/2012/09/visiting-the-sydney-opera-house-must-see-australia-travel.html "Australia Travel"), [Jordan](http://soultravelers3new.local/2013/06/is-petra-jordan-on-your-bucket-list.html "Jordan Travel"), [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China Travel"), [Tahiti](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html "Tahiti Travel"), [Africa](http://soultravelers3new.local/2008/12/sahara-dream.html#more "Africa Travel"), [USA](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "USA Travel"), [Spain](http://soultravelers3new.local/2010/06/family-travel-tips-in-spains-costa-del-sol-countryside-adventures-mediterranean-beaches-photography-.html "Spain Travel"), [Thailand](http://soultravelers3new.local/2012/06/serene-azure-andaman-sea-1.html "Thailand Travel"), [Norway](http://soultravelers3new.local/2011/09/norway-budget-travel.html "Norway Travel"), [Morocco](http://soultravelers3new.local/2007/04/sahara-violin-c.html "Morocco Travel"), [New Zealand](http://soultravelers3new.local/2011/03/beautiful-new-zealand-kia-kaha.html#more "New Zealand Travel"), [UK](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "UK Travel"), [Malaysia](http://soultravelers3new.local/2011/01/family-travel-asia-photo-georgetown-malaysia.html "Malaysia Travel"), [Germany](http://soultravelers3new.local/2011/11/family-travel-heidelberg-germany-.html "Germany Travel"), [Singapore](http://soultravelers3new.local/2011/03/top-hotel-for-luxury-fairmont-singapore.html "Singapore Travel"), [Greek Islands](http://soultravelers3new.local/2012/04/greek-islands-with-kids-santorini-first.html#more "Greek Islands Travel"), [France](http://soultravelers3new.local/2010/08/stunning-horses-in-the-camargue-france-family-travel-ideal-vacation-holiday-saintes-maries-de-la-mer.html "France Travel"), [Turkey](http://soultravelers3new.local/2007/07/turkeys-turquoi.html "Turkey Travel") etc etc....including 45 countries on 5 continents on just $23/day.  
   
-[![World's Most Well-Traveled Child with costumed friends from many nations in SE Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa2a65970b.jpg "World's Most Well-Traveled Child with costumed friends from many nations in SE Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa2a65970b.jpg)  
+![World's Most Well-Traveled Child with costumed friends from many nations in SE Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa2a65970b.jpg)  
   
 **MOST TRAVELED CHILD IN THE WORLD**  
   
@@ -50,7 +50,7 @@ Just her experience of knowing her way around subways/mass transit in [NYC](http
 Everything is impossible until someone does it! - Bruce Wayne  
   
   
-[![Cute young girl who is world's most traveled kid with the world in her hands](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaae4b3970d.jpg "Cute young girl who is world's most traveled kid with the world in her hands")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaae4b3970d.jpg)  
+![Cute young girl who is world's most traveled kid with the world in her hands](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaae4b3970d.jpg)  
   
 As [Tim Ferriss](http://soultravelers3new.local/2010/03/the-4hour-workweek-review-by-world-traveling-family-rich-global-digital-lifestyle-design.html "Tim Ferriss") said long ago about us, "You don't have to be rich to live a rich life".  
   
@@ -63,7 +63,7 @@ As [Tim Ferriss](http://soultravelers3new.local/2010/03/the-4hour-workweek-revie
   
 Mozart probably has the record for the most UNESCO World Heritage sites on 5 continents, world-class museums or ancient ruins seen by a kid. She's gone completely around the world more than once, visited many national parks across the USA to earn Junior Ranger Badges, worked with archeologists and marine biologists on several continents and I gave up adding up our travel miles once it passed 200,000 many, many years ago.  
   
-[![World's Most Well-Traveled Child exploring Wadi Rum on foot with Bedouin friend and guide](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa4d82970c.jpg "World's Most Well-Traveled Child exploring Wadi Rum on foot with Bedouin friend and guide")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa4d82970c.jpg)  
+![World's Most Well-Traveled Child exploring Wadi Rum on foot with Bedouin friend and guide](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaa4d82970c.jpg)  
   
 **HEARTFELT CONFESSION VIDEO BY MOZART ABOUT HER BELOVED FRIENDS AROUND THE WORLD**:  
   
@@ -78,7 +78,7 @@ In our discussions about her travel show (producers, directors, entertainment la
   
 Since we [retired early to travel the world](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "retire and travel the world") and educate her (via [homeschool](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html "homeschool high school and travel") or [worldschool](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school best education")) she has had more time and freedom to become a global citizen than anyone I have ever met or read about.  
   
-[![World's most traveled child helping other children explore the world with baby in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affab10bc970b.jpg "World's most traveled child helping other children explore the world with baby in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affab10bc970b.jpg)  
+![World's most traveled child helping other children explore the world with baby in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affab10bc970b.jpg)  
   
 **DAY -IN-THE LIFE VIDEO OF MOST WELL-TRAVELED KID - LIFE AS A GLOBAL FIELD TRIP**  
   
@@ -94,13 +94,13 @@ Mozart made this video a month after she turned 10 when we were couchsurfing in 
   
 We are pioneers in the around-the-world digital nomad, permanent-vacation blogging realm...started that trend before most single and couple travelers, let alone families (when we sold our home and all belongings in 2005, plus were asked to be case studies in Mega hit books [4Hour Workweek](http://www.timferriss.com/index.html "time ferriss") and [Art of Noncomformity](http://chrisguillebeau.com/the-book/ "art of nonconformity")). Most families that travel around the world, do it for a year on a huge budget, but the world is big and a year can only take you so far (and why we [advise longer and cheaper RTW](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html "around the world travel best advice")).  
   
-[![World's most traveled child in traditional dress at Tigers Nest in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaecbc1970c.jpg "World's most traveled child in traditional dress at Tigers Nest in Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaecbc1970c.jpg)  
+![World's most traveled child in traditional dress at Tigers Nest in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaecbc1970c.jpg)  
   
 **WHO HAS WELL-TRAVELED KIDS?**  
   
 Yes, diplomat kids, army brats, travel writers, missionaries, expats, a handful of sailors etc. all travel a lot with kids, but most work (so travel is limited to vacation time) and they don't make their primary goal educating their child via travel, nor have they traveled non-stop for 8 years. We didn't set out to make her the world's most traveled child...it is just something that happened along the way and continues because we love it.  
   
-[![Around the world travel kid on her second passport](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaedf81970c.jpg "Around the world travel kid on her second passport")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaedf81970c.jpg)  
+![Around the world travel kid on her second passport](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaedf81970c.jpg)  
   
   
 **NYC PUBLICISTS VIEW OF SOULTRAVELERS3, 12 YEAR OLD MOZART AND TRAVEL TV SHOW**  
@@ -118,7 +118,7 @@ help change the game for kids TV."
   
 This is the kind of reaction we have been getting lately, which has been deeply touching and is affecting our perspective, opening our eyes to greater possibilities, as we are just an ordinary family following our hearts and doing what we can to support our child. It reminds us of when the [New York Times featured](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html "new york times soultravelers3") us ( when I had my [paralyzed arm](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html "travel disaster")) or [BBC TV](http://soultravelers3new.local/2010/12/bbc-interviews-soultravelers3-on-social-media-and-travel.html "soultravelers3 bbc tv"). We always pray and meditate daily and try to discern where our Inner Guidance is leading us.  
   
-[![The world's most traveled child knows the journey always begins within](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb02c73970b.jpg "The world's most traveled child knows the journey always begins within")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb02c73970b.jpg)  
+![The world's most traveled child knows the journey always begins within](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb02c73970b.jpg)  
   
 **INSPIRING KIDS - THE NEXT GENERATION**  
   
@@ -137,7 +137,7 @@ Carry a vision of heaven in your hearts, and you shall make your home, your scho
   
 Mozart's passions are the environment, world peace, music, art, math, science and travel, so it will be rewarding to share that more with the world. She is excited to be  scheduled to be a speaker/presenter in November at the world-wide Global Education Conference and plans to do more public speaking sharing her views and experiences to help and inspire others.  
   
-[![World's most traveled child watching a sunset from her plane window after leaving Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaee8fa970c.jpg "World's most traveled child watching a sunset from her plane window after leaving Beijing")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaee8fa970c.jpg)  
+![World's most traveled child watching a sunset from her plane window after leaving Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affaee8fa970c.jpg)  
   
 **WELL-TRAVELED DOESN'T ONLY MEAN HOW MANY COUNTRIES TO US**  
   
@@ -150,7 +150,7 @@ Mozart has been traveling since she was two weeks old and stayed in her first ho
   
 I know a well known travel blogger who spent a week in Italy to add 3 countries to his "country list" by quick stops in San Marino and Vatican City. Which is great, but just not our purpose. Because we traveled Europe 7 months out of the year for many years while on the continent, we've been to Italy many times over the years, often months at a time, but still haven't added those extra "countries" there because spending time in Verona, Cinque Terra, Pompeii, Tuscany, seeing Pinocchio,  Stradavarius, Uffizi or DaVinci museums etc., were just more important than adding countries for us.  
   
-[![worlds most traveled kid in Verona for the Opera at the Arena with Placido Domingo and Franco Zeffirelli](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb131d5970d.jpg "worlds most traveled kid in Verona for the Opera at the Arena with Placido Domingo and Franco Zeffirelli")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb131d5970d.jpg)  
+![worlds most traveled kid in Verona for the Opera at the Arena with Placido Domingo and Franco Zeffirelli](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb131d5970d.jpg)  
   
 **REAL WORLD, REAL TRAVEL, REAL FRIENDS, REAL EDUCATION, REAL FAMILY TIME**  
   
@@ -158,13 +158,13 @@ With a child, we are most interested in depth and breath for education and time 
   
 "Traveling in the company of those we love is home in motion" - Hunt  
   
-[![World's mpst traveled kid in our ancient village in Andalusia Spain where she went to school for 5 months for 4 winters](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb11ef0970c.jpg "World's mpst traveled kid in our ancient village in Andalusia Spain where she went to school for 5 months for 4 winters")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb11ef0970c.jpg)  
+![World's mpst traveled kid in our ancient village in Andalusia Spain where she went to school for 5 months for 4 winters](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb11ef0970c.jpg)  
   
 **PROFOUNDLY BLESSED AND ENRICHED BY TRAVELING OUR BEAUTIFUL PLANET**  
   
 Many of these countries have been deeply and thoroughly explored repeatedly over many years because seeing Paris at 5 is a very different experience than also seeing it at 10 and 13. We've not only traveled more than most Americans, but also have seen more of Europe than most Europeans and more of Asia than most Asians. There is hardly a book Mozart reads or film she sees that she doesn't have first hand experience with the places mentioned.  
   
-[![World's most traveled kid is a trilingual book worm](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb12ebc970b.jpg "World's most traveled kid is a trilingual book worm")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb12ebc970b.jpg)  
+![World's most traveled kid is a trilingual book worm](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb12ebc970b.jpg)  
   
 I was amazed that even in Mozart's 4th grade class in Spain (which is an easy trip to Venice), she was the only one who knew what a gondola was, had been on one and been to Venice. We realize how very blessed we are to have seen so much of the world together and truly wish every family and child could too. As much as we've seen, there is always more to explore.  
   
@@ -172,14 +172,14 @@ I was amazed that even in Mozart's 4th grade class in Spain (which is an easy tr
   
 Her 3 languages have also helped her become an entrepreneur at 12, [teaching people languages](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "teaching people languages") ( from 4 to 30 years old, including a geophysicist) in person and on Sype over 3 continents with rave reviews due to her enthusiasm and experience.  
   
-[![World's most traveled kid packs light RTW](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb14f7b970c.jpg "World's most traveled kid packs light RTW")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb14f7b970c.jpg)  
+![World's most traveled kid packs light RTW](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb14f7b970c.jpg)  
   
   
 **OUR CURRENT WORLD TRAVEL PLANS**  
   
 Our ultra mobile, flexible and minimalist lifestyle means we can change almost instantly to what ever works, as the world is our home and we can liv e any where. Mozart is now at a 5th grade level of reading and writing Mandarin, so has almost completed her goal of Mandarin fluency and finishing the entire Primary school curriculum, so that means we will be more on the move soon.  
   
-[![World's most traveled kid was youngest, littlest, only Caucasion at a 1000-kid Chinese High School in Asia ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb1dafe970d.jpg "World's most traveled kid was youngest, littlest, only Caucasion at a 1000-kid Chinese High School in Asia ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb1dafe970d.jpg)  
+![World's most traveled kid was youngest, littlest, only Caucasion at a 1000-kid Chinese High School in Asia ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb1dafe970d.jpg)  
   
 **DIVING, ELEPHANTS, TRANS-SIBERIAN RAILWAY ADVENTURES**  
   
@@ -187,7 +187,7 @@ At the moment, we have tentative short trips planned to Oz, Bali. Maldives divin
   
 BUT  these  are all just ideas at this point and easily changeable. Our dreams and possibilities never end, but we stay open and flexible, listening to the inner call and direction. This week we book our flights to Oz, so stay tuned!  
   
-[![world's most traveled child is ready for more travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb1e725970c.jpg "world's most traveled child is ready for more travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb1e725970c.jpg)  
+![world's most traveled child is ready for more travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affb1e725970c.jpg)  
   
   
 **YOUNGEST AMERICAN TO VISIT EVERY COUNTRY  IS 34 YEARS OLD!**  

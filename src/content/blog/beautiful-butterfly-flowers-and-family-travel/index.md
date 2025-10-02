@@ -16,13 +16,13 @@ tags:
   - "travel-in-nature"
 ---
 
-[![IMG_9510](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89602989970d.jpg "IMG_9510")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89602989970d.jpg)Beautiful Butterfly, Flowers and Family Travel  
+![IMG_9510](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89602989970d.jpg)Beautiful Butterfly, Flowers and Family Travel  
   
 Warm sunshine, colorful  
 butterflies, beautiful flowers,  
 buzzing bees, chirping birds
 
-<!--more--> [![beautiful photo of a butterfly ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89ee2697970d.jpg "beautiful photo of a butterfly ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89ee2697970d.jpg)
+<!--more--> ![beautiful photo of a butterfly ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89ee2697970d.jpg)
 
 Warm sunshine, colorful butterflies, beautiful flowers, buzzing bees, chirping birds, green all around.
 

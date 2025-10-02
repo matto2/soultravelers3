@@ -18,13 +18,13 @@ tags:
   - "worlds-best-beaches"
 ---
 
-[![IMG_9170](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c354b1f2c970b.jpg "IMG_9170")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c354b1f2c970b.jpg)Best White Sand Beach  
+![IMG_9170](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c354b1f2c970b.jpg)Best White Sand Beach  
   
 Dreaming about a perfect  
 deserted white sand beach  
 lapped by turqoise water
 
-<!--more--> [![most beautiful white sand beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f7a121d970c.jpg "most beautiful white sand beach")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f7a121d970c.jpg)  
+<!--more--> ![most beautiful white sand beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3f7a121d970c.jpg)  
   
 Dreaming about a perfect deserted white sand beach lapped by turqoise water crashing over your toes with endless blue skies dotted with wisps of Cumulus clouds dancing with the shining sun? [Tropical winters](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical winter vacation") can't be beat and budget  [vacations in paradise](http://soultravelers3new.local/2012/02/tropical-paradise-at-budget-prices.html "vacations in paradise") are particularly rewarding to those battling the winter blues in cold climates.  
   

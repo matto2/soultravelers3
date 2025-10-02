@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
- [![IMG_7437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571134745970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571134745970c.jpg)Questions & Answers About Soultravelers3 Family Travel  
+ ![IMG_7437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571134745970c.jpg)Questions & Answers About Soultravelers3 Family Travel  
 June 9, 2009
 
 "How do you travel the world and  
@@ -22,7 +22,7 @@ We get so many questions via our [blog,](http://soultravelers3new.local/contact-
 
 Here are some recent questions (in bold)   from a single mom with a 5 and 7 year old that discovered our website though Twitter (and our answers):
 
-[![3635597](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157125e059970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157125e059970b.jpg)
+![3635597](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157125e059970b.jpg)
 
  
 
@@ -40,7 +40,7 @@ We find that having a good reader helps a lot on our travels because Mozart can 
 
  
 
-[![IMG_5958](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157125e378970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157125e378970b.jpg)
+![IMG_5958](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157125e378970b.jpg)
 
 **2\. My children are immersed in the American culture, even though I homeschool them, and I’m concerned about culture shock – any thoughts?**
 
@@ -50,7 +50,7 @@ We did ( while preparing) and do take time to educate Mozart about the places sh
 
 Most of the mainstays of American culture can be found around the world and/or found online. Free webcam calls with family and friends also keeps one connected to the American culture while immersing in a new culture. Reading American books ( and websites) also keeps them connected.
 
-[![IMG_6000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030a739970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030a739970c.jpg)
+![IMG_6000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030a739970c.jpg)
 
 3\. **We only speak English and a tiny bit of Spanish and French – did you learn languages as you went or did you already know some?  I was thinking of picking up some Rosetta stone learning programs for Spanish, Italian, German and French – what do you think?  
   
@@ -75,7 +75,7 @@ We can really tell the difference when we are in France and when we are in Spain
 
 It is not just the speaking, it is also understanding the answers to simple questions. It is reading road signs or trying to buy things at the grocery store etc. When you do not speak the local language, it tends to be harder, but it is also part of the joy of travel and people tend to be kind to travelers.
 
-[![IMG_5984](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030c37a970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030c37a970c.jpg)
+![IMG_5984](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030c37a970c.jpg)
 
 **5\. I’m concerned about the children having opportunities to play and connect with other children – I didn’t see many photos of Ms Mozart with other children – was/is she ok with that?**
 
@@ -117,7 +117,7 @@ For lots of good information check out [Nunomads](http://bluesuitnomads.typepad.
 
 You will find a lot of them on the resources I mention above, but also check out and join the [Location Independent Ning](http://locationindependentclub.ning.com/main/authorization/signUp?) and the [Travel Bloggers exchange Ning](http://www.travelblogexchange.com/). There are too many to name in this post, but here are a list of a few sites of  "lifestyle design"  people that may be helpful to you: [Vagabonding](http://www.vagablogging.net/), [4Hour Work Week](http://www.fourhourworkweek.com/blog/)[,](http://www.technomadia.com/)  , [Art of Non-conformity,](http://chrisguillebeau.com/3x5/)  [Technomadia](http://www.technomadia.com/), and [Mixerolgy ( especially on digital nomads)](http://mixergy.com/)
 
-[![IMG_6036](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030e790970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030e790970c.jpg)
+![IMG_6036](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030e790970c.jpg)
 
   
  **7\. What size RV did/do you have?**
@@ -126,7 +126,7 @@ We have a 1998 Ford Rimor and it is an 18footer. It has a double bed over cab an
 
 Here are a few questions from pals on Twitter:
 
-[![IMG_6041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030e7c7970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030e7c7970c.jpg)
+![IMG_6041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030e7c7970c.jpg)
 
 [@mashley9](http://twitter.com/mashley9 "Mary Ashley Burton") **What is your RV like?**
 
@@ -136,7 +136,7 @@ This is a [picture of it](http://soultravelers3new.local/2006/08/our-new-camper.
 
 It is hard to get decent pics of the inside, but I have quite a few scattered throughout our blog. Sometimes we lust over large ones or brand new ones, but for the most part we are quite happy with this one and prefer to stay "low key" which I think helps with petty thieves. We have had no problems with that and it has run very well. We have a solar panel on top, so are self sufficient and don't really need to stay in campgrounds or pay for electricity when we do.
 
-[![IMG_5697](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571263017970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571263017970b.jpg)
+![IMG_5697](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571263017970b.jpg)
 
 **[@passion4skating](http://twitter.com/passion4skating "passion4skating")** **How do you twitter while travelling? Laptop? Cell? Free wifi? Any tips?**
 
@@ -158,7 +158,7 @@ The second time, we randomly asked a stranger to take our picture in the crowded
 
 We rarely run into American's at all, so it's always fascinating when we do.
 
-[![IMG_5794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571266e9d970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571266e9d970b.jpg)  
+![IMG_5794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571266e9d970b.jpg)  
 
 **[@marcusjroberts](http://twitter.com/marcusjroberts "Marc Roberts")** **I have a question! What was the hardest thing to let go of, when you started travelling?**
 
@@ -168,7 +168,7 @@ Also leaving family was very difficult. Our parents are older and our child was 
 
 We have not missed our house at all and that decision became easy once we committed. It has worked fairly well with family too thanks to frequent webcam calls and the internet. It many ways we actually stay in better touch now than when we lived close by.
 
-[![IMG_5802](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571267502970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571267502970b.jpg)
+![IMG_5802](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571267502970b.jpg)
 
 **[TMBMT](http://twitter.com/TMBMT "Tam")**@[soultravelers3](http://twitter.com/soultravelers3) **how long did you have to save up to be able to do this? or are you making a living somehow while you travel?**
 
@@ -176,13 +176,13 @@ We always lived a frugal life and well under our means. We had no debt except ou
 
 We earn a living primarily from passive income. Our goal, just as if we were home, is to continue to build our nest egg, while living large on little. 
 
-[![IMG_5977](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703143e4970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703143e4970c.jpg)  
+![IMG_5977](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115703143e4970c.jpg)  
 
 **[@Luciais](http://twitter.com/Luciais "Lucia Meyerson")** **ur ideas 4 travlng from SF 2 Seattle/Vancouver?**
 
 Sorry, but that is way out of my field! If it was me, I'd probably like to do a slow drive up that beautiful coast in the summer with lots of stops.
 
-[![IMG_5922](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157031448d970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157031448d970c.jpg)
+![IMG_5922](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157031448d970c.jpg)
 
 **[@oddwebthings](http://twitter.com/oddwebthing
 s "Piotr Godek")**  **where are you heading next? :)**
@@ -195,7 +195,7 @@ We were staying on track until we got to Barcelona. Now, due to the tourist time
 
 **And a couple from our facebook fan page:**
 
-**[![pool, Barcelona resort camping holiday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570314bc4970c.jpg "pool, Barcelona resort camping holiday")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570314bc4970c.jpg)  
+**![pool, Barcelona resort camping holiday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570314bc4970c.jpg)  
 **
 
 [Holly McCann Bretschneider](http://www.facebook.com/profile.php?id=1608465189&ref=mf)
@@ -206,7 +206,7 @@ We were staying on track until we got to Barcelona. Now, due to the tourist time
   
 Yes, there are a ton of campgrounds in Spain and all over Europe. It is one of the best ways to see the country and meet Europeans. There is not a city or a site in Europe that does not have camping and in some cities it is absolutely the best way to vist them (like Venice!). Most Europeans, Australians and Kiwi's know this, but some how most Americans do not. Almost all also have cabins or rentals, so no tent or RV is even needed. It is popular budget way to travel and many are quite luxurious. Many camp all winter  in southern Spain and Portugal to get away from the cold and rain of northern Europe. Some even spend the winter in Nice or Barcelona (a little colder).  
   
-[![IMG_6027](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157126890f970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157126890f970b.jpg)  
+![IMG_6027](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157126890f970b.jpg)  
 
 [Kelly StJohn](http://www.facebook.com/profile.php?id=1241043220&ref=mf)
 

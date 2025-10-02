@@ -18,13 +18,13 @@ tags:
   - "where-no-rainy-season-in-asia"
 ---
 
-[![IMG_5856](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c323f43b9970b.jpg "IMG_5856")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c323f43b9970b.jpg)Monsoon Rainy Season in Asia  
+![IMG_5856](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c323f43b9970b.jpg)Monsoon Rainy Season in Asia  
   
 Unlike much of Asia, like  
 neighboring Thailand or even  
 other parts of Malaysia that
 
-<!--more--> [![colorful umbrella on a rainy day in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c6d82d2970c.jpg "colorful umbrella on a rainy day in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c6d82d2970c.jpg)  
+<!--more--> ![colorful umbrella on a rainy day in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c6d82d2970c.jpg)  
   
 Unlike much of Asia, like neighboring Thailand or even other parts of Malaysia that have major monsoon seasons,  [Penan](http://soultravelers3new.local/2012/05/penang-at-night.html "Penang, Malaysia")g does not have a real rainy season. We were here last year from [November through May](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "Penang winter rental") and so far this year, we've been here from [February through September](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "renting an apartment in Penang") and find it mostly sunny, most of the time.  
   

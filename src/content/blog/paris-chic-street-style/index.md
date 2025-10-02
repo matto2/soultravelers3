@@ -16,13 +16,13 @@ tags:
   - "paris-walks"
 ---
 
-[![IMG_4277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e2c2f3970d.jpg "IMG_4277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e2c2f3970d.jpg)Paris Chic Street Style
+![IMG_4277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304e2c2f3970d.jpg)Paris Chic Street Style
 
 Fashion wise, you see a bit of  
 everything in Paris. I love just  
 wandering the streets
 
-<!--more--> [![Paris shopping chic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead8694b970c.jpg "Paris shopping chic")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead8694b970c.jpg)  
+<!--more--> ![Paris shopping chic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead8694b970c.jpg)  
   
 Fashion wise, you see a bit of everything in [Paris](http://soultravelers3new.local/2011/04/paris-france-travel-guide-by-mozart.html "Paris family guide"). I love just [wandering the streets](http://soultravelers3new.local/2012/05/paris-for-families-walking-the-left-bank.html "Paris for families, walking the streets with kids") and many different neighborhoods of Paris, people watching and [architechtual gazing](http://soultravelers3new.local/2011/03/-family-travel-paris-france-louvre-photo.html "Louvre at sunset architectural gazing").  
   

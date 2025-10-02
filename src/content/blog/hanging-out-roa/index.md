@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4495](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4495.png "Img_4495")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4495.png) Hanging Out & Road School  
+ ![Img_4495](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4495.png) Hanging Out & Road School  
 May 2, 2007
 
 It is wonderful to have the luxury of time  
@@ -15,7 +15,7 @@ lifestyle and so much is learned just in play
 
 <!--more-->
 
-[![Img_4495_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4495_2.png "Img_4495_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4495_2.png)
+![Img_4495_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4495_2.png)
 
 It is wonderful to have the luxury of time again as we have missed our leisurely lifestyle and so much is learned just in play and hanging out and reading. We did not have time to do home school while on the move in Morocco, but it was no concern because the experience was so rich with learning. I called it the ultimate unschool field trip,but it is also good to have the time to catch up with piano practice, Mozart’s new math book and such.
 
@@ -67,26 +67,26 @@ Morocco is such a rich opportunity for leaning with kids and these books will he
 
 The book about Barcelona that we added to our Dali book (seen nearby last fall) is “Tell me about Gaudi” by Benat Cormand.
 
-[![Img_4498](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4498.png "Img_4498")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4498.png)
+![Img_4498](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4498.png)
 
-[![Img_5129](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5129.png "Img_5129")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5129.png)
+![Img_5129](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5129.png)
 
-[![Img_4659](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4659.png "Img_4659")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4659.png)
+![Img_4659](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4659.png)
 
-[![Img_4489](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4489.png "Img_4489")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4489.png)
+![Img_4489](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4489.png)
 
-[![Img_4562](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4562.png "Img_4562")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4562.png)
+![Img_4562](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4562.png)
 
-[![Img_4536](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4536.png "Img_4536")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4536.png)
+![Img_4536](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4536.png)
 
-[![Img_4571](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4571.png "Img_4571")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4571.png)
+![Img_4571](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4571.png)
 
-[![Img_4493](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4493.png "Img_4493")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4493.png)
+![Img_4493](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4493.png)
 
-[![Img_5478](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5478.png "Img_5478")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5478.png)
+![Img_5478](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5478.png)
 
-[![Img_4514](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4514.png "Img_4514")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4514.png)
+![Img_4514](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4514.png)
 
-[![Img_5494](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_5494.png "Img_5494")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5494.png)
+![Img_5494](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_5494.png)
 
-[![Img_4501](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/23/img_4501.png "Img_4501")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4501.png)
+![Img_4501](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/23/img_4501.png)

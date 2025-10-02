@@ -11,13 +11,13 @@ tags:
   - "visiting-london-with-kids"
 ---
 
-[![IMG_1450](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8960556c970d.jpg "IMG_1450")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8960556c970d.jpg)Family Travel England - London Bridge Photo
+![IMG_1450](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8960556c970d.jpg)Family Travel England - London Bridge Photo
 
 If you do family travel then  
 you can't go to London and  
 miss the iconic London Bridge
 
-<!--more--> [![London bridge a must for London family vacation](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e896056a5970d.jpg "London bridge a must for London family vacation")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e896056a5970d.jpg)
+<!--more--> ![London bridge a must for London family vacation](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e896056a5970d.jpg)
 
 If you do [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel ") then you can't go to [London](http://en.wikipedia.org/wiki/London "london") and miss the iconic [Tower Bridge](http://en.wikipedia.org/wiki/London_Bridge "london bridge") which every kid is curious about because of that famous childhood song  "London Bridges falling down".  
   

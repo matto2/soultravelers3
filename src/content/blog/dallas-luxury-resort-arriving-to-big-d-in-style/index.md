@@ -23,7 +23,7 @@ tags:
   - "travel-to-dallas"
 ---
 
-[![IMG_3899](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc0c4e6970b.jpg "IMG_3899")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc0c4e6970b.jpg)Dallas Luxury Resort - 
+![IMG_3899](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc0c4e6970b.jpg)Dallas Luxury Resort - 
 "Big D" Arrival in Style!  
   
 A luxury resort getaway on  
@@ -31,7 +31,7 @@ our winter road trip through
 the Southwest from California
 
 <!--more-->  
-[![Dallas luxury resort family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c2453970d.png "Dallas luxury resort family travel")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c2453970d.png)  
+![Dallas luxury resort family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c2453970d.png)  
   
   
 A [luxury resort getaway](http://soultravelers3new.local/2014/02/love-and-romance-on-the-road-.html "love and romance travel") on our [winter road trip](http://soultravelers3new.local/2014/01/winter-road-trip-americas-southwest-.html "winter road trip southwest") through [the Southwest](http://soultravelers3new.local/2014/01/road-trip-usa-best-of-the-west.html "road trip USA - best of the west") from [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California best  destinations ") ( via Asia), sounded like the perfect way to arrive in style to Dallas, other wise known as  "Big D".  
@@ -40,7 +40,7 @@ We had never been to Dallas and knew no one, yet we had quickly and unexpectedly
   
 What could be better than beginning it in luxury at the amazing [Four Seasons Resort and Club Dallas](http://www.fourseasons.com/dallas/ "four seasons resort and club dallas") who sponsored our stay?  
   
-[![Getaway Dallas luxury on Southwest road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c62a9970d.png "Getaway Dallas luxury on Southwest road trip")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c62a9970d.png)  
+![Getaway Dallas luxury on Southwest road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c62a9970d.png)  
   
 After a long road trip, it was great to take three nights just to relax, rejuvenate, get a feel for [Dallas](http://www.visitdallas.com/ "dallas visit") and hunt down the perfect place to base here from this unique, luxurious resort.  
   
@@ -50,66 +50,66 @@ Bummer! But looking deeper, we saw it was a blessing, because we found it before
   
 Nevertheless, that adventure and delay, made it especially nice to arrive to such comfort and southern hospitality in our new city.  
   
-[![Dallas skyline on luxury getaway break](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511712460970c.png "Dallas skyline on luxury getaway break")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511712460970c.png)  
+![Dallas skyline on luxury getaway break](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511712460970c.png)  
   
 Dallas was a surprise to us and Mozart said it reminded her of [Beijing](http://soultravelers3new.local/2013/01/four-seasons-hotel-beijing-review-awesome-luxury.html "four seasons beijing") and the downtown does indeed have similarities to the [CBD](http://soultravelers3new.local/2013/03/beijing-sunset.html "Beijing cbd") of that Chinese city.  
   
-[![Visiting Dallas  at Perot Museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117124aa970c.png "Visiting Dallas  at Perot Museum")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117124aa970c.png)  
+![Visiting Dallas  at Perot Museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117124aa970c.png)  
   
 Our favorite thing in downtown Dallas was the [Perot Museum,](http://www.perotmuseum.org/ "Perot Museum") perfect to add some [homeschool science](http://soultravelers3new.local/2014/02/home-school-science-unschool-and-world-school-tips.html "homeschool science unschool tips") for our new teen, and I will be writing more details about that soon.  
   
-[![Luxury resort getaway at Four Seasons Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117124f3970c.png "Luxury resort getaway at Four Seasons Dallas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117124f3970c.png)  
+![Luxury resort getaway at Four Seasons Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5117124f3970c.png)  
   
 It goes without saying that our room was divine  
   
-[![Dallas delectable room service at Four Seasons Resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511712546970c.png "Dallas delectable room service at Four Seasons Resort")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511712546970c.png)  
+![Dallas delectable room service at Four Seasons Resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511712546970c.png)  
   
 and is there anything better than starting the day with a delectable room service breakfast made with [healthy food](http://soultravelers3new.local/2014/01/travel-and-paleoprimal-grain-free-gapswapf-healthy-eating.html "healthy food and travel - Paleo grain-free, gluten-free") we can eat?  
   
 ( Note all the vitamin pill bottles in the photo which makes [traveling with a health challenge](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "traveling with a health challenge") cumbersome to say the least, more so on a road trip, but working on our [healing jouney](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html "healing journey") is so worth it.)  
   
-[![Coffee and breakfast on the 18th hole in Dallas Four Seasons resort  villa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c65c4970d.png "Coffee and breakfast on the 18th hole in Dallas Four Seasons resort  villa")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c65c4970d.png)  
+![Coffee and breakfast on the 18th hole in Dallas Four Seasons resort  villa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73d7c65c4970d.png)  
   
 Maybe doing it outside overlooking the award-winning 18th hole from our terrace on a gorgeous winters day!  
   
-[![beautiful Four Seasons Resort and Club Dallas in Las Colinas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga3fcc15d37970b-800wi "beautiful Four Seasons Resort and Club Dallas in Las Colinas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.png
+![beautiful Four Seasons Resort and Club Dallas in Las Colinas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.png
 a3fcc15d37970b-pi)  
   
 The weather was sunny and in the seventies in January when we were there. Not quite warm enough to dip into the  spectacular 5,500-square-foot (511-square-metre) outdoor pool, but it added to the ambience and there was no lack of things to do..including the indoor pool.  
   
-[![Mozart enjoying new mode of travel- golf cart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117126d9970c-800wi "Mozart enjoying new mode of travel- golf cart")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117126d9970c-pi)  
+![Mozart enjoying new mode of travel- golf cart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117126d9970c-pi)  
   
  Mozart enjoyed the shuttle by golf cart around the 400 acre resort...a new way to travel!  
   
-[![Swimming at luxry resort in Dallas- Four Seasons](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117126fe970c-800wi "Swimming at luxry resort in Dallas- Four Seasons")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117126fe970c-pi)  
+![Swimming at luxry resort in Dallas- Four Seasons](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117126fe970c-pi)  
   
 Swimming in the huge, 75-foot (23-metre) indoor warm saltwater pool was a blast for Mozart.  
   
-[![Mozart playing tennis in Dallas at the Four Seasons Hotel and Resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga73d7c676e970d-800wi "Mozart playing tennis in Dallas at the Four Seasons Hotel and Resort")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga73d7c676e970d-pi)  
+![Mozart playing tennis in Dallas at the Four Seasons Hotel and Resort](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga73d7c676e970d-pi)  
   
 She also truly adored her tennis lesson and playing with her dad at the awesome tennis facilities here which includes four climate-controlled indoor hard courts and eight outdoor hard courts! Mozart has been a tennis fan since she started [lessons in Portugal](http://soultravelers3new.local/2008/06/tennis-anyone.html "tennis lessons portugal") at seven.  
   
-[![Cool tennis lesson in Dallas at Four Seasons Hotel golf school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga511712746970c-800wi "Cool tennis lesson in Dallas at Four Seasons Hotel golf school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga511712746970c-pi)  
+![Cool tennis lesson in Dallas at Four Seasons Hotel golf school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga511712746970c-pi)  
   
 Taking a golf lesson with golf pro [Tim Cusick](http://www.timcusickgolf.com/index.html "Tim Cusick golf teacher") was a real treat. Something her 86 year old [traveling Grandma](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html "traveling with grandma 3-generation travel") would deeply approve of as she is still golfing regularly and quite the golf fanatic.  
   
-[![Mozart at the Fitness Center Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117127ae970c-800wi "Mozart at the Fitness Center Four Seasons Resort & Club Dallas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117127ae970c-pi)  
+![Mozart at the Fitness Center Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117127ae970c-pi)  
   
 The state-of-the-art fitness center was gigantic, bigger than I have ever seen at a resort, including an indoor and an outdoor jogging track that Mozart had to try out.  
   
-[![Four Seasons Resort & Club Dallas Spa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga3fcc15ea7970b-800wi "Four Seasons Resort & Club Dallas Spa")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga3fcc15ea7970b-pi)  
+![Four Seasons Resort & Club Dallas Spa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga3fcc15ea7970b-pi)  
   
 For the often over-worked mom, moi, the sublime spa and getting a steamed towel massage was pure bliss and badly needed after so much fast travel and moving from Asia intensity.  
   
-[![Mom and dauther bonding - Spa at Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117127ef970c-800wi "Mom and dauther bonding - Spa at Four Seasons Resort & Club Dallas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117127ef970c-pi)  
+![Mom and dauther bonding - Spa at Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga5117127ef970c-pi)  
   
 We also really enjoyed the [mother-daughter bonding](http://soultravelers3new.local/2012/09/mother-daughter-bonding-tips-for-tweens.html "mother daughter bonding") time together at the spa. I love saunas and they had the biggest one I have ever seen!  
   
-[![Spa Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga51171283b970c-800wi "Spa Four Seasons Resort & Club Dallas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga51171283b970c-pi)  
+![Spa Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga51171283b970c-pi)  
   
 They had hot tubs, cold pools, steam rooms, exotic showers with hydrotherapy coming from every direction, healing herbal teas, great service and more.Nothing like healing water to refresh, pamper and revitalize.  
   
-[![Teen Mozart enjoying Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga3fcc15fc5970b-800wi "Teen Mozart enjoying Four Seasons Resort & Club Dallas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga3fcc15fc5970b-pi)  
+![Teen Mozart enjoying Four Seasons Resort & Club Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pnga3fcc15fc5970b-pi)  
   
 Perhaps one of the best pleasures is just hanging out together in these lavish surroundings, brain-storming ideas for upcoming plans, cuddling and laughing together.  
   

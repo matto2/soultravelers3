@@ -22,14 +22,14 @@ tags:
   - "split-pants"
 ---
 
-[![IMG_9532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7c43324970d.jpg "IMG_9532")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7c43324970d.jpg)Bare Butt Babies in China - 
+![IMG_9532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7c43324970d.jpg)Bare Butt Babies in China - 
 Diaper Free - Split Pants  
   
 One of the most shocking cultural  
 differences in China for foreigners  
 is the diaper free baby butts
 
-<!--more--> [![diaper free babies around the world - split pants in China baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d404ffc0e970c.jpg "diaper free babies around the world - split pants in China baby")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d404ffc0e970c.jpg)  
+<!--more--> ![diaper free babies around the world - split pants in China baby](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d404ffc0e970c.jpg)  
   
 One of the most shocking [cultural differences in China](http://soultravelers3new.local/2012/11/babies-in-beijing-china-travel-joy.html "cultural differences in China - babies") for foreigners is the diaper free baby butts one sees every where from major cities like [Beijing](http://soultravelers3new.local/2013/01/best-things-to-do-in-beijing-china-.html "best of beijing travel") and [Shanghai](http://soultravelers3new.local/2012/11/shanghai-with-kids.html "shanghai family travel with kids") to [rural villages](http://soultravelers3new.local/2012/12/visiting-a-beautiful-water-village-china-zhujiajio.html "water village china").  
   
@@ -40,7 +40,7 @@ I had read about it, but it took our 12 year old by surprise a little the first 
 Unlike her mother, our daughter Mozart has already long ago adapted to squat toilets ...from [Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "Best Europe vacations"), her [Mandarin school in Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "mandarin school in Penang") and else where (and they only had squat toilets at this Mandarin school in Beijing where she lived for a month). I will soon write a post with tips for squat toilets for older folks like me who can't squat (thanks to my mobility challenges).  
   
   
-[![bare bottom baby in China - EC and diaper free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d404ffcf4970c.jpg "bare bottom baby in China - EC and diaper free")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d404ffcf4970c.jpg)  
+![bare bottom baby in China - EC and diaper free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d404ffcf4970c.jpg)  
   
 Being [diaper free](http://www.diaperfreebaby.org/ "diaper free") and [elimination communication](http://en.wikipedia.org/wiki/Elimination_communication "elimination communication") has been used for centuries in many countries besides China, but is gaining in popularity in some parts of the USA. Some feel like it is better for the environment and the family.  
   

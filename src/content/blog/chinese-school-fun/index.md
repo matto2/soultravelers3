@@ -26,7 +26,7 @@ tags:
   - "year-book-photos-mandarin"
 ---
 
-[![IMG_6296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d31f363970c.jpg "IMG_6296")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d31f363970c.jpg)Chinese School Fun!  
+![IMG_6296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d31f363970c.jpg)Chinese School Fun!  
   
 Can Chinese school be fun?  
 Yes, it can be despite Mandarin  
@@ -55,7 +55,7 @@ We loved it in [Spain](http://soultravelers3new.local/2010/07/schools-out-foreve
   
   
   
-[![colorful yearbook photos and memories of Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c330372c0970b.jpg "colorful yearbook photos and memories of Chinese school")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c330372c0970b.jpg)  
+![colorful yearbook photos and memories of Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c330372c0970b.jpg)  
   
 It is the end of the school year now and these are photos from the large year book from this very large Mandarin school. We left early last year and came back late this year, but feel it has been an extremely effective and positive way to learn Mandarin and understand the culture.  
   
@@ -63,7 +63,7 @@ We are about to head into China so will get even more Mandarin and since she is 
   
 We'll return to tropical Asia for Christmas and begin a new year at our Chinese school in January to continue to  focus more on her written Mandarin which is the hardest and most time consuming part. Some say it is like memorizing 400, 000 pictoral words.  
   
-[![chinese school class photo- 1 little American girl years younger](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d321032970c.jpg "chinese school class photo- 1 little American girl years younger")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d321032970c.jpg)  
+![chinese school class photo- 1 little American girl years younger](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3d321032970c.jpg)  
   
 Mozart is a very social kid and has really enjoyed her many friends here and loves the social life, reading all the books in the huge library and many competitions.  She is proud to have won the [elocution contest](http://soultravelers3new.local/2011/04/chinese-school-trophy-girl-.html "elocution contest") last year, [sung a solo](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "earth day solo in English and Mandarin"), choosen to give a [speech for Earth Day](http://soultravelers3new.local/2012/04/environmental-education-world-school-kid.html "environmental education speech by a kid earth day") earlier this year and has waited months for the big singing competition.  
   
@@ -71,7 +71,7 @@ We are thrilled that she made it to the top 5 to compete in the final singing co
   
   
   
-[![Chinese school year book fun photo and Mandarin captions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4a7812c970d.jpg "Chinese school year book fun photo and Mandarin captions")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4a7812c970d.jpg)  
+![Chinese school year book fun photo and Mandarin captions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4a7812c970d.jpg)  
   
 Yes, learning Mandarin can be a lot of fun when you have a little help from your friends! It took us a few classes to get it right, but we find this school to be a very fun place for our tween to immerse in  Mandarin and Chinese culture with a lot of sweet, bright, wholesome kids.  
   

@@ -18,14 +18,14 @@ tags:
   - "sunrise-photo"
 ---
 
-[![IMG_5938](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdd3bb4970c.jpg "IMG_5938")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdd3bb4970c.jpg)Spectacular Sunrise and  
+![IMG_5938](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdd3bb4970c.jpg)Spectacular Sunrise and  
 Quotes to Start the Day  
   
 How I love the fresh morning  
 breeze as I start my day and  
 the scintillating sun rising over
 
-<!--more--> [![IMG_5938](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdd3ccb970c.jpg "IMG_5938")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdd3ccb970c.jpg)  
+<!--more--> ![IMG_5938](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3cdd3ccb970c.jpg)  
   
 How I love the fresh morning breeze as I start my day and the [scintillating sun rising over the sea](http://soultravelers3new.local/2012/10/sunday-sunrise-photo-and-inspiring-quote.html "sunrise , sea, clouds and mountains"), sharing its bright golden, orange and red beauty with me here in [tropical Asia](http://soultravelers3new.local/2011/04/saying-goodbye-to-tropical-asia-penang.html "wintering in tropical Asia"). It's quite still then, but distant roosters crow and the birds sing their sweet morning songs. How can one not be filled with [peace](http://soultravelers3new.local/2012/10/world-peace-love-and-happiness.html "peace quotes and inspiration"), inspiration and gratitude at such magnificence?  
   

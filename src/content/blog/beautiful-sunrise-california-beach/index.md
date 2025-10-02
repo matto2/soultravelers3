@@ -16,13 +16,13 @@ tags:
   - "sunrise"
 ---
 
-[![IMG_0162](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc5ef528970d.jpg "IMG_0162")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc5ef528970d.jpg)Beautiful Sunrise, California Beach
+![IMG_0162](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc5ef528970d.jpg)Beautiful Sunrise, California Beach
 
 What a way to  
 wake up and  
 start your day! I know
 
-<!--more--> [![beautiful sunrise with redwoods and beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc5ef580970d.jpg "beautiful sunrise with redwoods and beach")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc5ef580970d.jpg)  
+<!--more--> ![beautiful sunrise with redwoods and beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fc5ef580970d.jpg)  
   
   
 What a way to wake up and start your day! I know I just wrote about [gorgeous sunsets and sunrises](http://soultravelers3new.local/2011/11/beautiful-sunrises-and-sunsets.html "gorgeous sunsets and sunrises"), but I couldn't resist sharing this one with you. My mother has an enchanting place surrounded by redwoods, near the beach and on a river and this is the view out the window when I wake up in the morning,  

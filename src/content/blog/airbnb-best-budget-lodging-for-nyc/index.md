@@ -17,7 +17,7 @@ tags:
   - "short-term-rental-new-york-city"
 ---
 
-[![Picture 8](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89efa062970d.jpg "Picture 8")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89efa062970d.jpg) Airbnb - Best Budget Lodging for NYC
+![Picture 8](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89efa062970d.jpg) Airbnb - Best Budget Lodging for NYC
 
 Need a place to stay in New  
 York City? Have a very tight  
@@ -25,7 +25,7 @@ budget? Airbnb can be a budget
 
 <!--more-->
 
-[![Picture 8](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89efa187970d.jpg "Picture 8")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89efa187970d.jpg)  
+![Picture 8](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e89efa187970d.jpg)  
   
 Need a place to stay in New York City? Have a very tight budget? [Airbnb](http://www.airbnb.com/ "airbnb") can be a budget traveler's best resource, especially in expensive places like Manhattan.  
   
@@ -33,7 +33,7 @@ It's quick, it's easy and also a fun way to meet locals.
   
 Airbnb is a service that allows ordinary folks to rent a bed, spare room, apartment, sailboat or whole house. They have places available around the world. Some are shares with locals like we did and some are rental places completely to yourself.  
   
-[![traveling light - total baggage for 3 for 9 momths round the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153908c0859970b.jpg "traveling light - total baggage for 3 for 9 momths round the world ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153908c0859970b.jpg)  
+![traveling light - total baggage for 3 for 9 momths round the world ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330153908c0859970b.jpg)  
   
   
   
@@ -43,7 +43,7 @@ We [travel the world](http://soultravelers3new.local/2009/04/how-to-travel-the-w
   
 We didn't want anything fancy, just something clean, convenient and safe. There was a huge variety available on Airbnb.  We talked a bit via email with a few owners and decided on one that was in the heart of Times Square and paid 72 dollars for the night. ( Airbnb did give us a small discount coupon).  
   
-[![New York airbnb stay cheap, convenient  and clean](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a7f2f3f970d.jpg "New York airbnb stay cheap, convenient  and clean")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a7f2f3f970d.jpg)  
+![New York airbnb stay cheap, convenient  and clean](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a7f2f3f970d.jpg)  
   
   
   
@@ -53,7 +53,7 @@ Since we [travel light](http://soultravelers3new.local/2010/02/15-best-tips-for-
   
 You know we are big fans of the New York Times [Frugal Traveler](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html "frugal traveler") and he wrote and interesting [review of Airbnb](http://frugaltraveler.blogs.nytimes.com/2009/10/28/staying-with-newfound-friends-for-a-fee/ "airbnb review") and you might also like [Gizmo's thoughts](http://gizmodo.com/5796854/how-to-use-airbnb-like-a-pro "gizmos thoughts on airbnb") on this topic.  
   
-[![IMG_6651](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154345f88cd970c.jpg "IMG_6651")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154345f88cd970c.jpg)  
+![IMG_6651](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154345f88cd970c.jpg)  
   
   
 Here is the review I wrote about our stay on the Airbnb site and what our hosts wrote:
@@ -63,7 +63,7 @@ Really great people and a beautiful place! The location is perfect for those who
 We had Jeanne and her husband and daughter stay with us. It was a short stay, but they were wonderful! I highly recommend hosting them. They were clean, nice, and considerate. Also check out their blog!!  
 www.soultravelers3.com  
   
-[![arrival New York City airport](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a7f3605970d.jpg "arrival New York City airport")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a7f3605970d.jpg)  
+![arrival New York City airport](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8a7f3605970d.jpg)  
   
   
   

@@ -15,14 +15,14 @@ tags:
   - "unlocking-doors"
 ---
 
-[![IMG_2760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36977c0a970b.jpg "IMG_2760")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36977c0a970b.jpg)Beautiful Door and Keyhole - 
+![IMG_2760](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36977c0a970b.jpg)Beautiful Door and Keyhole - 
 Travel Photography  
   
 Experiencing beauty around the  
 world and learning photography  
 during our family world travels
 
-<!--more--> [![beautiful inspiration - travel photography and rumi poems - unlock doors](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83ad4fc970d.jpg "beautiful inspiration - travel photography and rumi poems - unlock doors")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83ad4fc970d.jpg)  
+<!--more--> ![beautiful inspiration - travel photography and rumi poems - unlock doors](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee83ad4fc970d.jpg)  
   
 Experiencing [beauty](http://soultravelers3new.local/2008/06/beauty-and-nake.html "beauty and nakedness") [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world family travel") , inspiration and [learning photography](http://soultravelers3new.local/2012/09/-rickshaw-as-art-photo.html "learning photography") during our f[amily world travels](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "around the world family travel") these last 8 years has been a big part of the joy for us. There is so much [beauty](http://soultravelers3new.local/2012/11/winter-beach-beauty-of-southern-spain.html "winter beach beauty") in this world!  
   

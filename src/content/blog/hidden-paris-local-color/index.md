@@ -29,7 +29,7 @@ is being able to live like a local
   
 
 <!--more-->  
-[![  Hidden Paris, Local Color ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d05c3973970c.png "  Hidden Paris, Local Color ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d05c3973970c.png)  
+![  Hidden Paris, Local Color ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d05c3973970c.png)  
   
 One of the great pleasures of doing [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "Slow travel") in [Paris](http://soultravelers3new.local/2013/03/la-samaritaine-paris-architecture.html "Paris travel") is being able to live like a local and feel like a native-born Parisian. It is a joy to stumble upon authentic areas filled with character,  far from the maddening crowds  
   

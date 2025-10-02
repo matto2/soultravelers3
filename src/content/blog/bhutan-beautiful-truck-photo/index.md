@@ -19,13 +19,13 @@ tags:
   - "visiting-bhutan"
 ---
 
-[![IMG_7611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9cc36970c.jpg "IMG_7611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9cc36970c.jpg)Bhutan Beautiful Truck Photo
+![IMG_7611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9cc36970c.jpg)Bhutan Beautiful Truck Photo
 
 Even the trucks are  
 beautiful and colorful  
 in Bhutan, land of the
 
-<!--more--> [![beautiful Bhutan..even the trucks!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d47ecf970d.jpg "beautiful Bhutan..even the trucks!")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d47ecf970d.jpg)  
+<!--more--> ![beautiful Bhutan..even the trucks!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d47ecf970d.jpg)  
   
   
 Even the trucks are beautiful and colorful in Bhutan, land of the thunder dragon! I hear now that they do a similar type of decoration on trucks in neighboring India as well, but we had never seen it before. There is only one road in the whole country of Bhutan and it is still being built ( that is a whole story by itself that is coming soon as the method stunned us).  

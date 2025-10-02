@@ -7,13 +7,13 @@ categories:
   - "china"
 ---
 
-[![IMG_7256](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dce44970b.jpg "IMG_7256")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dce44970b.jpg)China Calling  
+![IMG_7256](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dce44970b.jpg)China Calling  
   
 Is China calling you?  
 Okay, I couldn't resist  
 asking and taking
 
-<!--more--> [![using pagoda phone in China at the summer palace - Is China calling you?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dcedc970b.jpg "using pagoda phone in China at the summer palace - Is China calling you?")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dcedc970b.jpg)  
+<!--more--> ![using pagoda phone in China at the summer palace - Is China calling you?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c341dcedc970b.jpg)  
   
 Is [China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "amazing china travel") calling you? Okay, I couldn't resist asking and taking advantage of this pagoda phone opportunity, ( at the [Summer Palace](http://soultravelers3new.local/2012/11/-summer-palace-sunset-in-beijing-china.html "summer palace, china travel ")), but it is an important question in today's world where many say it is the [Asian Century.](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Asian century - why learn mandarin")  
   

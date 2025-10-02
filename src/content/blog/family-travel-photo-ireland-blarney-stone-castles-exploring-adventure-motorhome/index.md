@@ -15,7 +15,7 @@ tags:
   - "rv"
 ---
 
-[![IMG_7588](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a59cb8a7970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a59cb8a7970b.jpg)
+![IMG_7588](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a59cb8a7970b.jpg)
 
 Family Travel Photo - Ireland  
 October 7, 2009
@@ -26,7 +26,7 @@ seven year old Mozart explores a
 
 <!--more-->
 
-[![child explores Ireland Blarney stone castles, green with violin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5f375b3970c.jpg "child explores Ireland Blarney stone castles, green with violin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5f375b3970c.jpg)
+![child explores Ireland Blarney stone castles, green with violin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5f375b3970c.jpg)
 
 Peeking into new world's of wonder is what family travel is about! Here seven year old Mozart explores a hidden forest behind a rock wall door in Blarney, [Ireland](http://en.wikipedia.org/wiki/Ireland) last summer. She had just kissed the [Blarney stone](http://en.wikipedia.org/wiki/Blarney_Castle), we did one of her [violin vignettes](http://www.youtube.com/user/soultravelers3) in front of the castle and we were off wandering around the beautiful park-like grounds.  
 

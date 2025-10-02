@@ -17,20 +17,20 @@ tags:
   - "simple-diy-homemade-ice-cream"
 ---
 
-[![IMG_6617](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeabfc7bc970d.jpg "IMG_6617")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeabfc7bc970d.jpg)Easy Healthy Homemade Ice Cream  
+![IMG_6617](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017eeabfc7bc970d.jpg)Easy Healthy Homemade Ice Cream  
 \- No Machine  
   
 What is the secret to making  
 delicious, easy, HEALTHY ice cream  
 without a machine that is GAPS
 
-<!--more--> [![healthy homemade DIY ice cream without a machine](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bc24fd6970b.jpg "healthy homemade DIY ice cream without a machine")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bc24fd6970b.jpg)  
+<!--more--> ![healthy homemade DIY ice cream without a machine](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bc24fd6970b.jpg)  
   
 What is the [secret](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "secrets for health and travel") to making delicious, [easy, HEALTHY](http://soultravelers3new.local/health-and-travel/page/3/ "healthy food tips") ice cream without a machine that is [GAPS/Paleo/WAPF](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic food GAPS diet, Weston Price ") legal and vegetarian?  Yummy [coconut milk](http://soultravelers3new.local/2012/08/-superfood-healthy-coconut-tropical-nourishing-tradition-in-asia.html "coconut milk")! We've traded in our [healthy popsicles](http://soultravelers3new.local/2012/08/how-to-make-healthy-popsicles-.html#more "healthy popsicles") for this delight in several flavors.  
   
 We are doing a [diet cavity cure](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "cure cavities with diet") using [raw goat milk](http://soultravelers3new.local/2013/04/raw-milk-fast-and-cure.html "raw goat milk fast and cure"), [bone broth,](http://soultravelers3new.local/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth") , [kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "raw goats milk kefir"),  [fermented salsa](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "fermented salsa"), DIY sauerkraut, [mayo](http://soultravelers3new.local/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html "easy fermented mayo"), [goat cheese](http://soultravelers3new.local/2013/02/how-to-make-diy-goat-cheese-with-kefir.html "goat cheese"), and much more, but doing NO grains at the moment due to their [phytic acid.](http://www.westonaprice.org/food-features/living-with-phytic-acid "phytic acid")  It is already working well and kiddo has also improved the whiteness of her teeth by several shades ( which surprised me!).  
   
-[![healthy ingredients for homemade ice cream](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bc37cca970b.jpg "healthy ingredients for homemade ice cream")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bc37cca970b.jpg)  
+![healthy ingredients for homemade ice cream](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901bc37cca970b.jpg)  
   
   
 We are also doing no sugar and very small amount of fruit because of fructose, so we are not pigging out on this ice cream because it does have raw, unheated organic honey in it ( the only sweetener we eat and only small amounts), but it makes a perfect little snack when you are hankering for some healthy dessert on the weekend watching [American Idol](http://soultravelers3new.local/2013/04/why-i-love-lazaro-arbos.html "American Idol - Lazaro") with the family.  

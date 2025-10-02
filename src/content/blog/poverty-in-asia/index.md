@@ -15,13 +15,13 @@ tags:
   - "shanty-construction"
 ---
 
-[![IMG_1767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301774492356a970d.jpg "IMG_1767")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301774492356a970d.jpg)Poverty in Asia
+![IMG_1767](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301774492356a970d.jpg)Poverty in Asia
 
 The poverty in Asia  
 can be shocking despite  
 this being the Asian century
 
-<!--more--> [![poverty in Asia - construction shanty town](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31b4ad9d970b.jpg "poverty in Asia - construction shanty town")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31b4ad9d970b.jpg)  
+<!--more--> ![poverty in Asia - construction shanty town](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31b4ad9d970b.jpg)  
   
 The poverty in Asia can be shocking despite this being the Asian century and the fact that we are staying in one of the most prosperous countries in [South East Asia](http://soultravelers3new.local/2012/05/living-in-asia.html "south East Asia"). It's partly the contrast in [Malaysia](http://soultravelers3new.local/2012/07/typical-malaysia-local-style.html "Malaysia travel") that stuns.  As you might recall, we are [renting a luxury condo in Penang](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "renting a luxury condo in Penang") and this is one of the buildings across the street from us. All the construction near us has these shanty towns filled with the workers and their families.  
   

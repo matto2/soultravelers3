@@ -21,7 +21,7 @@ tags:
   - "trains"
 ---
 
- [![IMG_6893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8b0467f970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8b0467f970b.jpg) Family Travel Photo - Norway  
+ ![IMG_6893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8b0467f970b.jpg) Family Travel Photo - Norway  
 February 18th, 2010
 
 Family Travel in Norway means  
@@ -30,7 +30,7 @@ and Bergen Railway and breathtaking
 
 <!--more-->
 
-[![Stunning Norway fjord landscape river near Flam Railway on Norway in a Nutshell mountains & houses](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012877b3100d970c.jpg "Stunning Norway fjord landscape river near Flam Railway on Norway in a Nutshell mountains & houses")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012877b3100d970c.jpg)  
+![Stunning Norway fjord landscape river near Flam Railway on Norway in a Nutshell mountains & houses](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012877b3100d970c.jpg)  
 
 [Family Travel in Norway](http://soultravelers3new.local/2009/03/family-travel-norway-in-a-nutshell-norwegian-fijord-photo.html) means not missing the [Fjords](http://www.fjordnorway.com/en/), famous [Flam](http://www.visitflam.com/default.asp) and [Bergen](http://soultravelers3new.local/2009/08/family-travel-photo-norway-bergen-fish-market-fresh-salmon.html) Railway and breathtaking scenery while doing [Norway in a Nutshell](http://www.norwaynutshell.com/) on a [bargain budget](http://soultravelers3new.local/2008/09/how-to-eat-heal.html). We are big proponents of [slow travel](http://soultravelers3new.local/2008/05/top-10-family-t.html), but [Norway](http://soultravelers3new.local/2009/09/family-travel-photo-norway-oslo-vigeland-sculpture-park-mother-child.html) is the most expensive country in Europe, so one way to keep to a [tight family travel budget](http://soultravelers3new.local/2008/06/how-to-do-exten.html) while there is to see a lot in a short amount of time.
 

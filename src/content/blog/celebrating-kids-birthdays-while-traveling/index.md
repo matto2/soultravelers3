@@ -18,14 +18,14 @@ tags:
   - "travel-birthdays"
 ---
 
-[![IMG_5356](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543530867e970c.jpg "IMG_5356")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543530867e970c.jpg) Celebrating Kid's  
+![IMG_5356](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301543530867e970c.jpg) Celebrating Kid's  
 Birthdays While Traveling  
   
 Have you ever celebrated  
 a birthday abroad? Since  
 we live a travel lifestyle  
 
-<!--more--> [![Birthday celebratioins in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b50c98d970d.jpg "Birthday celebratioins in Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b50c98d970d.jpg)  
+<!--more--> ![Birthday celebratioins in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8b50c98d970d.jpg)  
   
 Have you ever celebrated a birthday abroad? Since we live a [lifestyle of non-stop family travel](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "lifestyle of non-stop family travel"), our child has had some amazing travel birthday celebrations starting at 5 with her [good bye pajama party](http://soultravelers3new.local/2006/08/suite-bon-voyag.html "good bye pajama party") in 2006 at a hotel. We even helped her identify exactly what [world travel](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "world travel") was by planning her 6th [birthday in Paris](http://soultravelers3new.local/2006/09/mozarts-6th-at.html "birthday in paris") before we left. Who knew we were starting a trend? A [permanent vacation life](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "permanent vacation") has many perks.  
   

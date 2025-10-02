@@ -21,13 +21,13 @@ tags:
   - "vacation-in-spain"
 ---
 
-[![75813812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36512fe8970b.jpg "75813812")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36512fe8970b.jpg)Travel to Spain - Kids Tips  
+![75813812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36512fe8970b.jpg)Travel to Spain - Kids Tips  
   
 Traveling to Spain with kids or  
 looking to winter in Spain? Hunting  
 for the best tips for family travel
 
-<!--more--> [![travel to Spain - beautiful beaches and kids tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36513070970b.jpg "travel to Spain - beautiful beaches and kids tips")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36513070970b.jpg)  
+<!--more--> ![travel to Spain - beautiful beaches and kids tips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36513070970b.jpg)  
   
   
 _[Traveling to Spain with kids](http://soultravelers3new.local/2011/05/best-southern-spain-holiday.html "traveling spain with kids best holiday vacation") or looking to [winter in Spain](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "winter in spain how to")? Hunting for the [best tips for family travel in Spain](http://soultravelers3new.local/2010/06/family-travel-tips-in-spains-costa-del-sol-countryside-adventures-mediterranean-beaches-photography-.html "best tips for family travel spain")? Our 12 year old American [trilingual](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "how to raise a bilingual, trilingual or multilingual kid") daughter just wrote a power point presentation for her [Chinese school in Asia](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Chinese school in Asia - american learning Mandarin") about [Spain](http://soultravelers3new.local/2013/01/camping-spain.html "camping spain") and I thought you'd enjoy and learn from part of it and her kids tips and viewpoint as [Barcelona](http://soultravelers3new.local/2011/07/costa-brava-and-barcelona.html "barcelona and costa brava") and [Andalusia](http://soultravelers3new.local/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html "Andalusia semana santa") are [two of her homes](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "homes around the world- raising kids as digital nomads") as we [travel the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "RTW family travel the world") :_  
@@ -35,11 +35,11 @@ _[Traveling to Spain with kids](http://soultravelers3new.local/2011/05/best-sout
   
 [Spain](http://soultravelers3new.local/2011/08/family-travel-spain-photo-andalusia.html "Spain travel") is a country known widely for it's [sunny beaches](http://soultravelers3new.local/2008/04/yummy-beach-lun.html "beautiful beach spain andalusia costa del sol") and [amazing museums](http://soultravelers3new.local/2007/04/prado-play.html "Amazing museums kids spain"), but that's not all_._ Spain has so many [beautiful white villages](http://soultravelers3new.local/2006/11/we-are-living-i.html "beautiful white village spain") and so much history!  
   
-[![Travel to Spain with kids - learning history through festivals in white village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d408094a8970c.jpg "Travel to Spain with kids - learning history through festivals in white village")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d408094a8970c.jpg)  
+![Travel to Spain with kids - learning history through festivals in white village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d408094a8970c.jpg)  
   
 For instance, did you know, that if you walk along the streets in [old villages in Andalucia](http://soultravelers3new.local/2007/02/a-thought-provo.html "wonderful tour in southern spain white village"), you will see on many doors, there will be knockers in the shape of hands, but you probably don't know why. It's because one day, a faithful wife was making “la cena” for her hardworking husband, when he came home with another woman! The wife plunged her hand into the soup pot in anguish where it was severely burned. Now the Fatima hand is a good luck omen if given as a gift.  
   
-[![family travel to Spain with kids - learning history in ancient white villages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c365185fa970b.jpg "family travel to Spain with kids - learning history in ancient white villages")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c365185fa970b.jpg)  
+![family travel to Spain with kids - learning history in ancient white villages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c365185fa970b.jpg)  
   
 Another wonderful attraction is the [Flamenco,](http://soultravelers3new.local/2007/03/flamenco-in-sev.html "Flamenco in Spain") one of the most popular dances in the world. Spain is  one of the most popular tourist destinations for the British, because unlike Britain, Spain has gorgeous weather all year long!  
   

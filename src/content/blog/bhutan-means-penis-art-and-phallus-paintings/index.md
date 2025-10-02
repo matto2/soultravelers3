@@ -15,14 +15,14 @@ tags:
   - "tourism-and-penis-art"
 ---
 
-[![IMG_7764](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9ae0c970c.jpg "IMG_7764")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9ae0c970c.jpg)Bhutan Tourism Means  
+![IMG_7764](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9ae0c970c.jpg)Bhutan Tourism Means  
 Penis Art and Phallus Paintings
 
 How can I write about  
 Bhutan, without writing  
 about one of things that
 
-<!--more--> [![Penis art and phallic paintings in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9ae81970c.jpg "Penis art and phallic paintings in Bhutan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9ae81970c.jpg)  
+<!--more--> ![Penis art and phallic paintings in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e8c9ae81970c.jpg)  
   
   
 How can I write about [Bhutan](http://soultravelers3new.local/2011/05/family-vacation-in-bhutan.html "travel to Bhutan"), without writing about one of things that most shocks Western tourists who visit? Talking about [Bhutan's penis art](http://en.wikipedia.org/wiki/Phallus_paintings_in_Bhutan "Bhutan's Penis art") on a family travel blog, might seem strange, but it is a normal part of [Bhutanese life](http://soultravelers3new.local/2011/05/buddhist-bhutan-bliss.html "bhutanese buddhist life") and seen everywhere like the [beautiful Himalayan mountains](http://soultravelers3new.local/2011/09/stunning-himalaya-travel-bhutan.html "beautiful himalayan mountains ") there.  

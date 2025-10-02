@@ -16,14 +16,14 @@ tags:
   - "travel-with-vertigo"
 ---
 
-[![IMG_0229](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616febbf7970c.jpg "IMG_0229")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616febbf7970c.jpg)Can You Travel With Fear of Flying,  
+![IMG_0229](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017616febbf7970c.jpg)Can You Travel With Fear of Flying,  
 Vertigo, Claustrophobia and Agoraphobia?  
   
 Are you a scaredy cat  
 adventurer or a fool who rushes  
 in where angels fear to tread?
 
-<!--more-->  [![cute kitty and angel- scaredy cat treading where angels fear to tread](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676909ccd7970b.jpg "cute kitty and angel- scaredy cat treading where angels fear to tread")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676909ccd7970b.jpg)  
+<!--more-->  ![cute kitty and angel- scaredy cat treading where angels fear to tread](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676909ccd7970b.jpg)  
   
  Are you a scaredy cat adventurer or a fool who rushes in where angels fear to tread?  I think I am a bit of both. Can you [travel the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "travel around the world") if you have vertigo, claustrophobia, agoraphobia and are afraid to fly? YES and I am living proof! (The cute photo by the way, is of our kitten at our old home in the redwoods.)  
   

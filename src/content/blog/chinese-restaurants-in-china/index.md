@@ -17,13 +17,13 @@ tags:
   - "travel-to-china"
 ---
 
-[![IMG_8292](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4044a1d5970c.jpg "IMG_8292")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4044a1d5970c.jpg)Chinese Restaurants in China  
+![IMG_8292](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4044a1d5970c.jpg)Chinese Restaurants in China  
   
 Eating Chinese food in Chinese  
 restaurants in China means  
 waiters with ipads, menus with
 
-<!--more--> [![Chinese restaurants in China - ordering via Ipad, color photo menus](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3615a662970b.jpg "Chinese restaurants in China - ordering via Ipad, color photo menus")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3615a662970b.jpg)  
+<!--more--> ![Chinese restaurants in China - ordering via Ipad, color photo menus](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3615a662970b.jpg)  
   
 Eating [Chinese food](http://soultravelers3new.local/2012/11/peking-duck-in-beijing.html "chinese food - peking duck") in C[hinese restaurants in China](http://soultravelers3new.local/2012/11/yum-loving-the-food-in-beijing.html "chinese restaurants in China") means waiters with ipads, menus with colored photos, shared eating, chopsticks and some of the best tasting food on our planet.  
   
@@ -31,7 +31,7 @@ Oh my gosh, we were soooo spoiled by lovely people taking us out to dinner and l
   
 Still, there is nothing quite like having Chinese [food in China](http://soultravelers3new.local/2012/11/food-in-china.html "food in china") and we were very blessed to be guided by our new Chinese friends who always seemed to know just what to order. I have many more stories to tell about the [yummy food in China](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html "food in china"), but starting with this meal, one of our first in [Beijing](http://soultravelers3new.local/2012/12/family-travel-beijing-tiananmen-square.html "travel beijing") ( where I got the first [acupuncture treatment](http://soultravelers3new.local/2012/11/yowser-acupuncture-torture-in-china.html "acupuncture treatment in China")).  
   
-[![eating Chinese Food in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7b94061970d.jpg "eating Chinese Food in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7b94061970d.jpg)  
+![eating Chinese Food in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7b94061970d.jpg)  
   
   
 Originally, we were going to stay with this lovely woman's mother in Beijing, but since she lived rather far out, at the last moment, they decided we should stay with a friend of hers who lived closer into the central Beijing [Mandarin school](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "Mandarin school immersion in Beijing") we had our daughter in.  

@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Vio_pontdugd_06_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/images/2008/03/14/vio_pontdugd_06_2.png "Vio_pontdugd_06_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/vio_pontdugd_06_2.png) Violin at Pont du GardMarch 12,2008
+ ![Vio_pontdugd_06_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/03/14/vio_pontdugd_06_2.png) Violin at Pont du GardMarch 12,2008
 
 This is one of a series of videos we  
 have shot of Mozart playing violin  

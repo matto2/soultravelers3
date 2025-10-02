@@ -17,13 +17,13 @@ tags:
   - "travel-to-europe"
 ---
 
-[![IMG_2850](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36976cc8970b.jpg "IMG_2850")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36976cc8970b.jpg)Europe's Fascinating Food Markets  
+![IMG_2850](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36976cc8970b.jpg)Europe's Fascinating Food Markets  
   
 Like most food lovers who travel  
 to Europe,  we find visiting their  
 fascinating food markets is one
 
-<!--more--> [![food markets Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c606c9970c.jpg "food markets Europe")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c606c9970c.jpg)  
+<!--more--> ![food markets Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40c606c9970c.jpg)  
   
 Like most food lovers who [travel to Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "travel to Europe- best vacations"),  we find visiting their fascinating food markets is one of the greatest pleasures of [European travel](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "Traveling around Europe in a campervan").  
   

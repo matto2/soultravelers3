@@ -26,18 +26,18 @@ tags:
   - "travel"
 ---
 
-[![CWJoOTPUkAALFGT](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a27037970d.jpg "CWJoOTPUkAALFGT")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a27037970d.jpg)Happy Holidays!! Soultravelers3 Update!  
+![CWJoOTPUkAALFGT](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a27037970d.jpg)Happy Holidays!! Soultravelers3 Update!  
   
 I adore this photo of Mozart and my husband  
 we took this Christmas season, their first in  
 Los Angeles. Are you in the holiday mood and
 
 <!--more-->  
-[![Happy Holidays from Soultravelers3! Mozart and Santa or is it Davinci? ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188163f970c.png "Happy Holidays from Soultravelers3! Mozart and Santa or is it Davinci? ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188163f970c.png)  
+![Happy Holidays from Soultravelers3! Mozart and Santa or is it Davinci? ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188163f970c.png)  
   
 I adore this photo of [Mozart](http://www.muzicbymozart.com "Mozart") and my husband we took this Christmas, their first in Los Angeles. Are you in the [holiday](http://soultravelers3new.local/2013/12/happy-holidays-double-your-impact-.html "holiday") mood and taking time for family, good food, good friends and time to relax?  2015 has been an extremely busy year for us, especially this past fall when we [moved](http://soultravelers3new.local/2015/11/cheap-moving-cross-country-with-uhaul-towing-car.html#more "moved") here to support [Mozart's singing](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "Mozart's singing"), songwriting, acting career and things speeded up.   
   
-[![Happy Holidays and Soultravelers3 update. Cutting our own Christmas tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188165a970c.png "Happy Holidays and Soultravelers3 update. Cutting our own Christmas tree")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188165a970c.png)  
+![Happy Holidays and Soultravelers3 update. Cutting our own Christmas tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188165a970c.png)  
   
   
 She just committed across-the-board with the CESD Talent Agency ( the same one that launched Jennifer Lawrence, Miley Cyrus, Kristen Bell and so many young stars) and has just been filmed by Disney with exciting auditions in January with Nickelodeon and Disney so 2016 looks like it is going to be another whirlwind year. Not to mention the singing she is doing, like this [latest video](https://www.youtube.com/watch?v=tzp6STLoTLI "latest video") with her new friend that was on American Idol, her first [lyric video](https://www.youtube.com/watch?v=pWyaDc-UXHU "lyric video") and more original songs coming like [Ignite.](https://www.youtube.com/watch?v=cvKNVLRpWqo "Ignite") All while maintaining a 4.0 college GPA at barely fifteen.   
@@ -58,19 +58,19 @@ Seems like only yesterday she was just this big!
   
 We're planning more travel, but still trying to get our bearings here, adjusting to an American style California life ( and prices to go with it) as well as the fast-changing pace. We love the sunshine, beach, being close to old friends and near to family in northern California. It feels familiar, yet very foreign too.  
   
-[![Mozart enjoying Hot chocolate celebrating Christmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a2cda3970d.png "Mozart enjoying Hot chocolate celebrating Christmas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a2cda3970d.png)  
+![Mozart enjoying Hot chocolate celebrating Christmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a2cda3970d.png)  
   
   
 I have much to say on the blog, but I just haven't had time to say it yet, don't worry, I will. We seem to be in a whole new paradigm so I am finding our new reality. As always, my number one priority is educating, protecting and taking care of my daughter and since she has picked the very arduous tasks of both a challenging career and simultaneously college education starting as a very young teen, there is much to do in guiding her. If you track any young successful actress and singer today, you will find they started young and had great family support. Like an Olympic athlete it doesn't happen in a vacuum. It's been fascinating and unexpected that unschooling around the world has led us in this direction, but I think Mozart's goal of wanting to change the world will increase in opportunities as her platform grows.   
   
-[![Happy Holidays! Mozart making a Ginger bread house in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1881684970c.png "Happy Holidays! Mozart making a Ginger bread house in California")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1881684970c.png)  
+![Happy Holidays! Mozart making a Ginger bread house in California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1881684970c.png)  
   
   
   
 I hope you are all having a wonderful holy, happy holidays no matter what your religion, faith, belief-system might be. I love the little pleasures of this time of year and a chance to take more time to just "be" instead of always "doing" which seems the norm for an ambitious American life. May you have an exciting and prosperous New Year ahead! May you always know you are loved and appreciated.   
   
   
-[![Happy Holidays! Gifts under the tree at Soultravelers3 new home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a2cdc1970d.png "Happy Holidays! Gifts under the tree at Soultravelers3 new home")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a2cdc1970d.png)  
+![Happy Holidays! Gifts under the tree at Soultravelers3 new home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08a2cdc1970d.png)  
   
   
   

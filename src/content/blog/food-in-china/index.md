@@ -14,13 +14,13 @@ tags:
   - "learning-about-china"
 ---
 
-[![IMG_8432_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55cea29970d.jpg "IMG_8432_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55cea29970d.jpg)Food in China  
+![IMG_8432_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55cea29970d.jpg)Food in China  
   
 There is so much to  
 love about China, and  
 in some ways we are tempted
 
-<!--more--> [![fresh food and market in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55ceb32970d.jpg "fresh food and market in China")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55ceb32970d.jpg)  
+<!--more--> ![fresh food and market in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee55ceb32970d.jpg)  
   
 There is so much to [love about China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "loving China travel "), and in some ways we are tempted to do a long stay here, but as [delicious as the food](http://soultravelers3new.local/2012/11/yum-loving-the-food-in-beijing.html "delicious food in China") is,( and it's been fantastic), I still have grave concerns about the [food/water quality](http://usatoday30.usatoday.com/news/world/story/2012-05-28/china-food-safety/55252482/1 "china food safety issues") here and the [pollution](http://www.cbc.ca/news/world/story/2012/07/04/pollution-china.html "pollution").  
   

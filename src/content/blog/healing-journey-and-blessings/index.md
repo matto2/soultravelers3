@@ -21,13 +21,13 @@ tags:
   - "natural-healing"
 ---
 
-[![IMG_8345](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191048362e2970c.jpg "IMG_8345")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191048362e2970c.jpg)Healing Journey and Blessings  
+![IMG_8345](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330191048362e2970c.jpg)Healing Journey and Blessings  
   
 Many of you know that we  
 are on a healing journey now  
 as we travel the world on this
 
-<!--more--> [![healing journey through food and blessings - our angel inspiration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac4c9f15970d.jpg "healing journey through food and blessings - our angel inspiration")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac4c9f15970d.jpg)  
+<!--more--> ![healing journey through food and blessings - our angel inspiration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac4c9f15970d.jpg)  
   
 Many of you know that we are on a [healing journey](http://soultravelers3new.local/2013/05/healing-sun-vitamin-d-major-improvements.html "healing journey and vitamin d") now as we [travel the world](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "travel the world") on this [ultimate family adventure](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "ultimate family adventure"), and I have been [traveling when sick](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "traveling when sick") ever since the [tragic bike accident](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html "tragic accident during travel") in 2009 ( besides my [fear of flying](http://soultravelers3new.local/2012/08/can-you-travel-with-fear-of-flying-vertigo-claustrophobia-and-agoraphobia.html "fear of flying") issues, phobias and mobility [challenges from the beginning](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "how to travel the world")).  
   
@@ -54,7 +54,7 @@ Pain is a great teacher and I have dealt with some severe, prolonged  pain and 
   
 Like Dr Walsh and Dr Hyman in these super important videos, I went to the top medical and alternative doctors ( on 3 continents) looking for a cure, but as I got worse, I discovered that food was the best medicine and how bad even the healthiest of us eat.  
   
-[![healthy organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac4d3caf970d.jpg "healthy organic real food")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac4d3caf970d.jpg)  
+![healthy organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac4d3caf970d.jpg)  
   
 I couldn't believe that top M.D.'s could not help me and I saw some famous ones while in [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "california travel"), but was in agony by then and just got worse and no one seemed able to help.  
   
@@ -69,7 +69,7 @@ It was/is often up and down, through each day, so I managed to keep the blog goi
   
 Since no one seemed able to help me and I kept getting worse, I knew I had to find some answers myself  or I was headed for death as I was declining so fast.  Often times I was so sick that I worried I wouldn't  make it through the night, but there was no choice but to edure as the hospitals ( in Spain, California and Asia) had no answers or help for me.  
   
-[![delicious organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e9f615b970b.jpg "delicious organic real food")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e9f615b970b.jpg)  
+![delicious organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e9f615b970b.jpg)  
   
 I've made quite a bit of progress on my own, thanks to good books and researching smart folks on the internet and changing my whole life and diet. That has been a tremendous blessing and I am so grateful for this insight and to be able to pass on what I learn along the way.  
   
@@ -126,7 +126,7 @@ The more I've read, the more I have experienced, the more I have  become totall
   
 The system just doesn't work... doctors/dentists are trained instead of educated so are punished for questioning; the FDA/medical system etc are owned by Big Pharm/corrupt corporations; and our toxic food supply of processed foods and factory farm antibiotic/growth hormone full frankenfoods  needs to change. WE individuals are the ones who can do it by doing things differently.  
   
-[![delicious organic real food fruit bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac5fab7f970d.jpg "delicious organic real food fruit bowl")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac5fab7f970d.jpg)  
+![delicious organic real food fruit bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac5fab7f970d.jpg)  
   
   
 **JUNK FOOD IS KILLING OUR KIDS**  
@@ -139,7 +139,7 @@ I am thrilled to be finding some amazing innovative people in the healing fields
   
 In writing my book about my experience in curing my severe gum disease, I've come to learn how connected oral health is to over all health and how the state of our mouths reflects the state of our health. I will be writing a whole series about this as I am discovering vital information that more need to know. If you or your kids have cavities,  crooked teeth, gum disease, you will be happy to know that all are preventable and curable ( and ignoring can create huge health issues down the line).  
   
-[![delicious organic real food - bone broth](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea04d80970b.jpg "delicious organic real food - bone broth")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea04d80970b.jpg)  
+![delicious organic real food - bone broth](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea04d80970b.jpg)  
   
   
   
@@ -158,7 +158,7 @@ Today, you actually can know more than your doctor or dentist on some subjects a
   
 One must learn the root causes of many chronic problems, for which "mainstream medicine" has NO answers, except to prescribe prescription drugs, which just add more toxins. In our world, it is hard to avoid toxins in our food, air and water, but there are many simple, inexpensive tools that can help us heal ourselves and prevent diseases naturally. I will be writing more about those I have found.  
   
-[![delicious organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea05039970b.jpg "delicious organic real food")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea05039970b.jpg)  
+![delicious organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea05039970b.jpg)  
   
   
   
@@ -189,7 +189,7 @@ Each person or family must tweak to what works for them.... for us raw goats mil
   
 A paleo type who is eating typical farm factory meats and a vegan eating processed foods like potato chips are both not eating health diets, so it is more about making choices that really work instead of labels. Smart paleos often eat more veggies than vegans and smart vegans make sure they find ways around their missing nutrients.  
   
-[![delicious organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea04ae0970b.jpg "delicious organic real food")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea04ae0970b.jpg)  
+![delicious organic real food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901ea04ae0970b.jpg)  
   
   
 Here are important [foods to avoid](http://www.trueactivist.com/10-foods-you-should-never-eat/ "foods to avoid for health") and [how to eat healthy on a budget](http://wellnessmama.com/2151/how-to-eat-healthy-on-a-budget-10-money-saving-tips/ "how to eat healthy food on a budget"). It does take work to make the highest choices with food, but we find that it is absolutely worth it and feel blessed by all that we are learning in the process. I've grown very fond of delicous, real food and slow food is as satisfying as slow travel.  

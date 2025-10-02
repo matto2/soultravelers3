@@ -22,14 +22,14 @@ tags:
   - "world-travel-and-homeschool"
 ---
 
-[![IMG_2685](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31b963bc970b.jpg "IMG_2685")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31b963bc970b.jpg)Homeschooling Through Travel  
+![IMG_2685](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31b963bc970b.jpg)Homeschooling Through Travel  
 for a Gifted Child  
   
 Can combining travel  
 and homeschool enhance  
 education for a gifted kid?
 
-<!--more--> [![Homeschooling around the world- our American kid doing  Mandarin homework in Wadi Rum Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3be7aeb0970c.jpg "Homeschooling around the world- our American kid doing  Mandarin homework in Wadi Rum Jordan")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3be7aeb0970c.jpg)  
+<!--more--> ![Homeschooling around the world- our American kid doing  Mandarin homework in Wadi Rum Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3be7aeb0970c.jpg)  
   
 Can [combining travel and homeschoo](http://soultravelers3new.local/2011/09/learning-while-traveling-travel-homeschool-road-school-abroad-5-best-reasons.html "travel and homeschool")l enhance education for a gifted kid? We think world travel is the best possible education for all children in our shrinking world and particularly beneficial for asynchronous development, advanced learners and gifted, creative families. How do you homeschool a gifted child through travel?  
   
@@ -48,7 +48,7 @@ Swimming with sharks in [in Bora Bora](http://soultravelers3new.local/2010/11/bo
   
 We would never have been able to give her so much on our small budget without world travel. It is a dream life available to almost any ordinary family today because you don't have to be rich to live a rich life. You also don't have to wait until they are teens or in college to study abroad as there are so many advantages for younger school age children.  
   
-[![homeschool and travel in Europe ...exploring history](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfda56c970c.jpg "homeschool and travel in Europe ...exploring history")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfda56c970c.jpg)  
+![homeschool and travel in Europe ...exploring history](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3bfda56c970c.jpg)  
   
   
 Our daughter was five when we began our [family world trip](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "Around-the-world family world trip") and she will soon be twelve, so we have extensive experience in this realm having been to 44 countries on 5 continents so far and doing it all on a low budget of $23/day per person.  
