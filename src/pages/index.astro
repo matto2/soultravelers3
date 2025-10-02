@@ -1,45 +1,38 @@
 ---
-import BaseHead from '../components/BaseHead.astro';
-import Footer from '../components/Footer.astro';
-import Header from '../components/Header.astro';
-import { SITE_DESCRIPTION, SITE_TITLE } from '../consts';
+import BaseHead from "../components/BaseHead.astro";
+import Footer from "../components/Footer.astro";
+import Header from "../components/Header.astro";
+import { SITE_DESCRIPTION, SITE_TITLE } from "../consts";
 ---
 
 <!doctype html>
 <html lang="en">
-	<head>
-		<BaseHead title={SITE_TITLE} description={SITE_DESCRIPTION} />
-		<style>
-			.hero-image {
-				width: 100%;
-				height: auto;
-				display: block;
-				margin: 0;
-				padding: 0;
-			}
-			.hero-image img {
-				width: 100%;
-				height: auto;
-				display: block;
-			}
-		</style>
-	</head>
-	<body>
-		<div class="hero-image">
-			<img src="/homepage_temp.jpg" alt="Soul Travelers 3" />
-		</div>
-		<Header />
-		<main>
-			<h1>Welcome to Soul Travelers 3</h1>
-			<p>
-				A California family of three documents their open-ended world journey, sharing insights on slow travel,
-				homeschooling on the road, budget living, spiritual growth, and practical tips for the nomadic lifestyle.
-			</p>
-			<p>
-				Explore our adventures across 40+ countries, discover family-friendly destinations,
-				and learn how to embrace the traveling lifestyle with children.
-			</p>
-		</main>
-		<Footer />
-	</body>
+  <head>
+    <BaseHead title={SITE_TITLE} description={SITE_DESCRIPTION} />
+    <style>
+      .hero-image {
+        width: 100%;
+        height: auto;
+        display: block;
+        margin: 0;
+        padding: 0;
+      }
+      .hero-image img {
+        width: 100%;
+        height: auto;
+        display: block;
+      }
+    </style>
+  </head>
+  <body>
+    <div class="hero-image">
+      <img src="/homepage_temp.jpg" alt="Soul Travelers 3" />
+    </div>
+    <Header />
+    <main>
+      <h1>Welcome to Soul Travelers 3</h1>
+      <p>New site coming soon!</p>
+    </main>
+    <Footer />
+  </body>
 </html>
