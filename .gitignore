@@ -25,3 +25,6 @@ pnpm-debug.log*
 
 # WordPress uploads - stored in R2, not in git
 uploads/
+
+# Wrangler state files
+.wrangler/
