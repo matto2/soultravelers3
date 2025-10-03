@@ -237,8 +237,6 @@ At a year she started asking for "Opera" so we eventually took her to see [opera
 
 You can see the joy and excitement in this photo of her before a performance.Often the audience was filled with people older than me, so they were not too happy to see this bubbling, active baby. As soon as it started though, she was still and mesmerized. Afterwards I got lots of compliments on how good she was and they were surprised.Who would have guessed it, but that was life with Heavenly taking us on a unique journey following her lead.
 
-![](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833030402697079200d-500wi-1.jpg)
-
 Heavenly also loved to stay home and imaginative play. She was such a busy kid that she not only took over our largest living room as her playroom filled with toys and books, but also a large outdoor fenced in patio for water play and outdoor meals with her dolls. If I asked what a new dolls name was, she would come up immediately with a spectacular unique name. When we sold all her toys when we sold this home to travel the world, the buyers thought we had 10 kids! We are minimalist, but she was not & we could not help but spoil her.  
 ![Heavenly Reyna outdoor playroom patio lunch with toy babies ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302e860f28993200b-500wi-1.jpg)Heavenly has always attracted many gifts! Here she is with Grandma on her first birthday party extravaganza surrounded by just a few of the gifts that filled this very large dining table.
 

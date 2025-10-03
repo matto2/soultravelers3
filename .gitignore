@@ -28,3 +28,10 @@ uploads/
 
 # Wrangler state files
 .wrangler/
+
+# Keystatic test posts (don't commit test content)
+src/content/posts/test/
+src/content/posts/new-post-test/
+
+# Local Netlify folder
+.netlify

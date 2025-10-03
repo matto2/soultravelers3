@@ -54,4 +54,22 @@ const custom = defineCollection({
 	}).passthrough(),
 });
 
-export const collections = { blog, pages, custom };
+const posts = defineCollection({
+	// Load Keystatic-managed posts in the `src/content/posts/` directory
+	loader: glob({ base: './src/content/posts', pattern: '**/*.{md,mdx,mdoc}' }),
+	schema: ({ image }) =>
+		z.object({
+			title: z.string(),
+			description: z.string().optional(),
+			date: z.coerce.date().optional(),
+			pubDate: z.coerce.date().optional(),
+			updatedDate: z.coerce.date().optional(),
+			heroImage: image().optional(),
+			categories: z.array(z.string()).optional(),
+			tags: z.array(z.string()).optional(),
+			excerpt: z.string().optional(),
+			draft: z.boolean().optional(),
+		}),
+});
+
+export const collections = { blog, pages, custom, posts };

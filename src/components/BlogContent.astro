@@ -3,13 +3,15 @@ import { marked } from 'marked';
 
 // Component to process blog content and hide teaser content from full posts
 export interface Props {
-  content: string;
+  content?: string;
   showTeaser?: boolean;
 }
 
 const { content, showTeaser = false } = Astro.props;
 
-function processContent(content: string, showTeaser: boolean): string {
+function processContent(content: string | undefined, showTeaser: boolean): string {
+  if (!content) return '';
+
   const moreIndex = content.indexOf('<!--more-->');
 
   if (moreIndex === -1) {

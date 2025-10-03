@@ -10,12 +10,21 @@
     "astro": "astro"
   },
   "dependencies": {
+    "@astrojs/markdoc": "^0.15.7",
     "@astrojs/mdx": "^4.3.6",
+    "@astrojs/netlify": "^6.5.11",
+    "@astrojs/react": "^4.4.0",
     "@astrojs/rss": "^4.0.12",
     "@astrojs/sitemap": "^3.6.0",
+    "@keystatic/astro": "^5.0.6",
+    "@keystatic/core": "^0.5.48",
     "@tailwindcss/vite": "^4.1.13",
+    "@types/react": "^19.2.0",
+    "@types/react-dom": "^19.2.0",
     "astro": "^5.14.1",
     "marked": "^16.3.0",
+    "react": "^19.2.0",
+    "react-dom": "^19.2.0",
     "sharp": "^0.34.3",
     "tailwindcss": "^4.1.13"
   },
