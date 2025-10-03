@@ -1,45 +1,36 @@
 ---
-import { type CollectionEntry, getCollection, getEntry } from 'astro:content';
-import BlogPost from '../../layouts/BlogPost.astro';
-import BlogContent from '../../components/BlogContent.astro';
-import { render } from 'astro:content';
+import { type CollectionEntry, getCollection, getEntry } from "astro:content";
+import BlogPost from "../../layouts/BlogPost.astro";
+import BlogContent from "../../components/BlogContent.astro";
+import { render } from "astro:content";
 
-const { slug } = Astro.params;
+export async function getStaticPaths() {
+  const blogPosts = await getCollection("blog");
+  const newPosts = await getCollection("posts");
 
-// Try to get the post from either collection
-let post: CollectionEntry<'blog'> | CollectionEntry<'posts'> | undefined;
+  // Combine all posts and create paths
+  const allPosts = [...blogPosts, ...newPosts];
 
-// Try posts collection first (Keystatic)
-try {
-	post = await getEntry('posts', slug!);
-} catch (e) {
-	// Ignore error, post doesn't exist in this collection
+  return allPosts.map((post) => ({
+    params: { slug: post.id },
+    props: { post },
+  }));
 }
 
-// If not found, try blog collection
-if (!post) {
-	try {
-		post = await getEntry('blog', slug!);
-	} catch (e) {
-		// Ignore error
-	}
-}
-
-// If still not found, return 404
-if (!post) {
-	return Astro.redirect('/404');
-}
+const { post } = Astro.props;
 
 // For Keystatic posts, render the content properly
 // For regular blog posts, use the body as-is
-const isKeystatic = post.collection === 'posts';
+const isKeystatic = post.collection === "posts";
 const { Content } = isKeystatic ? await render(post) : { Content: null };
 ---
 
 <BlogPost {...post.data}>
-	{Content ? (
-		<Content />
-	) : (
-		<BlogContent content={post.body} showTeaser={false} />
-	)}
+  {
+    Content ? (
+      <Content />
+    ) : (
+      <BlogContent content={post.body} showTeaser={false} />
+    )
+  }
 </BlogPost>
