@@ -6,7 +6,7 @@ categories:
   - "italy"
 ---
 
- [![Img_7575](http://soultravelers3new.local/images/2008/04/28/img_7575.jpg "Img_7575")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7575.jpg) Catching Capri  
+ [![Img_7575](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_7575.jpg "Img_7575")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7575.jpg) Catching Capri  
 April 28, 2008
 
 They say it is one of the most beautiful  
@@ -21,7 +21,7 @@ glamour attached to its name,
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7575_4.jpg)
 
-[![Img_7575_5](http://soultravelers3new.local/images/2008/04/28/img_7575_5.jpg "Img_7575_5")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7575_5.jpg)
+[![Img_7575_5](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_7575_5.jpg "Img_7575_5")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7575_5.jpg)
 
 They say it is one of the most beautiful islands in the world and it has a lot of glamour attached to its name, but I was a little disappointed in Capri. Perhaps one gets jaded after seeing so many wonderful sites or when a place has a lot of hype attached to it, one sets higher standards of expectations, so probably easy to be let down, although some such places turn out to be even better than expected. It was our last stop in Italy last November & with the short time we had left, we decided to see Capri and Sorrento and skip the Almalfi Coast, partly due to time restraints and I also was not in the mood for any more scary, cliff hanging roads after all that I had endured already with my vertigo.
 
@@ -40,12 +40,12 @@ At long last, we have caught up with our last year's seven months of family trav
 
 Sorry, it has been slow this winter on the blog, but we had to do a lot of work on the website behind the scenes and there is just so much time in a day, especially with a little one around. I will post a few things about our winter here, but in many ways it was similar to our winter in this village last year, only now it feels like home instead of us feeling like strangers in a strange land. We will continue to get more pictures and videos up as we go. We know we have good internet connection in our winter homes in Spain, so that is our time to catch up and get a lot done, because it is much harder on the move. Our feet are getting "itchy" again now, thus we can't wait to get the packing and chores done and get back on the road!
 
-[![Img_7592](http://soultravelers3new.local/images/2008/04/28/img_7592.jpg "Img_7592")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7592.jpg)
+[![Img_7592](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_7592.jpg "Img_7592")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7592.jpg)
 
-[![Img_7418](http://soultravelers3new.local/images/2008/04/28/img_7418.jpg "Img_7418")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7418.jpg)
+[![Img_7418](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_7418.jpg "Img_7418")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7418.jpg)
 
-[![Img_7457](http://soultravelers3new.local/images/2008/04/28/img_7457.jpg "Img_7457")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7457.jpg)
+[![Img_7457](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_7457.jpg "Img_7457")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7457.jpg)
 
-[![Img_7619](http://soultravelers3new.local/images/2008/04/28/img_7619.jpg "Img_7619")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7619.jpg)
+[![Img_7619](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_7619.jpg "Img_7619")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7619.jpg)
 
-[![Img_7554](http://soultravelers3new.local/images/2008/04/28/img_7554.jpg "Img_7554")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7554.jpg)
+[![Img_7554](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_7554.jpg "Img_7554")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_7554.jpg)

@@ -34,9 +34,9 @@ at home possible for monolingual
 
 <!--more--> ![Bilingual Baby - Learning Spanish as a 2nd Language](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac1e0dd7970d.jpg)  
   
-Is [raising a bilingual child](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html "raising a bilingual or trilingual child") or [growing up bilingual or trilingual](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "growing up bilingual or trilingual") at home possible for monolingual parents who want their child to [learn a second or third language](http://soultravelers3new.local/language-learning/ "language learning tips for kids")?   
+Is [raising a bilingual child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/raising-a-bilingual-child-or-trilingual.html "raising a bilingual or trilingual child") or [growing up bilingual or trilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/04/growing-up-bilingual-or-trilingual.html "growing up bilingual or trilingual") at home possible for monolingual parents who want their child to [learn a second or third language](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/language-learning/ "language learning tips for kids")?   
   
-Don't miss our 3 part series on [how to raise a multilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "how to raise a  bilingual or multilingual child") with our best tips.  
+Don't miss our 3 part series on [how to raise a multilingual child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "how to raise a  bilingual or multilingual child") with our best tips.  
   
 **HOW TO TEACH YOUR CHILD** **SPANISH -** **BABY, TODDLER, KID, TWEEN**  
   
@@ -59,7 +59,7 @@ This first video  shows our Mozart at 4 days old learning Spanish from her fath
   
 Despite being raised as a trilingual from birth, Mozart was always a very verbal kid and began bilingual talking at 6 months, ( and walking) spoke 200 words before a year and knew 50 songs before 2 ( all 3 languages) when I stopped  counting. Surprising to us, her Spanish was even stronger than her English at first. One of her first words was "biblioteca" ( library).  
   
-I want monolingual parents to know that there are opportunites everywhere to help and my husband had very limited Spanish (he'd mostly learned in adulthood for a [trip to Europe](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html "best vacations in europe")). We didn't really know this could be done, until we did it. YES! Monolingual parents can [raise a fluent multilingual kid](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "how to raise a bilingual or multilingual kid").  
+I want monolingual parents to know that there are opportunites everywhere to help and my husband had very limited Spanish (he'd mostly learned in adulthood for a [trip to Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/02/5-best-european-family-vacations.html "best vacations in europe")). We didn't really know this could be done, until we did it. YES! Monolingual parents can [raise a fluent multilingual kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "how to raise a bilingual or multilingual kid").  
   
 ![Babies learning languages means lots of books, reading, singing and conversations with native speakers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192ac25156c970d.jpg)  
   
@@ -71,9 +71,9 @@ I want monolingual parents to know that there are opportunites everywhere to hel
 
   
   
-We purposely began teaching our baby [Spanish](http://soultravelers3new.local/2006/11/spanish-dancer.html "spanish flamenco in spain"), [Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html#more "fluent mandarin") and English when she was still in the womb in 2000 ( even though [science is only just now proving](http://news.discovery.com/human/language-learning-begins-before-birth-130103.htm "science proves language starts in womb") this logical conclusion).  
+We purposely began teaching our baby [Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/11/spanish-dancer.html "spanish flamenco in spain"), [Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/fluent-mandarin.html#more "fluent mandarin") and English when she was still in the womb in 2000 ( even though [science is only just now proving](http://news.discovery.com/human/language-learning-begins-before-birth-130103.htm "science proves language starts in womb") this logical conclusion).  
   
-We each [read the same  book](http://soultravelers3new.local/2013/03/10-tips-to-raise-a-reader-book-lover.html "tips on how to raise a reader and book lover") to her daily ( his in Spanish) and it was obvious well before 5 months pregnant that she was excited by the Spanish sounds she heard less often and mostly from a male voice.  
+We each [read the same  book](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/10-tips-to-raise-a-reader-book-lover.html "tips on how to raise a reader and book lover") to her daily ( his in Spanish) and it was obvious well before 5 months pregnant that she was excited by the Spanish sounds she heard less often and mostly from a male voice.  
   
 ![Langauge learning begins in the womb- Here I am very pregnant in my garden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301901e65cbaf970b.jpg)  
   
@@ -99,13 +99,13 @@ It does become harder once they are in school and exposed to the dominant langua
   
 **LANGUAGE IMMERSION AND TRAVEL**  
   
-[Travel](http://soultravelers3new.local/2013/01/travel-to-spain-kids-tips.html "travel to spain") and [language immersion](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html "language immersion spanish and Mandarin global kids") where the language is dominant is a great help for sure, especially for monolingual parents.  BUT it will only be a help if this is your goal and you are consistent and focused on language. There are millions of expats and travelers living for years or decades in foreign lands who never learn another language ( or very, very little of it).  
+[Travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/travel-to-spain-kids-tips.html "travel to spain") and [language immersion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/05/global-citizens-spanish-and-mandarin-immersion.html "language immersion spanish and Mandarin global kids") where the language is dominant is a great help for sure, especially for monolingual parents.  BUT it will only be a help if this is your goal and you are consistent and focused on language. There are millions of expats and travelers living for years or decades in foreign lands who never learn another language ( or very, very little of it).  
   
 Language immersion won't work unless YOU work it and make it a priority. I have known a ton of fluent native speakers who are biligual or more, but failed to raise their children as bilinguals, even when they wanted to.  
   
 Mozart was already very fluent in Spanish before we started to travel outside of California when she was 5, but time in a school in Spain and an all Spanish environment helped greatly with her reading and writing. You can find ways to immerse in Spanish while in America, but it takes some effort.  
 [  
-Raising a fluent multilingual child](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-3.html "raising a bilingual or multilingual child") who speaks, [reads and writes 3 languages](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html "multilingual reading and writing") and [plays 2 instruments](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "kid playing violin around the world") is MUCH different than imagining this before they are born. Truthfully, these were great aspirations of my youth, ( giving languages,travel,books and music to my future child)  but like most things in parenting, the flesh and blood reality can be a rude awakening.  
+Raising a fluent multilingual child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-3.html "raising a bilingual or multilingual child") who speaks, [reads and writes 3 languages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/multilingual-learning-reading-in-3-languages.html "multilingual reading and writing") and [plays 2 instruments](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/kid-playing-violin-around-the-world.html "kid playing violin around the world") is MUCH different than imagining this before they are born. Truthfully, these were great aspirations of my youth, ( giving languages,travel,books and music to my future child)  but like most things in parenting, the flesh and blood reality can be a rude awakening.  
   
 This is a long term commitment and will take daily work on it for many years..... BUT absolutely worth it. Life will throw you some curve balls, but just keep that focus until complete.  
   
@@ -121,7 +121,7 @@ Spanish is a heritage language for us because Mozart's great grandmother came fr
   
 Bilingual babies were lost that generation and the family flow turned monolingual English, but we are grateful we pick it up again as this allows Mozart to have a much deeper connection to her Spanish roots and understanding the culture as part of her. She feels as connected to Spain and Europe as she does America and California.  
   
-And she will be able to pass on the [Spanish](http://soultravelers3new.local/2008/04/spanish-kids-si.html "spanish kids singing") and [Chinese](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "only american girl in Chinese school ") to her children and generations to come because she has learned first hand the advantages of being a [multilingual](http://soultravelers3new.local/2013/01/multilingual-dreams.html "multilingual") global citizen and the responsibility to pass this gift on.  
+And she will be able to pass on the [Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/spanish-kids-si.html "spanish kids singing") and [Chinese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "only american girl in Chinese school ") to her children and generations to come because she has learned first hand the advantages of being a [multilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/multilingual-dreams.html "multilingual") global citizen and the responsibility to pass this gift on.  
   
 This post is part of the [Multilingual Kids Blogging Carnival](http://headoftheheard.com/ "multilingual kids blogging carnival july") for July about hidden opportunities.  
   
@@ -131,22 +131,3 @@ Are you raising a multilingual child or want to? Any questions?
 
 Related articles
 
-[![](http://i.zemanta.com/124031105_80_80.jpg)](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html)[Multilingual Learning - Reading in 3 Languages](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/168450990_80_80.jpg)](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)[Learning Spanish in Spain](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)
-
-[![](http://i.zemanta.com/87228096_80_80.jpg)](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)[Global Citizens = Spanish and Mandarin Immersion](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)
-
-[![](http://i.zemanta.com/158297724_80_80.jpg)](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html)[Growing Up Bilingual or Trilingual](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html)
-
-[![](http://i.zemanta.com/186552909_80_80.jpg)](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html)[Homeschool High School and World Travel](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html)
-
-[![](http://i.zemanta.com/111536966_80_80.jpg)](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)[How to Homeschool Through Travel With a Gifted Child](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/100812762_80_80.jpg)](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)[How To Make Kefir Easy - Goats Milk or Coconut Milk](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)
-
-[![](http://i.zemanta.com/91218951_80_80.jpg)](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)[Advice to College Grads From a World Traveler](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)

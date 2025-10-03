@@ -8,9 +8,9 @@ categories:
 draft: true
 ---
 
-[![IMG_0425](https://soultravelers3.typepad.com/.a/6a00e5502a95078833017d3e661009970c-200wi "IMG_0425")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017d3e661009970c-pi)People of China
+[![IMG_0425](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e661009970c.jpg "IMG_0425")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3e661009970c.jpg-pi)People of China
 
-<!--more--> [![IMG_0425](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c34371d8e970b-800wi "IMG_0425")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c34371d8e970b-pi)  
+<!--more--> [![IMG_0425](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34371d8e970b.jpg "IMG_0425")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c34371d8e970b.jpg-pi)  
   
 The people of China are it's true treasure and we've been very touched and blown away by the outstanding hospitality from the generous people of China.  
   

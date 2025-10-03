@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Mom](http://soultravelers3new.local/images/2008/04/18/mom.png "Mom")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/mom.png) World's Best Mother!  
+ [![Mom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/mom.png "Mom")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/mom.png) World's Best Mother!  
 February 10, 2007
 
 Oh, and everybody’s favorite Grandmother  
@@ -15,7 +15,7 @@ sweetest people on the planet and today is
 
 <!--more-->
 
-[![Mom_2](http://soultravelers3new.local/images/2008/04/18/mom_2.png "Mom_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/mom_2.png)
+[![Mom_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/mom_2.png "Mom_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/mom_2.png)
 
 Oh, and everybody’s favorite Grandmother too. Yep, that is my mom who is one of the sweetest people on the planet and today is her birthday. Happy Happy Birthday Mom!! She is on the road like us  today (visiting friends and relatives in the Southwest), so I can not wish her a Happy Birthday, thus I thought I would put her up on the blog. Ain’t she cute? I always tell her that and she shakes her head and says she is too old to be cute, but I think she is adorable inside and out. She is only five foot two or three and all her kids are taller including her two sons who grew well past six foot three and altho she is the oldest of seven she is the shortest...but one always forgets because her heart is so huge.
 
@@ -46,4 +46,4 @@ though everything I write
 is a poem to my mother.  
 Sharon Doubiago
 
-[![Dcp01742](http://soultravelers3new.local/images/2008/04/18/dcp01742.png "Dcp01742")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/dcp01742.png)
+[![Dcp01742](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/dcp01742.png "Dcp01742")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/dcp01742.png)

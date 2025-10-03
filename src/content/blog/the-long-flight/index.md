@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0351filtered](http://soultravelers3new.local/images/2008/05/07/img_0351filtered.png "Img_0351filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0351filtered.png) The Long Flight in Coach  
+ [![Img_0351filtered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0351filtered.png "Img_0351filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0351filtered.png) The Long Flight in Coach  
 August 25, 2006
 
 I knew I did not like long flights, but  
@@ -15,7 +15,7 @@ Despite being packed in like sardines
 
 <!--more-->
 
-[![Img_0351filtered_2](http://soultravelers3new.local/images/2008/05/07/img_0351filtered_2.png "Img_0351filtered_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0351filtered_2.png)
+[![Img_0351filtered_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0351filtered_2.png "Img_0351filtered_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0351filtered_2.png)
 
 I knew I did not like long flights, but I had forgotten how much I hate them. Despite being packed in like sardines and threat level at an orange, it was not really that bad. Not something I want to do every day, but certainly endurable and we made the most of it. Ms. Mozart actually really enjoyed the whole process and had a ball. It was her first flight as we have avoided planes due to the 9/11 hassles as well as her being a very active toddler. There is so much beauty in California that we just did lots of  road trips for adventures.
 
@@ -54,12 +54,12 @@ We were very pleased that the rest of the people at the airport and Amsterdam we
 
 We got a great van taxi and had no trouble getting all of our luggage in and the driver was great and helpful. Ms. Mozart really got a kick out of it because it was one with two TV’s in the back seat. It was a rainy, dreary day, but we were back to happy again!
 
-[![Img_0349](http://soultravelers3new.local/images/2008/05/07/img_0349.png "Img_0349")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0349.png)
+[![Img_0349](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0349.png "Img_0349")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0349.png)
 
-[![Img_0416](http://soultravelers3new.local/images/2008/05/07/img_0416.png "Img_0416")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0416.png)
+[![Img_0416](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0416.png "Img_0416")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0416.png)
 
-[![Img_0418](http://soultravelers3new.local/images/2008/05/07/img_0418.png "Img_0418")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0418.png)
+[![Img_0418](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0418.png "Img_0418")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0418.png)
 
-[![Img_0420](http://soultravelers3new.local/images/2008/05/07/img_0420.png "Img_0420")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0420.png)
+[![Img_0420](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0420.png "Img_0420")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0420.png)
 
-[![Img_0350](http://soultravelers3new.local/images/2008/05/07/img_0350.png "Img_0350")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0350.png)
+[![Img_0350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0350.png "Img_0350")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0350.png)

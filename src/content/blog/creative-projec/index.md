@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_6841](http://soultravelers3new.local/images/2008/04/18/img_6841.png "Img_6841")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6841.png) Creative Projects  
+ [![Img_6841](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6841.png "Img_6841")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6841.png) Creative Projects  
 February 11, 2007 [](http://video.google.co.uk/videoplay?docid=-4964296663335083307&q=educational+videos) 
 
 “The intuitive mind is a sacred gift and  
@@ -15,7 +15,7 @@ We have created a society that honors
 
 <!--more-->
 
-[![Img_6841_2](http://soultravelers3new.local/images/2008/04/18/img_6841_2.png "Img_6841_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6841_2.png)
+[![Img_6841_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6841_2.png "Img_6841_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6841_2.png)
 
 “The intuitive mind is a sacred gift and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.”  Albert Einstein said. I agree and perhaps that is why I adore my child’s endless, self-initiated, creative projects and think it is so important to allow her time for such things. We enjoyed Sir Ken Robinson’s take on this:  
 [http://video.google.co.uk/videoplay?docid=-4964296663335083307&q=educational+videos](http://video.google.co.uk/videoplay?docid=-4964296663335083307&q=educational+videos)
@@ -68,20 +68,20 @@ She produces way too much to keep every piece, but I do try to keep as much as I
 
 Her father has mastery in production and creativity in ways that I have always admired as I find that combination rare. I wonder what he was like as a child and I think back to my own love of making things out of nothing and list making as a child. It is interesting to ponder where her particular brand of creativity will take her in the future. In the meantime, I just enjoy these little things she pops out in her speedy little way.
 
-[![Img_6834](http://soultravelers3new.local/images/2008/04/18/img_6834.png "Img_6834")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6834.png)
+[![Img_6834](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6834.png "Img_6834")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6834.png)
 
-[![Img_6830](http://soultravelers3new.local/images/2008/04/18/img_6830.png "Img_6830")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6830.png)
+[![Img_6830](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6830.png "Img_6830")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6830.png)
 
-[![Img_6835](http://soultravelers3new.local/images/2008/04/18/img_6835.png "Img_6835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6835.png)
+[![Img_6835](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6835.png "Img_6835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6835.png)
 
-[![Img_6838](http://soultravelers3new.local/images/2008/04/18/img_6838.png "Img_6838")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6838.png)
+[![Img_6838](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6838.png "Img_6838")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6838.png)
 
-[![Img_6821](http://soultravelers3new.local/images/2008/04/18/img_6821.png "Img_6821")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6821.png)
+[![Img_6821](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6821.png "Img_6821")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6821.png)
 
-[![Img_6824](http://soultravelers3new.local/images/2008/04/18/img_6824.png "Img_6824")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6824.png)
+[![Img_6824](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6824.png "Img_6824")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6824.png)
 
-[![Img_6739](http://soultravelers3new.local/images/2008/04/18/img_6739.png "Img_6739")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6739.png)
+[![Img_6739](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6739.png "Img_6739")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6739.png)
 
-[![Img_6740](http://soultravelers3new.local/images/2008/04/18/img_6740.png "Img_6740")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6740.png)
+[![Img_6740](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6740.png "Img_6740")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6740.png)
 
-[![Img_6738](http://soultravelers3new.local/images/2008/04/18/img_6738.png "Img_6738")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6738.png)
+[![Img_6738](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6738.png "Img_6738")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6738.png)

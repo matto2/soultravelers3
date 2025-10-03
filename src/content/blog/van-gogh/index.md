@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0333](http://soultravelers3new.local/images/2008/05/06/img_0333.png "Img_0333")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0333.png) Van Gogh  
+ [![Img_0333](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0333.png "Img_0333")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0333.png) Van Gogh  
 September 4, 2006
 
 Wow! We love Van Gogh, so this was a  
@@ -15,7 +15,7 @@ well worth the trip alone just for this.
 
 <!--more-->
 
-[![Img_0333_2](http://soultravelers3new.local/images/2008/05/06/img_0333_2.png "Img_0333_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0333_2.png)
+[![Img_0333_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0333_2.png "Img_0333_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0333_2.png)
 
 Wow! We love Van Gogh, so this was a treat we did not want to miss and it was well worth the trip alone just for this. (We are becoming masters at the mass transit here as we wait for our camper and camera  
 to be ready to go). Spectacular art and wonderful things available for kids too,what parent could ask for more? The Van Gogh Museum in Amsterdam holds the worlds largest collection of his works, over 200 paintings and many famous masterpieces.
@@ -33,16 +33,16 @@ She has had books on art since she was a tiny baby (as the first ones were board
 
 She also bought some water color paints at the museum store, so she was journaling as we left the museum, on the bus home and was inspired to paint as soon as we got back to the camper at the shop. Of course we could not miss the opportunity to get a shot of her with her very favorite VanGogh painting...the sunflowers.
 
-[![Img_0317](http://soultravelers3new.local/images/2008/05/06/img_0317.png "Img_0317")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0317.png)
+[![Img_0317](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0317.png "Img_0317")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0317.png)
 
-[![Img_0319](http://soultravelers3new.local/images/2008/05/06/img_0319.png "Img_0319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0319.png)
+[![Img_0319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0319.png "Img_0319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0319.png)
 
-[![Img_0321filtered](http://soultravelers3new.local/images/2008/05/06/img_0321filtered.png "Img_0321filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0321filtered.png)
+[![Img_0321filtered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0321filtered.png "Img_0321filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0321filtered.png)
 
-[![Img_0341](http://soultravelers3new.local/images/2008/05/06/img_0341.png "Img_0341")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0341.png)
+[![Img_0341](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0341.png "Img_0341")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0341.png)
 
-[![Img_0343](http://soultravelers3new.local/images/2008/05/06/img_0343.png "Img_0343")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0343.png)
+[![Img_0343](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0343.png "Img_0343")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0343.png)
 
-[![Img_0345](http://soultravelers3new.local/images/2008/05/06/img_0345.png "Img_0345")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0345.png)
+[![Img_0345](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0345.png "Img_0345")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0345.png)
 
-[![Img_0332](http://soultravelers3new.local/images/2008/05/06/img_0332.png "Img_0332")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0332.png)
+[![Img_0332](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0332.png "Img_0332")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0332.png)

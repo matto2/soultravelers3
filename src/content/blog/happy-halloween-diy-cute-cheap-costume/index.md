@@ -42,7 +42,7 @@ Looking for a cute DIY ( do it yourself) Halloween costume that you can make qui
   
   
   
-Our teen Mozart loves to make her own on a the lowest possible budget and loves the fun and creativity involved. Remember when she made this [cute DYI Halloween costume](http://soultravelers3new.local/2013/10/easy-cute-cheap-diy-halloween-costume.html "cute easy diy costume for Halloween") when we were in Asia?   
+Our teen Mozart loves to make her own on a the lowest possible budget and loves the fun and creativity involved. Remember when she made this [cute DYI Halloween costume](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/10/easy-cute-cheap-diy-halloween-costume.html "cute easy diy costume for Halloween") when we were in Asia?   
   
 [![Happy Halloween! DIY Cute Cheap, Last Minute Costumes!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08897c1f970d.png "Happy Halloween! DIY Cute Cheap, Last Minute Costumes!")  
   
@@ -76,21 +76,21 @@ My baby is growing up! At 14 this might be her last year, but it is still one of
 ![Happy Halloween! DIY Cute Cheap, Last Minute Costumes!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7e59fa8970b.png)  
   
   
-Wishing you a very happy Halloween! What are you or your kids going as? Did you make your costumes? On our 10 year long [trip around the world](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "trip around the world for 8 years"), Mozart has celebrated Halloween from Bora Bora to [Barcelona](http://soultravelers3new.local/2011/07/costa-brava-and-barcelona.html "Barcelona"), but this is her first one in LA. Here are more stories about her celebrating Halloween Around the World:  
+Wishing you a very happy Halloween! What are you or your kids going as? Did you make your costumes? On our 10 year long [trip around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "trip around the world for 8 years"), Mozart has celebrated Halloween from Bora Bora to [Barcelona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/costa-brava-and-barcelona.html "Barcelona"), but this is her first one in LA. Here are more stories about her celebrating Halloween Around the World:  
   
-[HALLOWEEN AROUND THE WORLD](http://soultravelers3new.local/2011/10/halloween-around-the-world.html "HALLOWEEN AROUND THE WORLD")  
+[HALLOWEEN AROUND THE WORLD](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/halloween-around-the-world.html "HALLOWEEN AROUND THE WORLD")  
   
-[BEST HALLOWEEN EUROPE OR USA?](http://soultravelers3new.local/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "halloween in Europe and USA")  
+[BEST HALLOWEEN EUROPE OR USA?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "halloween in Europe and USA")  
   
-[HALLOWEEN CALIFORNIA BEACH STYLE](http://soultravelers3new.local/2011/10/enchanting-halloween-california-style-1.html "HALLOWEEN IN CALIFORNIA")  
+[HALLOWEEN CALIFORNIA BEACH STYLE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/enchanting-halloween-california-style-1.html "HALLOWEEN IN CALIFORNIA")  
   
-[WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS](http://soultravelers3new.local/2012/10/worlds-best-halloween-celebrations-spooky-trips.html "WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS")  
+[WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/worlds-best-halloween-celebrations-spooky-trips.html "WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS")  
   
-[HALLOWEEN IN BORA BORA](http://soultravelers3new.local/2010/10/happy-halloween-traveling-around-the-world-celebrations-for-kids.html "HALLOWEEN IN BORA BORA")  
+[HALLOWEEN IN BORA BORA](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/happy-halloween-traveling-around-the-world-celebrations-for-kids.html "HALLOWEEN IN BORA BORA")  
 [  
 HALLOWEEN JACK -O'-LANTERN FUN  
   
-](http://soultravelers3new.local/2012/10/halloween-jack-o-lantern-fun.html " HALLOWEEN JACK -O'-LANTERN FUN")
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/halloween-jack-o-lantern-fun.html " HALLOWEEN JACK -O'-LANTERN FUN")
 
 <iframe allowfullscreen frameborder="0" height="360" src="https://www.youtube.com/embed/4Dhrr12PbvA" width="480"></iframe>
 
@@ -100,8 +100,3 @@ HALLOWEEN JACK -O'-LANTERN FUN
 
 Related articles
 
-[![](http://i.zemanta.com/216491266_80_80.jpg)](http://soultravelers3new.local/2013/10/easy-cute-cheap-diy-halloween-costume.html)[Easy, Cute, Cheap DIY Halloween Costume](http://soultravelers3new.local/2013/10/easy-cute-cheap-diy-halloween-costume.html)
-
-[![](http://i.zemanta.com/306649652_80_80.jpg)](http://soultravelers3new.local/2014/10/halloween-travel-around-the-world.html)[Halloween Travel Around the World!](http://soultravelers3new.local/2014/10/halloween-travel-around-the-world.html)
-
-[![](http://i.zemanta.com/307742929_80_80.jpg)](http://soultravelers3new.local/2014/11/-yummy-paleo-chocolate-chip-cookie-bars-recipe.html)[Yummy Paleo Chocolate Chip Cookie Bars Recipe](http://soultravelers3new.local/2014/11/-yummy-paleo-chocolate-chip-cookie-bars-recipe.html)

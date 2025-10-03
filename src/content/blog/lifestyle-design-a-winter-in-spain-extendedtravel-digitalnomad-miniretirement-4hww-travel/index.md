@@ -29,7 +29,7 @@ his #1 best selling book "The 4-Hour
 
 "Lifestyle Design" has become a hot buzz word thanks to [Tim Ferriss](http://www.fourhourworkweek.com/) and his #1 best selling  book, "The 4- Hour Workweek" as well as his [hugely popular blog](http://www.fourhourworkweek.com/blog/). We love how he inspires, so were thrilled when we were contacted and told we were featured in the [new and expanded 4HWW edition](http://www.fourhourworkweek.com/blog/2009/10/16/tim-ferriss-4-hour-work-week/) coming out on December 15th!
 
-We have become accidental [trail blazers in extended family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) with tons of varied experiences in digital nomad  living (and [roadschooling](http://soultravelers3new.local/2007/05/hanging-out-roa.html)) on our open ended world tour since 2006, so hoped he would add more that was specific for families, since 70% of families dream about extended travel.
+We have become accidental [trail blazers in extended family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) with tons of varied experiences in digital nomad  living (and [roadschooling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/05/hanging-out-roa.html)) on our open ended world tour since 2006, so hoped he would add more that was specific for families, since 70% of families dream about extended travel.
 
 Can you imagine our excitement when I first got this email? "Out of more than 400 pages of submissions, Tim personally chose yours for the short-list for inclusion.  He loved it." I can't wait to get my review copy and will keep you posted!
 
@@ -54,9 +54,9 @@ She brought up some common concerns that seems to resonate with many as we talke
 
 "I'm obssesed with Europe but every one is always pushing Latin America or Asia. I'm not crazy about Third World countries and safety is always an issue. I like blending in with the crowd and not having people staring at me thinking "there goes the gringa with dollars".Your information is vital as I haven't found too many sites that promote Europe as an ideal destination for Location Independent Professionals or nomadic travelers."
 
-Here are the basics. I wrote about how to winter in Spain in our popular classic post "[How to do Extended Travel & Mini-retirements"](http://soultravelers3new.local/2008/06/how-to-do-exten.html) that is filled with links. I think Andalusia in the small villages, is the perfect combination of exotic and modern with wonderfully accepting people and fascinating culture with a rich history.
+Here are the basics. I wrote about how to winter in Spain in our popular classic post "[How to do Extended Travel & Mini-retirements"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html) that is filled with links. I think Andalusia in the small villages, is the perfect combination of exotic and modern with wonderfully accepting people and fascinating culture with a rich history.
 
-[![IMG_0891](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a68db297970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a68db297970b-150x150.jpg)  
+[![IMG_0891](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a68db297970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a68db297970b-150x150.jpg)  
 
 There are simply TONS of places available in Spain, many new with every convenience  & owned by Brits or English speaking northern Europeans who rent them out for the week in the very hot, summer high season. As much as I love it here, I wouldn't want to be here in  scorching July and August, but now that we have seen how cold, dark and rainy some of northern Europe is in those months (especially Ireland) it makes logical sense for the sun starved. Fall, winter and spring are ideal and these same furnished vacation rentals are available by the month at bargain prices!  
   

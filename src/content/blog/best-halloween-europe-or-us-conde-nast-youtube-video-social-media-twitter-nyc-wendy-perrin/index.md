@@ -24,19 +24,19 @@ Halloween better than certain
 
 ![Rockerfeller Center Autumn, halloween](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6844f49970c.jpg)  
   
-There are so many fantastic festivals in Europe, but no one knows how to do Halloween better than certain neighborhoods in the United States! We were spoiled and [lived in one](http://soultravelers3new.local/2006/08/timing-is-eve-1.html) of those neighborhoods when we lived in Santa Cruz, where Mozart was born and lived her first 5 years.  
+There are so many fantastic festivals in Europe, but no one knows how to do Halloween better than certain neighborhoods in the United States! We were spoiled and [lived in one](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/08/timing-is-eve-1.html) of those neighborhoods when we lived in Santa Cruz, where Mozart was born and lived her first 5 years.  
   
-We lived in [a country neighborhood](http://soultravelers3new.local/2006/08/home-and-hous-1.html) where each family really got into the trick or treat spirit. There was always a Halloween party (as well as Christmas and usually Easter one for the neighbors), great decorations, generous treats and even a hayride or caravan to take the kids from house to house as we all owned acreage, so the houses were far apart. Kids from other neighborhoods would even come!
+We lived in [a country neighborhood](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/08/home-and-hous-1.html) where each family really got into the trick or treat spirit. There was always a Halloween party (as well as Christmas and usually Easter one for the neighbors), great decorations, generous treats and even a hayride or caravan to take the kids from house to house as we all owned acreage, so the houses were far apart. Kids from other neighborhoods would even come!
 
   
-Halloween is just not the same in Europe. Sure, one can find a f[ew token Halloween things](http://soultravelers3new.local/2006/09/more-chocolate.html) here and there, but for the most part it is not celebrated in the same way. It certainly is not considered a special holiday and door to door old fashion trick or treating is not done at all, except possibly in a few places in the UK that have copied it from TV shows. 
+Halloween is just not the same in Europe. Sure, one can find a f[ew token Halloween things](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/more-chocolate.html) here and there, but for the most part it is not celebrated in the same way. It certainly is not considered a special holiday and door to door old fashion trick or treating is not done at all, except possibly in a few places in the UK that have copied it from TV shows. 
 
 ![IMG_4190](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a68467b8970c.jpg)  
   
   
-But our Mozart has not forgotten the joys of an American Halloween, so we have managed to make our own up whether in France, Spain or [like this celebration in Umbria, Italy](http://soultravelers3new.local/2008/03/ahhhumbria.html#more) with a costume we bought in Turkey.
+But our Mozart has not forgotten the joys of an American Halloween, so we have managed to make our own up whether in France, Spain or [like this celebration in Umbria, Italy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/03/ahhhumbria.html#more) with a costume we bought in Turkey.
 
-We will do it again this year in Barcelona with Dracula teeth, make up and blood that we got in Austria for Mozart's first scary costume for her made up "Countess Draculina". (We had been planning to get to Dracula's castle in Romania this year, but alas didn't make it due to [my bike accident on the Danube](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html) and hospitalization, but will).
+We will do it again this year in Barcelona with Dracula teeth, make up and blood that we got in Austria for Mozart's first scary costume for her made up "Countess Draculina". (We had been planning to get to Dracula's castle in Romania this year, but alas didn't make it due to [my bike accident on the Danube](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html) and hospitalization, but will).
 
 ![IMG_0625](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a62d6841970b.jpg)  
 
@@ -53,13 +53,13 @@ We couldn't have had a more perfect day, nor could there be another neighborhood
 
 ![IMG_4223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a685e176970c.jpg)  
 
-Don't ever underestimate the power of social media! I wrote about how much it has impacted our travel in our popular post ["Twitter & Travel 2.0"](http://soultravelers3new.local/2009/02/twitter-travel-20.html) and this is one of my favorite stories. Thanks to Wendy and her very talented photographer husband, Tim and their generosity, we had a very special Halloween that we will never forget! Mozart had a ball with their boys and we even met Wendy's mom, brother and all the neighbors! If the kid's had their way, this would be a yearly tradition! You can get a hint from our new video above about the joyful delight that was had by all!
+Don't ever underestimate the power of social media! I wrote about how much it has impacted our travel in our popular post ["Twitter & Travel 2.0"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/02/twitter-travel-20.html) and this is one of my favorite stories. Thanks to Wendy and her very talented photographer husband, Tim and their generosity, we had a very special Halloween that we will never forget! Mozart had a ball with their boys and we even met Wendy's mom, brother and all the neighbors! If the kid's had their way, this would be a yearly tradition! You can get a hint from our new video above about the joyful delight that was had by all!
 
 The whole day was like a fantasy come true, especially for Mozart who had been away from her home country for almost three years. She had just turned eight while visiting  Stockholm, so was the right age to remember it all and be fascinated to be re-experiencing all the joys of an American life. I lived in NYC for many years when I was young, yet had not been back in decades, so it was a bit of a homecoming for me as well.
 
 ![IMG_4197](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6331783970b.jpg)  
 
- We [started the day](http://soultravelers3new.local/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html) at the [Metropolitan Museum of Art](http://www.metmuseum.org/) which was a smart choice as it was much less crowded than usual because of the holiday and seeing amazing Egyptian mummies can be a great way to sneak a little fun [roadschooling](http://www.nunomad.com/blog/nomading-families-talk-about-life-and-education-round-table-discussion-part-i-soultravelers3/) in with a Halloween theme!
+ We [started the day](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html) at the [Metropolitan Museum of Art](http://www.metmuseum.org/) which was a smart choice as it was much less crowded than usual because of the holiday and seeing amazing Egyptian mummies can be a great way to sneak a little fun [roadschooling](http://www.nunomad.com/blog/nomading-families-talk-about-life-and-education-round-table-discussion-part-i-soultravelers3/) in with a Halloween theme!
 
 ![IMG_4281](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a6332f15970b.jpg) 
 
@@ -93,7 +93,7 @@ Much is said about the [over commercialism of Halloween](http://www.livescience.
 
 ![IMG_4481](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a63394fe970b.jpg) 
 
-[![IMG_4488](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a63395e0970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a63395e0970b-768x576.jpg) 
+[![IMG_4488](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a63395e0970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a63395e0970b-768x576.jpg) 
 
   
 ![IMG_4470](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a68a2a0c970c.jpg)  

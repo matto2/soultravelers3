@@ -22,7 +22,7 @@ healthy, organic eating
 
 <!--more--> ![adorable healthy Easter treat](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c9aaa4970b.jpg)  
   
-Happy [Easter from tropical Asia](http://soultravelers3new.local/2011/04/celebrating-easter-in-asia.html "easter in asia")! Since we are sticking to our [healthy organic eating on the road](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy organic eating while traveling"), we managed to find some fun ways to celebrate Easter with our child doing [superfood healthy treats](http://soultravelers3new.local/2008/09/how-to-eat-heal.html "superfood healthy treats").  
+Happy [Easter from tropical Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/04/celebrating-easter-in-asia.html "easter in asia")! Since we are sticking to our [healthy organic eating on the road](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "healthy organic eating while traveling"), we managed to find some fun ways to celebrate Easter with our child doing [superfood healthy treats](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/how-to-eat-heal.html "superfood healthy treats").  
   
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303d544f5970d.jpg)![organic raw chocolate fudge treat](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303d4ef4d970d.jpg)  
   
@@ -51,7 +51,7 @@ When I watch the sail boats, I day dream about our goal of learning to sail whil
   
   
   
-I must admit I do miss our [Easters in Spain](http://soultravelers3new.local/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html "easter in spain") as their "[Semana Santa](http://soultravelers3new.local/2007/03/semana-santa-in.html "semana santa")" is perhaps the best place in the world to [celebrate Easter](http://soultravelers3new.local/2007/03/semana-santa-in.html "celebrate Easter"), but we're enjoying the laid back family time. It's our 2nd Easter here and since it is an Islamic country it's not a big celebration  ( although there are quite a few Christians as well..we saw lots out with palms last Sunday).  
+I must admit I do miss our [Easters in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html "easter in spain") as their "[Semana Santa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/semana-santa-in.html "semana santa")" is perhaps the best place in the world to [celebrate Easter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/semana-santa-in.html "celebrate Easter"), but we're enjoying the laid back family time. It's our 2nd Easter here and since it is an Islamic country it's not a big celebration  ( although there are quite a few Christians as well..we saw lots out with palms last Sunday).  
   
 ![view from my kitchen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168e9ca9528970c.jpg)  
   
@@ -87,7 +87,7 @@ So much beauty everywhere..the rainbows, the moon, the food..so I am feeling ver
 ![Easter art project](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764c9fea2970b.jpg)  
   
   
-We love how our [travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "travel lifestyle") and [minimalist living ways](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist living ways"), increase our [creativity and fun](http://soultravelers3new.local/2007/02/creative-projec.html "creativity and fun"). Mozart and DaVinci are making an awesome playhouse for her playmobiles out of the box that our new desks came in. Reminds me of the huge one they did in Spain when she was 6 or the large car they made last year. More details about that later, but it's been part of our Easter week delights as we work together and Mozart happily hums along as she creates.  
+We love how our [travel lifestyle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "travel lifestyle") and [minimalist living ways](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist living ways"), increase our [creativity and fun](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/creative-projec.html "creativity and fun"). Mozart and DaVinci are making an awesome playhouse for her playmobiles out of the box that our new desks came in. Reminds me of the huge one they did in Spain when she was 6 or the large car they made last year. More details about that later, but it's been part of our Easter week delights as we work together and Mozart happily hums along as she creates.  
   
 ![making Easter gift..doll house](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016303d544f5970d.jpg)  
   

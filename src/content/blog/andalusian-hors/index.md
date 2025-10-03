@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_0408_3](http://soultravelers3new.local/images/2008/04/14/img_0408_3.png "Img_0408_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0408_3.png) Andalusian Horse Ride  
+ [![Img_0408_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0408_3.png "Img_0408_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0408_3.png) Andalusian Horse Ride  
 March 18, 2007
 
 We all thought that a three generations  
@@ -15,7 +15,7 @@ might be an exciting outing to take in the
 
 <!--more-->
 
-[![Img_0408_4](http://soultravelers3new.local/images/2008/04/14/img_0408_4.png "Img_0408_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0408_4.png)
+[![Img_0408_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0408_4.png "Img_0408_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0408_4.png)
 
 We all thought that a three generations horseback tour of the country side nearby might be an exciting outing to take in the unique views without taxing ones feet. In fact, we liked it so much that we will have Mozart join the Pony club next winter here and learn to ride.
 
@@ -31,22 +31,22 @@ The mountains here have a special appeal and continue to take my breath away at 
 
 Mozart thought it was all very cool and has now decided that she must have a horse when ever we settle down. She was very fond of  her pretty and gentle horse which was a white Andalusian named Rosey. I thought they all looked awfully cute in their riding hats and as they clip clopped away down the lane or moved about near the stables.
 
-[![Img_0373_2](http://soultravelers3new.local/images/2008/04/14/img_0373_2.png "Img_0373_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0373_2.png)
+[![Img_0373_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0373_2.png "Img_0373_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0373_2.png)
 
-[![Img_0364_2](http://soultravelers3new.local/images/2008/04/14/img_0364_2.png "Img_0364_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0364_2.png)
+[![Img_0364_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0364_2.png "Img_0364_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0364_2.png)
 
-[![Img_0369_2](http://soultravelers3new.local/images/2008/04/14/img_0369_2.png "Img_0369_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0369_2.png)
+[![Img_0369_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0369_2.png "Img_0369_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0369_2.png)
 
-[![Img_0410_2](http://soultravelers3new.local/images/2008/04/14/img_0410_2.png "Img_0410_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0410_2.png)
+[![Img_0410_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0410_2.png "Img_0410_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0410_2.png)
 
-[![Img_0384](http://soultravelers3new.local/images/2008/04/14/img_0384.png "Img_0384")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0384.png)
+[![Img_0384](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0384.png "Img_0384")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0384.png)
 
-[![Img_0389](http://soultravelers3new.local/images/2008/04/14/img_0389.png "Img_0389")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0389.png)
+[![Img_0389](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0389.png "Img_0389")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0389.png)
 
-[![Img_0379](http://soultravelers3new.local/images/2008/04/14/img_0379.png "Img_0379")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0379.png)
+[![Img_0379](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0379.png "Img_0379")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0379.png)
 
-[![Img_0385](http://soultravelers3new.local/images/2008/04/14/img_0385.png "Img_0385")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0385.png)
+[![Img_0385](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0385.png "Img_0385")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0385.png)
 
-[![Img_0396](http://soultravelers3new.local/images/2008/04/14/img_0396.png "Img_0396")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0396.png)
+[![Img_0396](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0396.png "Img_0396")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0396.png)
 
-[![Img_0411](http://soultravelers3new.local/images/2008/04/14/img_0411.png "Img_0411")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0411.png)
+[![Img_0411](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0411.png "Img_0411")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0411.png)

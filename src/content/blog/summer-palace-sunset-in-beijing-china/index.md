@@ -27,6 +27,6 @@ Asian pagoda, oriental bridges,
   
 Ancient temple buildings, old Chinese willow trees, Asian pagoda, oriental bridges, plus colorful dragon boats on the huge, misty lake with an orange sunset reflected in the still water, makes strolling the 290-acre Summer Palace grounds a magical, relaxing and invigorating experience.  
   
-One of our favorite spots during our [travel to China](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "travel to China") and [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "Beijing vacation") has been visiting this UNESCO World Heritage site, the [Summer Palace](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "visiting summer palace"), that was once a summer retreat for Emperors.  
+One of our favorite spots during our [travel to China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/visiting-china-and-dragons.html "travel to China") and [Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/forbidden-city-and-beijings-best.html "Beijing vacation") has been visiting this UNESCO World Heritage site, the [Summer Palace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/china-travel-in-the-autumn.html "visiting summer palace"), that was once a summer retreat for Emperors.  
   
 Have you visited or is it on your list?

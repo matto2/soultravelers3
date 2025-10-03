@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
- [![IMG_0073_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570443f44970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a95078833011570443f44970c.jpg) Happy Father's Day Traveling Dads!  
+ [![IMG_0073_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570443f44970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a95078833011570443f44970c.jpg) Happy Father's Day Traveling Dads!  
 June 21, 2009
 
 This American holiday greets us on a  
@@ -52,7 +52,7 @@ _California, USA_
 
 We l[ike how Sweden and Scandinavian countries](http://family.jrank.org/pages/611/Family-Values-Cross-Cultural-Comparison-Pro-Family-Policies.html) support families by allowing them time off when children are small ( and other times). They've learned that helps their societies, but it's different in the U.S. where people are lucky if they get a week or two off a year and even days off to care for a sick child are frowned upon.
 
-[![Img_7819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115713987ee970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330115713987ee970b-300x226.jpg)
+[![Img_7819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115713987ee970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330115713987ee970b-300x226.jpg)
 
 _Greece_  
 
@@ -89,7 +89,7 @@ _Barcelona, Spain_
 
 "An involved father figure reads to his child, takes outings with his child, is interested in his child's education, and takes a role equal to the mother's in managing his child." [Children with this type of dad](http://www.parents.com/family-life/better-parenting/parenting-style/the-role-of-fathers-with-daughters-and-sons/) were more likely to get good grades in school, she found.
 
-[![Img_3649](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157139aa49970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301157139aa49970b-300x226.jpg)
+[![Img_3649](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157139aa49970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301157139aa49970b-300x226.jpg)
 
 _Morocco_
 
@@ -112,7 +112,7 @@ _France_
 
 We could never take this world  journey without DaVinci. We each play an important role and I want to take this opportunity to salute him for all that he has sacrificed, for all that he shares. He is not one to write on the blog, nor is he one to toot his own horn (which I sometimes am).
 
-[![Img_5353](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115704480c7970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330115704480c7970c-300x226.jpg)
+[![Img_5353](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115704480c7970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330115704480c7970c-300x226.jpg)
 
 _Greece_  
 
@@ -147,6 +147,6 @@ Happy Father's Day to all the traveling dad's out there! We won't be sending any
 
 _Norway_
 
-[![Img_1839](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157139b01a970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301157139b01a970b-150x150.jpg)
+[![Img_1839](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157139b01a970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301157139b01a970b-150x150.jpg)
 
 _Left Bank, Paris, France_

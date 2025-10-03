@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_1237](http://soultravelers3new.local/images/2008/04/30/img_1237.png "Img_1237")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1237.png) RSS feed & onto France  
+ [![Img_1237](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1237.png "Img_1237")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1237.png) RSS feed & onto France  
 September 22, 2006
 
 We are still having trouble with our RSS  
@@ -15,14 +15,14 @@ those things on our blog once we get to Spain
 
 <!--more-->
 
-[![Img_1237_2](http://soultravelers3new.local/images/2008/04/30/img_1237_2.png "Img_1237_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1237_2.png)
+[![Img_1237_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1237_2.png "Img_1237_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1237_2.png)
 
 We are still having trouble with our RSS feed and comments, but hope to tweak those things on our blog once we get to Spain if not before. I heard from a very helpful person reading this blog that she found a way to get the RSS feed. She wrote me an email thru bootsnall and is clearly very tech savvy, certainly lots more than we are.
 
 Here is what she said;
 
 What it should be :  
-http://soultravelers3new.local/blog/rss.xml
+https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/blog/rss.xml
 
 Hopefully that makes sense to some which will allow you to make the change and get the RSS feed. We  
 also tried to fix that on our end, but it does not seem like it worked. Once we have more regular internet connection time in southern Spain at our base, we will hopefully be able to work these things out.
@@ -59,4 +59,4 @@ We are also very heavy (Rene at B&W commented on that) so not sure how much that
 
 But mostly it was a pretty fun trip to Paris. We were driving along listening to and singing along with some Beatle songs at one point, thinking this is the life!
 
-[![Img_1239](http://soultravelers3new.local/images/2008/04/30/img_1239.png "Img_1239")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1239.png)
+[![Img_1239](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1239.png "Img_1239")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1239.png)

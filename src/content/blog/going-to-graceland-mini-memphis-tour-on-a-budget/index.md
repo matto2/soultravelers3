@@ -34,7 +34,7 @@ Tennessee? 
 <!--more--> ![Going to Graceland - Mini Memphis Tour on a Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8e3ab07970b.png)  
   
 
-Have you been to Graceland, the home of Elvis Presley in Memphis, Tennessee? Having a child like [Mozart](http://soultravelers3new.local/2014/10/mozart-sings-at-the-house-of-blues.html "Mozart sings at House of Blues") who is a [musician who plays 5 instruments](http://soultravelers3new.local/2015/03/challenges-of-parenting-a-muscially-talented-child.html "raising a musician "), we couldn't resist adding this destination to our [road trip across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html "road trip across the USA"). She had just won her [High Honors Award from Johns Hopkins University CTY](http://soultravelers3new.local/2015/09/mozart-wins-high-honors-award-from-johns-hopkins-university.html "High Honors Award CTY") and we could easily add Memphis to our itinerary, so dared not miss it.   
+Have you been to Graceland, the home of Elvis Presley in Memphis, Tennessee? Having a child like [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/10/mozart-sings-at-the-house-of-blues.html "Mozart sings at House of Blues") who is a [musician who plays 5 instruments](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/03/challenges-of-parenting-a-muscially-talented-child.html "raising a musician "), we couldn't resist adding this destination to our [road trip across America](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/07/road-trip-across-america.html "road trip across the USA"). She had just won her [High Honors Award from Johns Hopkins University CTY](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/09/mozart-wins-high-honors-award-from-johns-hopkins-university.html "High Honors Award CTY") and we could easily add Memphis to our itinerary, so dared not miss it.   
   
 ![Going to Graceland - Mini Memphis Tour on a Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d26e0d74970c.png)  
   
@@ -115,8 +115,3 @@ Even if you have a short stay, do make it to Graceland if it is ever on your pat
 
 Related articles
 
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)

@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2590](http://soultravelers3new.local/images/2008/04/27/img_2590.png "Img_2590")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2590.png) The Heart of Burgundy  
+ [![Img_2590](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2590.png "Img_2590")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2590.png) The Heart of Burgundy  
 October 10, 2006
 
 First, a big happy birthday hug to my  
@@ -15,7 +15,7 @@ surrounded by endless Pinot Noir vineyards 
 
 <!--more-->
 
-[![Img_2590_2](http://soultravelers3new.local/images/2008/04/27/img_2590_2.png "Img_2590_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2590_2.png)
+[![Img_2590_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2590_2.png "Img_2590_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2590_2.png)
 
 First, a big happy birthday hug to my sister Julia! We woke up on this fine day surrounded by endless Pinot Noir vineyards as far as the eye can see. I have never seen so much Pinot, so that alone would make it fascinating, but we were also all alone in a large charming campsite so it was so peaceful and inspiring.
 
@@ -31,24 +31,24 @@ Next we headed to Hotel-Dieu which literally means house of God and it is a must
 
 We ended with another great Burgundy dinner splurge nearby. This time Mozart tried the escargot, but loved her chicken in white sauce much better. All of it was scrumptious which is not too surprising as Beaune is known for its food and wine. DaVinci finally got his Burgundy traditional stew which was mouthwateringly good. Burgundy is also known for its beef as the Charolles region produces the finest breed of cattle in France, the white Charollais (that we have seen along the road grazing). So I also had some beef Burgundy style which was great, but it was my  gratin  potatoes that stole my heart. The wine was sublime needless to say and fun that we had viewed the very vineyard it came from as well as tasted it in a local tasting room. Another good day in Burgundy ends with a taxi ride home and three satisfied customers.
 
-[![Img_2525](http://soultravelers3new.local/images/2008/04/27/img_2525.png "Img_2525")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2525.png)
+[![Img_2525](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2525.png "Img_2525")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2525.png)
 
-[![Img_2538](http://soultravelers3new.local/images/2008/04/27/img_2538.png "Img_2538")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2538.png)
+[![Img_2538](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2538.png "Img_2538")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2538.png)
 
-[![Img_2612](http://soultravelers3new.local/images/2008/04/27/img_2612.png "Img_2612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2612.png)
+[![Img_2612](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2612.png "Img_2612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2612.png)
 
-[![Img_2601](http://soultravelers3new.local/images/2008/04/27/img_2601.png "Img_2601")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2601.png)
+[![Img_2601](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2601.png "Img_2601")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2601.png)
 
-[![Img_2660](http://soultravelers3new.local/images/2008/04/27/img_2660.png "Img_2660")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2660.png)
+[![Img_2660](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2660.png "Img_2660")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2660.png)
 
-[![Img_2651](http://soultravelers3new.local/images/2008/04/27/img_2651.png "Img_2651")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2651.png)
+[![Img_2651](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2651.png "Img_2651")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2651.png)
 
-[![Img_2683](http://soultravelers3new.local/images/2008/04/27/img_2683.png "Img_2683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2683.png)
+[![Img_2683](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2683.png "Img_2683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2683.png)
 
-[![Img_2665](http://soultravelers3new.local/images/2008/04/27/img_2665.png "Img_2665")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2665.png)
+[![Img_2665](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2665.png "Img_2665")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2665.png)
 
-[![Img_2710](http://soultravelers3new.local/images/2008/04/27/img_2710.png "Img_2710")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2710.png)
+[![Img_2710](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2710.png "Img_2710")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2710.png)
 
-[![Img_2712](http://soultravelers3new.local/images/2008/04/27/img_2712.png "Img_2712")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2712.png)
+[![Img_2712](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2712.png "Img_2712")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2712.png)
 
-[![Img_2729](http://soultravelers3new.local/images/2008/04/27/img_2729.png "Img_2729")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2729.png)
+[![Img_2729](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2729.png "Img_2729")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2729.png)

@@ -4,12 +4,12 @@ date: 2012-05-10
 draft: true
 ---
 
-[![IMG_1335](https://soultravelers3.typepad.com/.a/6a00e5502a95078833017744532f2a970d-200wi "IMG_1335")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017744532f2a970d-pi)How to Raise a Math Lover  
+[![IMG_1335](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744532f2a970d.jpg "IMG_1335")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744532f2a970d.jpg-pi)How to Raise a Math Lover  
   
   
   
 
-<!--more--> [![IMG_1335](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c3175b8a3970b-800wi "IMG_1335")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c3175b8a3970b-pi)  
+<!--more--> [![IMG_1335](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3175b8a3970b.jpg "IMG_1335")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3175b8a3970b.jpg-pi)  
   
 Do your kids love math? I think parental influence makes a huge difference in things like reading, math and sciences and [many studies](http://www.sciencedaily.com/releases/2008/05/080527123852.htm "studies show parental influences child's education") show that.  I think it is a good sign, when your kid makes a heart on her math notebook on her own violition, so this made me smile.  
   

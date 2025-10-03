@@ -31,7 +31,7 @@ to Spain and our gorgeous white village 
 
 <!--more--> ![ Most Beautiful Village in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c9239e3f970b.png)  
   
-One of the joys of our [mother-daughter](http://soultravelers3new.local/2017/08/best-mother-daughter-trip-life-changing-adventures.html#more "Mother-Daughter trip tips") [European trip](http://soultravelers3new.local/2017/05/best-of-europe-summer-trip-.html#more "Europe trip tips") this summer, was returning to [Spain](http://soultravelers3new.local/2014/10/what-to-do-in-spain-the-ultimate-checklist.html "Spain travel tips") and our [gorgeous white village](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to winter in Spain") where [Mozart](http://soultravelers3new.local/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html "Mozart Dee singer/actress concert tour in Europe") went to [school](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html "learning Spanish in Spain") for five months in the winters from [first through fourth grade](http://soultravelers3new.local/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "Mozart Dee schooling in Spain").   
+One of the joys of our [mother-daughter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/08/best-mother-daughter-trip-life-changing-adventures.html#more "Mother-Daughter trip tips") [European trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/05/best-of-europe-summer-trip-.html#more "Europe trip tips") this summer, was returning to [Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/10/what-to-do-in-spain-the-ultimate-checklist.html "Spain travel tips") and our [gorgeous white village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to winter in Spain") where [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html "Mozart Dee singer/actress concert tour in Europe") went to [school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/05/learning-spanish-in-spain.html "learning Spanish in Spain") for five months in the winters from [first through fourth grade](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/schools-out-forever-expat-immersion-spanish-in-spain-digital-nomad-education-for-kids-who-travel.html "Mozart Dee schooling in Spain").   
   
 ![Back to the Most Beautiful Village in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09c6c608970d.png)  
   
@@ -83,7 +83,7 @@ Life goes at a very different pace in a little village in Spain than it does in 
   
 ![Back to the Most Beautiful Village in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c9239ed8970b.png)  
   
- Beautiful Andalusian horses and some with wagons are still daily parts of village life in Spain as you can see looking down on the one paved road that circles around the town. It is still a farming village for many, so seeing sheep, [oxen](http://soultravelers3new.local/2010/04/family-travel-photo-spain-around-the-world-travel-ox-traditional-white-village-expat-lifestyle.html "Ox in Frigiliana white village spain ") and horses from nearby farms is nothing out of the ordinary.   
+ Beautiful Andalusian horses and some with wagons are still daily parts of village life in Spain as you can see looking down on the one paved road that circles around the town. It is still a farming village for many, so seeing sheep, [oxen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-photo-spain-around-the-world-travel-ox-traditional-white-village-expat-lifestyle.html "Ox in Frigiliana white village spain ") and horses from nearby farms is nothing out of the ordinary.   
   
 ![ Most Beautiful Village in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d2adfd50970c.png)  
   
@@ -100,10 +100,3 @@ There are record amounts of  wonderful restaurants with all kinds of food and s
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)
-
-[![](http://i.zemanta.com/AV5dUUV0Gs7FVMRNfAIa_80_80.jpg)](http://soultravelers3new.local/2017/09/visit-edinburgh-at-fringe-festival-or-not-.html)[Visit Edinburgh at Fringe Festival or Not - Soul Travelers 3](http://soultravelers3new.local/2017/09/visit-edinburgh-at-fringe-festival-or-not-.html)

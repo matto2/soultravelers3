@@ -40,7 +40,7 @@ at the Global Education Conference
 <!--more-->  
 ![global kid, linguist, speaker GEC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b021d2f68970c.png)  
   
-Our [most well-traveled](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled"), [trilingual child](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html "growing up trilingual") is presenting this week at the [Global Education Conference](http://www.globaleducationconference.com/ "global education conference") about what it is like to be a ["world schooled"](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school") pioneer and using the planet as your classroom...literally! Having [spent the last 8 years](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "traveling 8 years"), (all of her primary school years) [traveling the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "traveling the world") ( 45 countries on 5 continents so far) and becoming [fluent in Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in Mandarin") and [Spanish](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best tutor for Spanish"), she has much to offer about the experiential value of becoming a [global citizen](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html "global citizen") early in life.  
+Our [most well-traveled](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled"), [trilingual child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/04/growing-up-bilingual-or-trilingual.html "growing up trilingual") is presenting this week at the [Global Education Conference](http://www.globaleducationconference.com/ "global education conference") about what it is like to be a ["world schooled"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "world school") pioneer and using the planet as your classroom...literally! Having [spent the last 8 years](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "traveling 8 years"), (all of her primary school years) [traveling the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "traveling the world") ( 45 countries on 5 continents so far) and becoming [fluent in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/fluent-mandarin.html "fluent in Mandarin") and [Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best tutor for Spanish"), she has much to offer about the experiential value of becoming a [global citizen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/05/global-citizens-spanish-and-mandarin-immersion.html "global citizen") early in life.  
   
 
 <iframe allowfullscreen frameborder="0" height="360" src="//www.youtube.com/embed/fmxDXuFyY94?list=UUcMwuQFsEJfOct29ZTa0v8w" width="640"></iframe>
@@ -97,22 +97,3 @@ Looking forward to this exciting adventure and meeting you in this new medium fo
 
 Related articles
 
-[![](http://i.zemanta.com/97268419_80_80.jpg)](http://soultravelers3new.local/2012/06/nomadic-lifestyle-with-children-.html)[Nomadic Lifestyle With Children](http://soultravelers3new.local/2012/06/nomadic-lifestyle-with-children-.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/87228096_80_80.jpg)](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)[Global Citizens = Spanish and Mandarin Immersion](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)
-
-[![](http://i.zemanta.com/187506935_80_80.jpg)](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)[Bilingual Baby - Learning Spanish as 2nd Language](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)
-
-[![](http://i.zemanta.com/203013559_80_80.jpg)](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html)[Tween is a Talented Singer/ Songwriter](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html)
-
-[![](http://i.zemanta.com/111536966_80_80.jpg)](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)[How to Homeschool Through Travel With a Gifted Child](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)
-
-[![](http://i.zemanta.com/168450990_80_80.jpg)](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)[Learning Spanish in Spain](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)
-
-[![](http://i.zemanta.com/198782571_80_80.jpg)](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html)[Why Travel With Kids? Kid Traveling the World for 8 Years Tells!](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/215357708_80_80.jpg)](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html)[Best Chocolate Cake Recipe Ever and it's Paleo Healthy Grain Free](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html)

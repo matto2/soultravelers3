@@ -53,14 +53,14 @@ Heavenly Reyna was called a
 We always had sunflowers and sun in the home she grew up in deep in the Santa Cruz mountains as you can see in the photo above. She is playing in the herb garden next to the house and the sunflowers and vineyard are behind them and the house is to the right, but not seen.   
   
 ![france sunflowers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833025d9b356aae200c.jpg)  
-We also always seem to run into sunflowers often on our world travels like above in rural [France](http://soultravelers3new.local/2012/09/europe-road-trip-a-drive-through-france-provence-to-dordogne-via-photos-family-travel.html "road trip France ") or below in [Germany](http://soultravelers3new.local/2009/05/family-travel-photo-germany-romantic-road.html "road trip Germany") and [Portugal](http://soultravelers3new.local/2010/07/family-travel-portugal-algave-europe-road-trip-sunflowers.html "Road trip Portugal, sunflowers").   
+We also always seem to run into sunflowers often on our world travels like above in rural [France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/europe-road-trip-a-drive-through-france-provence-to-dordogne-via-photos-family-travel.html "road trip France ") or below in [Germany](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/05/family-travel-photo-germany-romantic-road.html "road trip Germany") and [Portugal](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/family-travel-portugal-algave-europe-road-trip-sunflowers.html "Road trip Portugal, sunflowers").   
   
 ![germany sunflowers ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a50f9d0e200b.jpg)  
   
 
 ![Portugal sunflowers ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a50f9d1b200b.jpg)
 
-If there are sunflowers around, [Heavenly](https://www.linkedin.com/in/heavenlyreyna/ "Heavenly Reyna ") will find them, like she did when she did her [10 city Ignite solo tour in Europe.](http://soultravelers3new.local/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html "Heavenly Reyna 10 city Europe solo tour ")   
+If there are sunflowers around, [Heavenly](https://www.linkedin.com/in/heavenlyreyna/ "Heavenly Reyna ") will find them, like she did when she did her [10 city Ignite solo tour in Europe.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html "Heavenly Reyna 10 city Europe solo tour ")   
   
 ![Heavenly Reyna on 10 city European solo tour ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a50f9fd5200b.png)
 

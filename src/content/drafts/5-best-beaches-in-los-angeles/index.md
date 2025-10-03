@@ -32,6 +32,3 @@ MALIBU SECRET BEACHES 
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/338454533_80_80.jpg)](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)[B.madebybebe Gives Teen Singer Mozart Glamour Makeup & Hair!](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)

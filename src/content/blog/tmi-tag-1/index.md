@@ -36,7 +36,7 @@ on Youtube, vlogging her entertaining
 <!--more-->
 
 ![TMI Tag! Youtuber Mozart tells all!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c26970b.png)  
-[Trilingual teen Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html#more "trilingual teen Mozart public speaker") answers the TMI Tag ( too much information) on [Youtube](http://www.youtube.com/user/soultravelers3 "youtube soultravelers3"), vlogging her entertaining take to this popular and fun "beauty guru" youtuber tag because many of you have wanted more information, so this seemed like a cool one to do.  
+[Trilingual teen Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html#more "trilingual teen Mozart public speaker") answers the TMI Tag ( too much information) on [Youtube](http://www.youtube.com/user/soultravelers3 "youtube soultravelers3"), vlogging her entertaining take to this popular and fun "beauty guru" youtuber tag because many of you have wanted more information, so this seemed like a cool one to do.  
   
 Fears, TV shows, Boyfriend? ...and more!  
   
@@ -50,7 +50,7 @@ Mozart had a blast making it,so we hope you enjoy it!  She did it in one take s
 ![RTW Travel teen singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c35970b.png)  
   
   
-Thanks to her [first vlog](http://www.youtube.com/watch?v=un95ND8Uasc "Mozart's first Vlog about Shopping in Mandarin in China"), ( and much to our surprise) Mozart got asked to be the youngest backstage and runway reporter for [New York Fashion Week](http://www.newyorkfashionweek.buzz/ "New York Fashion Week with Mozart as youngest reporter") with some amazing opportunities!! Stay tuned for news/video about that, a big GiveAway and upcoming EPIC road trip from [Dallas](http://soultravelers3new.local/2014/02/dallas-luxury-resort-arriving-to-big-d-in-style.html "dallas travel") to the [Big Apple](http://soultravelers3new.local/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "NYC travel")!  
+Thanks to her [first vlog](http://www.youtube.com/watch?v=un95ND8Uasc "Mozart's first Vlog about Shopping in Mandarin in China"), ( and much to our surprise) Mozart got asked to be the youngest backstage and runway reporter for [New York Fashion Week](http://www.newyorkfashionweek.buzz/ "New York Fashion Week with Mozart as youngest reporter") with some amazing opportunities!! Stay tuned for news/video about that, a big GiveAway and upcoming EPIC road trip from [Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/dallas-luxury-resort-arriving-to-big-d-in-style.html "dallas travel") to the [Big Apple](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "NYC travel")!  
   
 ![TMI Tag done by travel teen and singer Mozart on Youtube](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6d64c3b970b.png)  
   
@@ -113,22 +113,3 @@ September is starting out with a bang for us! We hope your fall is off to a gran
 
 Related articles
 
-[![](http://i.zemanta.com/255447587_80_80.jpg)](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)[Mozart - Beautiful Teen Singer, Songwriter, Musician](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)
-
-[![](http://i.zemanta.com/292621390_80_80.jpg)](http://soultravelers3new.local/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html)[Mozart's 1st Vlog - Teen Beauty Guru, Fashion & Bargaining in China in Mandarin](http://soultravelers3new.local/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html)
-
-[![](http://i.zemanta.com/290089499_80_80.jpg)](http://soultravelers3new.local/2014/08/cute-teen-clothes-shopping-haul.html)[Cute Teen Clothes Shopping Haul](http://soultravelers3new.local/2014/08/cute-teen-clothes-shopping-haul.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/280595458_80_80.jpg)](http://soultravelers3new.local/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html)[Mozart Sings "Everything We Are "- (Original Song) Supporting Environment](http://soultravelers3new.local/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html)
-
-[![](http://i.zemanta.com/276672350_80_80.jpg)](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html)[Wings! Mozart Rocks Little Mix and Looks/Sings Like a Pop Star!](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html)
-
-[![](http://i.zemanta.com/261912623_80_80.jpg)](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)[World as my Middle School - The Atlantic & Soultravelers3](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)
-
-[![](http://i.zemanta.com/281968163_80_80.jpg)](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)[Demi Lovato, Dianna De La Garza, Singing and Mozart's SAT Score!](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)
-
-[![](http://i.zemanta.com/239455677_80_80.jpg)](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)[Mozart Meeting Soultravelers3 Blog Readers Around the World](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)
-
-[![](http://i.zemanta.com/284160813_80_80.jpg)](http://soultravelers3new.local/2014/07/makeup-artist-terri-tomlinson-gives-mozart-pop-star-look.html)[Makeup Artist Terri Tomlinson Gives Mozart Pop-Star Look](http://soultravelers3new.local/2014/07/makeup-artist-terri-tomlinson-gives-mozart-pop-star-look.html)

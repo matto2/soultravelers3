@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_6200](http://soultravelers3new.local/images/2008/04/14/img_6200.png "Img_6200")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_6200.png) Home Sweet Home  
+ [![Img_6200](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_6200.png "Img_6200")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_6200.png) Home Sweet Home  
 March 16, 2007
 
 It was a shock to drive to our village, get  
@@ -15,7 +15,7 @@ open to the air! We were a little confused
 
 <!--more-->
 
-[![Img_6200_2](http://soultravelers3new.local/images/2008/04/14/img_6200_2.png "Img_6200_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_6200_2.png)
+[![Img_6200_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_6200_2.png "Img_6200_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_6200_2.png)
 
   
 It was a shock to drive to our village, get to our house and see our front window wide open to the air! We were a little confused and dumbfounded, so opened the doors and found one big mess. We later found out that there had been over 110 kilometer winds that wrecked some havoc in the village including some at our house. It had blown the windows and shutters right open letting all kinds of dust and debris in.
@@ -36,20 +36,20 @@ It is mostly a summer rental, so going from two adults and one child to five adu
 
 A friend’s mother recently injured herself falling when going to the bathroom in the middle of the night while in India, so that was uppermost on my mind. We have knocked our own heads going thru the tiny 15th century door to the second bedroom and there is a large step down, plus two more up and down to get to the bathroom. The stairs up to the bedroom area is ancient and steep with a handrail that is purely decorative. Not the ideal space for our seniors. We decided to leave a light on all night to make it a  little easier. Things looked better in the morning after some rest as they usually do.
 
-[![Img_0516](http://soultravelers3new.local/images/2008/04/14/img_0516.png "Img_0516")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0516.png)
+[![Img_0516](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0516.png "Img_0516")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0516.png)
 
-[![Img_0342](http://soultravelers3new.local/images/2008/04/14/img_0342.png "Img_0342")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0342.png)
+[![Img_0342](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0342.png "Img_0342")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0342.png)
 
-[![Img_1324](http://soultravelers3new.local/images/2008/04/14/img_1324.png "Img_1324")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1324.png)
+[![Img_1324](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_1324.png "Img_1324")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1324.png)
 
-[![Img_0295](http://soultravelers3new.local/images/2008/04/14/img_0295.png "Img_0295")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0295.png)
+[![Img_0295](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0295.png "Img_0295")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0295.png)
 
-[![Img_0296](http://soultravelers3new.local/images/2008/04/14/img_0296.png "Img_0296")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0296.png)
+[![Img_0296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0296.png "Img_0296")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0296.png)
 
-[![Img_0309](http://soultravelers3new.local/images/2008/04/14/img_0309.png "Img_0309")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0309.png)
+[![Img_0309](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0309.png "Img_0309")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0309.png)
 
-[![Img_0324](http://soultravelers3new.local/images/2008/04/14/img_0324.png "Img_0324")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0324.png)
+[![Img_0324](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0324.png "Img_0324")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0324.png)
 
-[![Img_1327](http://soultravelers3new.local/images/2008/04/14/img_1327.png "Img_1327")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1327.png)
+[![Img_1327](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_1327.png "Img_1327")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1327.png)
 
-[![Img_1332](http://soultravelers3new.local/images/2008/04/14/img_1332.png "Img_1332")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1332.png)
+[![Img_1332](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_1332.png "Img_1332")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1332.png)

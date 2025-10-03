@@ -18,7 +18,7 @@ tags:
   - "world-celebrations"
 ---
 
- [![IMG_1330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287690d777970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301287690d777970c-300x225.jpg) Happy New Year, Nochevieja from Spain!  
+ [![IMG_1330](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287690d777970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301287690d777970c-300x225.jpg) Happy New Year, Nochevieja from Spain!  
 December 31, 2009
 
 Family travel in Spain is stupendous  
@@ -29,13 +29,13 @@ families and every age in their festivals
 
 ![New Year's Eve Spain Cava grapes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287690d866970c.jpg)
 
-Family travel in Spain is stupendous because they embrace children, families and every age in their [festivals](http://soultravelers3new.local/2008/05/joys-of-the-roa.html) and [celebrations](http://www.lonelyplanet.com/spain). I love how the [culture](http://soultravelers3new.local/2007/02/village-people.html#more) includes [everyone in the community](http://soultravelers3new.local/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html) during [festivals from the oldest to the youngest](http://soultravelers3new.local/2007/02/carnival-espana.html#more) and visitors are welcome to participate!
+Family travel in Spain is stupendous because they embrace children, families and every age in their [festivals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/joys-of-the-roa.html) and [celebrations](http://www.lonelyplanet.com/spain). I love how the [culture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/village-people.html#more) includes [everyone in the community](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html) during [festivals from the oldest to the youngest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/carnival-espana.html#more) and visitors are welcome to participate!
 
-[New Year's Eve i](http://en.wikipedia.org/wiki/New_Year%27s_Eve)s no exception, so we [have](http://www.winesfromspain.com/icex/cda/controller/pageGen/0,3346,1549487_4938357_4938860_0_-1,00.html) our [traditional Cava](http://spainforvisitors.com/archive/features/cava.htm) and grapes already and Mozart can hardly wait to run around the [church plaza with all her friends](http://soultravelers3new.local/2007/02/happy-new-year.html) with the dazzling fireworks and music adding to the magic.
+[New Year's Eve i](http://en.wikipedia.org/wiki/New_Year%27s_Eve)s no exception, so we [have](http://www.winesfromspain.com/icex/cda/controller/pageGen/0,3346,1549487_4938357_4938860_0_-1,00.html) our [traditional Cava](http://spainforvisitors.com/archive/features/cava.htm) and grapes already and Mozart can hardly wait to run around the [church plaza with all her friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/happy-new-year.html) with the dazzling fireworks and music adding to the magic.
 
 [The custom](http://www.infoplease.com/spot/newyearcelebrations.html) is to eat 12 grapes, one with each strike of the clock to ensure good luck, but since this is not easy to do in 12 seconds, it results in lots of laughter! A local told us the first year that peeling the grapes is an important key.
 
-Locals and [travelers alike](http://soultravelers3new.local/2008/04/flamenco.html#more), will be [dancing flamenco](http://soultravelers3new.local/2007/03/flamenco-in-sev.html) and [sevillanas](http://www.andalucia.com/flamenco/sevillana.htm)  all night long. Our extrovert Mozart could probably stay all night, but we usually do an abbreviated stay as her parents are homebodies and introverted, so along with being a part of the fun, we like some quiet, reflective time.
+Locals and [travelers alike](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/flamenco.html#more), will be [dancing flamenco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/flamenco-in-sev.html) and [sevillanas](http://www.andalucia.com/flamenco/sevillana.htm)  all night long. Our extrovert Mozart could probably stay all night, but we usually do an abbreviated stay as her parents are homebodies and introverted, so along with being a part of the fun, we like some quiet, reflective time.
 
  **WISHING ALL OF YOU AN EXQUISITE 2010!!**
 

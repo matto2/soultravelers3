@@ -3,7 +3,7 @@ title: "Halelujah! Satellites Up!"
 date: 2006-11-21
 ---
 
- [![Img_4567](http://soultravelers3new.local/images/2008/04/22/img_4567.png "Img_4567")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4567.png) Halelujah! Satellites Up!  
+ [![Img_4567](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4567.png "Img_4567")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4567.png) Halelujah! Satellites Up!  
 November 21, 2006
 
 Finally, an answer to our prayer....we  
@@ -12,7 +12,7 @@ ones! There are very few low priced,
 
 <!--more-->
 
-[![Img_4567_2](http://soultravelers3new.local/images/2008/04/22/img_4567_2.png "Img_4567_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4567_2.png)
+[![Img_4567_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4567_2.png "Img_4567_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4567_2.png)
 
 Finally, an answer to our prayer....we are connected to the world and our loved ones! There are very few low priced, mobile means to have 24/7 connection to the internet and we have already discovered that the lack of wifi and internet cafes in Europe when and where you want them and their many limitations are just not good enough for what we need. We had read about it going into this trip, but figured we could make due until we got to Spain. The lack of connection has been the one and only thing that has driven us a little nuts, so we are thrilled to be connected again. It is like coming up for a breath of fresh air after being under water for a very long time.
 
@@ -49,4 +49,4 @@ They said that he said he would be home in the morning, but he wasn’t. I decid
 
 The good news is we found the problem with the satellite and it was on the providers end and was corrected thru the hub. The bad news was that the installer had some how “smoked” (yes it literally smoked) our new router and its converter with the Spanish electricity which we needed to connect/network our two laptops. So the challenges continued as we needed to find an alternative way to do this as soon as possible. But at least we have one hooked up and are feeling blessed and grateful to have that and connection to our family and friends around the world again.
 
-[![Img_4565](http://soultravelers3new.local/images/2008/04/22/img_4565.png "Img_4565")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4565.png)
+[![Img_4565](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4565.png "Img_4565")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4565.png)

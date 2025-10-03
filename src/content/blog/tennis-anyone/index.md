@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
- [![Img_0228](http://soultravelers3new.local/images/2008/06/22/img_0228.jpg "Img_0228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0228.jpg) Tennis Anyone?  
+ [![Img_0228](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0228.jpg "Img_0228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0228.jpg) Tennis Anyone?  
 June 22, 2008
 
 We found a great tennis teacher at this  
@@ -17,7 +17,7 @@ five euros for an hour), so we decided it
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0228_2.jpg)
 
-[![Img_0228_3](http://soultravelers3new.local/images/2008/06/22/img_0228_3.jpg "Img_0228_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0228_3.jpg)
+[![Img_0228_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0228_3.jpg "Img_0228_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0228_3.jpg)
 
 We found a great tennis teacher at this Campsite in Olhao  (at only five euros for an hour), so we decided it was a good opportunity for Mozart to take her first tennis lesson. I always have a little conflict on how to handle sports with Mozart who is very naturally athletic. We do not like to fill her time up too full when we are in Spain, so feel that violin, piano and flamenco classes are enough extra curricula activities. Thus  even though she is a very sporty kid and there are lots of opportunities in the winter in Spain, she does not do any classes, since I think free time is a very important thing to add in, especially with a school schedule.
 
@@ -33,20 +33,20 @@ So we have no answers to this yet and just muddle our way through it as most par
 
 This teacher, Paulo, was terrific  and knew how to make it a lot of fun. There were two twins from Russia in the class too who Mozart also enjoyed. So Mozart is off to a good start and we will see how it goes. Remember the photos can be seen larger if you just click on them.
 
-[![Img_0155](http://soultravelers3new.local/images/2008/06/22/img_0155.jpg "Img_0155")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0155.jpg)
+[![Img_0155](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0155.jpg "Img_0155")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0155.jpg)
 
-[![Img_0154](http://soultravelers3new.local/images/2008/06/22/img_0154.jpg "Img_0154")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0154.jpg)
+[![Img_0154](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0154.jpg "Img_0154")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0154.jpg)
 
-[![Img_0176](http://soultravelers3new.local/images/2008/06/22/img_0176.jpg "Img_0176")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0176.jpg)
+[![Img_0176](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0176.jpg "Img_0176")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0176.jpg)
 
-[![Img_0168](http://soultravelers3new.local/images/2008/06/22/img_0168.jpg "Img_0168")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0168.jpg)
+[![Img_0168](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0168.jpg "Img_0168")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0168.jpg)
 
-[![Img_0193](http://soultravelers3new.local/images/2008/06/22/img_0193.jpg "Img_0193")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0193.jpg)
+[![Img_0193](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0193.jpg "Img_0193")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0193.jpg)
 
-[![Img_0201](http://soultravelers3new.local/images/2008/06/22/img_0201.jpg "Img_0201")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0201.jpg)
+[![Img_0201](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0201.jpg "Img_0201")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0201.jpg)
 
-[![Img_0194](http://soultravelers3new.local/images/2008/06/22/img_0194.jpg "Img_0194")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0194.jpg)
+[![Img_0194](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0194.jpg "Img_0194")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0194.jpg)
 
-[![Img_0229](http://soultravelers3new.local/images/2008/06/22/img_0229.jpg "Img_0229")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0229.jpg)
+[![Img_0229](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0229.jpg "Img_0229")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0229.jpg)
 
-[![Img_0234](http://soultravelers3new.local/images/2008/06/22/img_0234.jpg "Img_0234")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0234.jpg)
+[![Img_0234](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0234.jpg "Img_0234")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0234.jpg)

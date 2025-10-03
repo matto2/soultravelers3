@@ -4,7 +4,7 @@ date: 2012-08-19
 draft: true
 ---
 
-[![IMG_5289](https://soultravelers3.typepad.com/.a/6a00e5502a9507883301761754ecb9970c-200wi "IMG_5289")](http://soultravelers3.typepad.com/.a/6a00e5502a9507883301761754ecb9970c-pi)Pretty Georgetown Penang  
+[![IMG_5289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761754ecb9970c.jpg "IMG_5289")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761754ecb9970c.jpg-pi)Pretty Georgetown Penang  
   
   
   
@@ -16,7 +16,7 @@ draft: true
   
   
 
-<!--more--> [![IMG_5289](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c315df217970b-800wi "IMG_5289")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c315df217970b-pi)
+<!--more--> [![IMG_5289](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315df217970b.jpg "IMG_5289")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c315df217970b.jpg-pi)
 
 Penang is often called "The Pearl of the Orient" and the center of the pearl is Georgetown which is a UNESCO Heritage Site. Penang has a rich history,  with connections with China before the 15th century and being a British colony for over a century. It was originally named Prince of Wales Island and Georgetown was named after King George III ( as it was the first British trading post in the Far East).  
   

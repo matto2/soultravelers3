@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2267](http://soultravelers3new.local/images/2008/04/27/img_2267.png "Img_2267")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2267.png) Laptop madness in Europe  
+ [![Img_2267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2267.png "Img_2267")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2267.png) Laptop madness in Europe  
 October 8, 2006
 
 Trying to find wifi on the continent to  
@@ -15,7 +15,7 @@ insanity thus far.
 
 <!--more-->
 
-[![Img_2267_2](http://soultravelers3new.local/images/2008/04/27/img_2267_2.png "Img_2267_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2267_2.png)
+[![Img_2267_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2267_2.png "Img_2267_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2267_2.png)
 
 Trying to find wifi on the continent to upload this blog is pure madness and insanity thus far. Dinner was easy and delightful in Dijon, but wifi was not. Wifi is just not available in the same way in Europe as it is in the states and that is our biggest frustration here. I can’t wait to get my satellite! We had tried to upload at Mcdonalds in Paris before we left, but for some unknown and irrational reason could not get into the site we need to do that. We could get free wifi there,just could not upload . So our main goal in Dijon before any touring was to find a place to upload the blog because we have such a back load all the way back to Brugge (which now seems a million miles away).
 
@@ -47,12 +47,12 @@ if one prefers smoky internet cafes for quick email checks.
 
 The good news is that we were led to just the right person who told us where to get free wifi and did manage to use it despite the strange conditions. We are very grateful for that. She was just passing by in the street at the right time as there are very few Americans there and probably fewer still who knew the secret spot. We are blessed! It is all just part of the adventure.
 
-[![Img_2265](http://soultravelers3new.local/images/2008/04/27/img_2265.png "Img_2265")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2265.png)
+[![Img_2265](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2265.png "Img_2265")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2265.png)
 
-[![Img_2266](http://soultravelers3new.local/images/2008/04/27/img_2266.png "Img_2266")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2266.png)
+[![Img_2266](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2266.png "Img_2266")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2266.png)
 
-[![Img_2254](http://soultravelers3new.local/images/2008/04/27/img_2254.png "Img_2254")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2254.png)
+[![Img_2254](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2254.png "Img_2254")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2254.png)
 
-[![Img_2258](http://soultravelers3new.local/images/2008/04/27/img_2258.png "Img_2258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2258.png)
+[![Img_2258](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2258.png "Img_2258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2258.png)
 
-[![Img_2269](http://soultravelers3new.local/images/2008/04/27/img_2269.png "Img_2269")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2269.png)
+[![Img_2269](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2269.png "Img_2269")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2269.png)

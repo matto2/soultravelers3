@@ -60,24 +60,24 @@ One does not tend to think of pilgrimages to Santiago de Compostela as "family t
 
 I have entered this post into a contest and group writing project  at [Problogger.](http://www.problogger.net/archives/2008/08/25/killer-titles/) Darren is a great guy with lots of savvy advice. This is something totally new to me, so we will see how it goes. It is about "killer titles" for blogs, but our travelogue format & travel adds some limits. Hopefully I will learn something and meet some other interesting people.
 
-[![Img_1226](http://soultravelers3new.local/images/2008/08/26/img_1226.jpg "Img_1226")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1226.jpg)
+[![Img_1226](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_1226.jpg "Img_1226")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1226.jpg)
 
 ![Img_2057](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2057.jpg)
 
-[![Img_1229](http://soultravelers3new.local/images/2008/08/26/img_1229.jpg "Img_1229")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1229.jpg)
+[![Img_1229](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_1229.jpg "Img_1229")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1229.jpg)
 
-[![Img_1956](http://soultravelers3new.local/images/2008/08/26/img_1956.jpg "Img_1956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1956.jpg)
+[![Img_1956](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_1956.jpg "Img_1956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1956.jpg)
 
-[![Img_2002](http://soultravelers3new.local/images/2008/08/26/img_2002.jpg "Img_2002")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2002.jpg)
+[![Img_2002](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_2002.jpg "Img_2002")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2002.jpg)
 
-[![Img_2063](http://soultravelers3new.local/images/2008/08/26/img_2063.jpg "Img_2063")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2063.jpg)
+[![Img_2063](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_2063.jpg "Img_2063")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2063.jpg)
 
-[![Img_2033](http://soultravelers3new.local/images/2008/08/26/img_2033.jpg "Img_2033")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2033.jpg)
+[![Img_2033](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_2033.jpg "Img_2033")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2033.jpg)
 
-[![Img_2228](http://soultravelers3new.local/images/2008/08/26/img_2228.jpg "Img_2228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2228.jpg)
+[![Img_2228](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_2228.jpg "Img_2228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2228.jpg)
 
-[![Img_2115](http://soultravelers3new.local/images/2008/08/26/img_2115.jpg "Img_2115")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2115.jpg)
+[![Img_2115](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_2115.jpg "Img_2115")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2115.jpg)
 
 ![Img_2219](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_2219.jpg)
 
-[![Img_1938](http://soultravelers3new.local/images/2008/08/26/img_1938.jpg "Img_1938")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1938.jpg)
+[![Img_1938](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/26/img_1938.jpg "Img_1938")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/26/img_1938.jpg)

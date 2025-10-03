@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_3884](http://soultravelers3new.local/images/2008/04/24/img_3884.png "Img_3884")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3884.png) Good day Sunshine!  
+ [![Img_3884](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3884.png "Img_3884")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3884.png) Good day Sunshine!  
 October 28, 2006
 
 So far, Spain is a lot hotter and sunnier  
@@ -15,7 +15,7 @@ We are camped in a tropical paradise
 
 <!--more-->
 
-[![Img_3884_2](http://soultravelers3new.local/images/2008/04/24/img_3884_2.png "Img_3884_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3884_2.png)
+[![Img_3884_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3884_2.png "Img_3884_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3884_2.png)
 
 So far, Spain is a lot hotter and sunnier than anywhere else that we have been. We are camped in a tropical paradise at the moment with colorful marble bathrooms no less. These Europeans really do have camping down to an art form and it is fascinating to see all the variety and how carried away some of them get with their camping  or should I say “holiday” equipment. After a long drive it is so relaxing to find a spot like this and to wake up to sunshine and tropical plants. Perhaps I am even more grateful because the worse  
 part of my cold /flu thing has passed now and I have my energy back, but we are all enjoying it.
@@ -33,18 +33,18 @@ Mozart almost always sleeps part of the way on long rides which helps take up th
 Unfortunately, the portable dvd player that we bought for the trip is not working well, probably because  
 of the adapter, so she has been watching her DVD’s on the Mac mostly. I always warn her to “hang on to Mackie” if we hit a patch where there are turns and bumps. I was afraid that this much driving on the way to Spain might be too much for her, but she is doing really well with it as we have got a rhythm going now that we are all use to.
 
-[![Img_3883](http://soultravelers3new.local/images/2008/04/24/img_3883.png "Img_3883")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3883.png)
+[![Img_3883](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3883.png "Img_3883")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3883.png)
 
-[![Img_3904](http://soultravelers3new.local/images/2008/04/24/img_3904.png "Img_3904")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3904.png)
+[![Img_3904](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3904.png "Img_3904")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3904.png)
 
-[![Img_3873](http://soultravelers3new.local/images/2008/04/24/img_3873.png "Img_3873")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3873.png)
+[![Img_3873](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3873.png "Img_3873")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3873.png)
 
-[![Img_3925](http://soultravelers3new.local/images/2008/04/24/img_3925.png "Img_3925")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3925.png)
+[![Img_3925](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3925.png "Img_3925")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3925.png)
 
-[![Img_3911](http://soultravelers3new.local/images/2008/04/24/img_3911.png "Img_3911")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3911.png)
+[![Img_3911](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3911.png "Img_3911")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3911.png)
 
-[![Img_3847](http://soultravelers3new.local/images/2008/04/24/img_3847.png "Img_3847")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3847.png)
+[![Img_3847](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3847.png "Img_3847")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3847.png)
 
-[![Img_3899](http://soultravelers3new.local/images/2008/04/24/img_3899.png "Img_3899")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3899.png)
+[![Img_3899](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3899.png "Img_3899")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3899.png)
 
-[![Img_3927](http://soultravelers3new.local/images/2008/04/24/img_3927.png "Img_3927")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3927.png)
+[![Img_3927](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3927.png "Img_3927")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3927.png)

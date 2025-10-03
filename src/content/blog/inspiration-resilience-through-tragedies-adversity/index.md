@@ -85,8 +85,3 @@ There is much to be proud of and inspired by in 2017, so I look forward to 2018 
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)

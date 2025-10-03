@@ -4,9 +4,9 @@ date: 2012-04-29
 draft: true
 ---
 
-[![IMG_0823](https://soultravelers3.typepad.com/.a/6a00e5502a95078833016765df3996970b-200wi "IMG_0823")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016765df3996970b-pi)
+[![IMG_0823](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765df3996970b.jpg "IMG_0823")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765df3996970b.jpg-pi)
 
-<!--more--> [![IMG_0823](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016304ec1b7a970d-800wi "IMG_0823")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016304ec1b7a970d-pi)  
+<!--more--> [![IMG_0823](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304ec1b7a970d.jpg "IMG_0823")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016304ec1b7a970d.jpg-pi)  
   
 
 [](http://traveltips.usatoday.com/DM-Resize/photos.demandstudios.com/90/47/fotolia_7506213_XS.jpg?w=600&h=600&keep_ratio=1 "How to Travel to England With Kids")

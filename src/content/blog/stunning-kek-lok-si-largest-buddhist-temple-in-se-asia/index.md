@@ -27,11 +27,11 @@ the stunning Kek Lok Si
 
 <!--more--> ![Magical and stunning Kek Lok Si 新年快乐  largest Buddhist Temple in SE Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744b2b5ae970d.jpg)  
   
-Looking for a magical temple experience in Asia? Don't miss the stunning Kek Lok Si Temple, the largest Buddhist temple in Southeast Asia, on [Chinese New Year's](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Chinese New Years") Eve. The 10, 000 lanterns will enchant you as our video shows and most Chinese families are having their traditional dinner at that time, so you will have it almost completely to yourself.  
+Looking for a magical temple experience in Asia? Don't miss the stunning Kek Lok Si Temple, the largest Buddhist temple in Southeast Asia, on [Chinese New Year's](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Chinese New Years") Eve. The 10, 000 lanterns will enchant you as our video shows and most Chinese families are having their traditional dinner at that time, so you will have it almost completely to yourself.  
   
 It's gigantic, so you will want to give yourself time to see it all. We arrived just before dusk and enjoyed the serene setting above the green hills and the spectacular sunset. As you walk up the Pagoda of 10, 000 Buddhas you will be delighted by the architecture, much of it built in the early 1900's and the humoungus Kuan Yin is also very impressive.  
   
-We did our self guided  [tour as 3 generations](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html "3 generations travel"), each of us, from 10 to 84, enjoying it all. Later on, it's the perfect high spot to watch the fireworks all around [Penang island](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "visiting Penang island"). The lights and colors dazzle!  
+We did our self guided  [tour as 3 generations](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/traveling-with-grandma-3-generation-travel.html "3 generations travel"), each of us, from 10 to 84, enjoying it all. Later on, it's the perfect high spot to watch the fireworks all around [Penang island](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "visiting Penang island"). The lights and colors dazzle!  
   
 
 <iframe src="http://www.youtube.com/embed/fwbU_OGfSQg?rel=0" width="420" frameborder="0" height="315"></iframe>

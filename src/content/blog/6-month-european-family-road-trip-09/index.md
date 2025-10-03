@@ -19,7 +19,7 @@ comes our way!" The words & music to
 
 "Get your motor running, head out on the highway, looking for adventure, whatever comes our way!" The words & music to ["Born to be Wild"](http://en.wikipedia.org/wiki/Born_to_be_wild) kept running through my brain as we finished packing up from our winter stay in our little village in Andalusia. It gets as exciting as any family vacation can, as we go from a fairly conventional winter lifestyle (albeit in a 15th Century Andalusian village in Spain), to the free vagabond life of traveling on a whim and following our bliss on long summer days where we have a hard time remembering what day or time it is. Every day will be a Saturday for 6 months and each new day an adventure!
 
-[![IMG_5331](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fc6d9a0970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301156fc6d9a0970c-150x150.jpg)
+[![IMG_5331](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fc6d9a0970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301156fc6d9a0970c-150x150.jpg)
 
   
 I've been thinking of it as 7 months on the road and said so on Twitter and Facebook, but have realized that it will just be a 6 month road trip this year because we got back so late last year, thus are leaving much later. Six or Seven months sounds so long for a vacation, but it goes by so fast. We find it is just the right amount of time for us and by the end of it, we are as ready for 5 or 6 months of rental home and more traditional life, as we are ready to hit the road now. It is a perfect rhythm and combination for us.
@@ -36,7 +36,7 @@ I did not want to raise her as a material child and saw how this travel lifestyl
 
 ![IMG_5045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fc7e190970c.jpg)
 
-[Our great friends who live in Malaga](http://soultravelers3new.local/2007/02/marvelous-meal.html#more) usually store are few boxes that we leave in Spain, but they are moving to London, so we found a new place this year. Mozart wears clothes forever because despite how big she looks in the pictures, she is quite tiny. I think it is hysterical that at 8 1/2 she still wears many shorts that are in the 12-18 months size and has quite a few T-shirts in the 24 months size. We still have quite a few things that we brought with us in 2006, but she does eventually outgrow or out wear things, so we sort though the new and old and always give piles away. Funny, that even as little as we have, we have too much!
+[Our great friends who live in Malaga](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/marvelous-meal.html#more) usually store are few boxes that we leave in Spain, but they are moving to London, so we found a new place this year. Mozart wears clothes forever because despite how big she looks in the pictures, she is quite tiny. I think it is hysterical that at 8 1/2 she still wears many shorts that are in the 12-18 months size and has quite a few T-shirts in the 24 months size. We still have quite a few things that we brought with us in 2006, but she does eventually outgrow or out wear things, so we sort though the new and old and always give piles away. Funny, that even as little as we have, we have too much!
 
 ![IMG_5046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fc7e228970c.jpg)
 
@@ -65,13 +65,13 @@ c-pi) 
 
 After a little last minute packing up and clean up on Sunday morning, we left our house keys on the table and jumped into our little RV, saying goodbye to our village until this fall. I took the cover shot to this post on the way out. The first is a nearby nook and the second is the view looking back from the Mediterranean Sea.
 
-We headed towards Malaga, then Seville and then to the Algarve in Portugal, seeing our share of bulls, sunflowers, mountains, vineyards and eventually the river that separates these two countries in this part of Iberia. We have been on these roads before stayed at this [same exact campsite last year](http://soultravelers3new.local/2008/06/arriving-in-alg.html) at this time, but we are returning for the i[ntimate Dolphin interaction and swim](http://www.zoomarine.pt/Start.php) for Mozart.
+We headed towards Malaga, then Seville and then to the Algarve in Portugal, seeing our share of bulls, sunflowers, mountains, vineyards and eventually the river that separates these two countries in this part of Iberia. We have been on these roads before stayed at this [same exact campsite last year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/arriving-in-alg.html) at this time, but we are returning for the i[ntimate Dolphin interaction and swim](http://www.zoomarine.pt/Start.php) for Mozart.
 
 ![IMG_5344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570bd36fb970b.jpg)
 
 ![IMG_5350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156fc8006d970c.jpg)
 
- [![IMG_5367](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570bd3a6f970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a95078833011570bd3a6f970b-150x150.jpg) 
+ [![IMG_5367](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570bd3a6f970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a95078833011570bd3a6f970b-150x150.jpg) 
 
 Ever since we observed a similar program at [Sea World in San Diego](http://www.seaworld.com/default.aspx), we have wanted Mozart to have this experience. This is the only place in Europe where they do it, but last year did not work because of her age. Thus, we are back again and so excited to actually do it this year! I've read lots of reviews from people who have done it and said it was fantastic, so we will let you know soon what we think. Have you ever swam with dolphins?
 

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_7697](http://soultravelers3new.local/images/2008/04/17/img_7697.png "Img_7697")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7697.png) Carnival Espana!  
+ [![Img_7697](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7697.png "Img_7697")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7697.png) Carnival Espana!  
 February 20, 2007
 
 Wow! For such a small village, these people  
@@ -15,7 +15,7 @@ and Carnival before lent was no exception.
 
 <!--more-->
 
-[![Img_7697_2](http://soultravelers3new.local/images/2008/04/17/img_7697_2.png "Img_7697_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7697_2.png)
+[![Img_7697_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7697_2.png "Img_7697_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7697_2.png)
 
 Wow! For such a small village, these people really go all out when it comes to celebrations and Carnival before lent was no exception. We knew this one was coming and we did not want to miss any of it. We decided we would try out the balcony experience this time since we are lucky enough to be living on the main street and to have two balconies that face the street.
 
@@ -51,24 +51,24 @@ I hope to get this up on video podcast at some point. We followed the crowd up t
 We just had one drink and gabbed with friends amongst the community chaos in the main square while Mozart got an ice cream and played with her friends. Then we headed home to bed as we had to get up early to do last minute things before our Three Generations Tour. We heard the music and fire works  
 as we nodded off with smiles on our faces. There is nothing quite like our sweet Andalusian village life.
 
-[![Img_7685](http://soultravelers3new.local/images/2008/04/17/img_7685.png "Img_7685")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7685.png)
+[![Img_7685](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7685.png "Img_7685")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7685.png)
 
-[![Img_7556](http://soultravelers3new.local/images/2008/04/17/img_7556.png "Img_7556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7556.png)
+[![Img_7556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7556.png "Img_7556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7556.png)
 
-[![Img_7610](http://soultravelers3new.local/images/2008/04/17/img_7610.png "Img_7610")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7610.png)
+[![Img_7610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7610.png "Img_7610")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7610.png)
 
-[![Img_7637](http://soultravelers3new.local/images/2008/04/17/img_7637.png "Img_7637")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7637.png)
+[![Img_7637](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7637.png "Img_7637")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7637.png)
 
-[![Img_7680](http://soultravelers3new.local/images/2008/04/17/img_7680.png "Img_7680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7680.png)
+[![Img_7680](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7680.png "Img_7680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7680.png)
 
-[![Img_7647](http://soultravelers3new.local/images/2008/04/17/img_7647.png "Img_7647")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7647.png)
+[![Img_7647](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7647.png "Img_7647")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7647.png)
 
-[![Img_7658](http://soultravelers3new.local/images/2008/04/17/img_7658.png "Img_7658")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7658.png)
+[![Img_7658](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7658.png "Img_7658")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7658.png)
 
-[![Img_7661](http://soultravelers3new.local/images/2008/04/17/img_7661.png "Img_7661")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7661.png)
+[![Img_7661](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7661.png "Img_7661")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7661.png)
 
-[![Img_7702](http://soultravelers3new.local/images/2008/04/17/img_7702.png "Img_7702")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7702.png)
+[![Img_7702](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7702.png "Img_7702")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7702.png)
 
-[![Img_7709](http://soultravelers3new.local/images/2008/04/17/img_7709.png "Img_7709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7709.png)
+[![Img_7709](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7709.png "Img_7709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7709.png)
 
-[![Img_7712](http://soultravelers3new.local/images/2008/04/17/img_7712.png "Img_7712")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7712.png)
+[![Img_7712](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7712.png "Img_7712")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7712.png)

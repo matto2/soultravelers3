@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_6972](http://soultravelers3new.local/images/2008/04/18/img_6972.png "Img_6972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6972.png) More Village Celebration!  
+ [![Img_6972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6972.png "Img_6972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6972.png) More Village Celebration!  
 February 13, 2007
 
 This one caught us by surprise. It is a little  
@@ -15,7 +15,7 @@ like they are right on top of you as you
 
 <!--more-->
 
-[![Img_6972_2](http://soultravelers3new.local/images/2008/04/18/img_6972_2.png "Img_6972_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6972_2.png)
+[![Img_6972_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6972_2.png "Img_6972_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6972_2.png)
 
 This one caught us by surprise. It is a little disconcerting to hear fireworks that sound like they are right on top of you as you take a shower in the morning with a window open in a tiny tub. I wondered if it was just someone fooling around, left overs from the Three Kings or a new celebration as we took our time waking  
 up on a lazy Saturday in January serenaded by explosive sounds.
@@ -56,22 +56,22 @@ I have seen many fireworks in my life including the celebration in NYC in 1976 t
 
 Yes, indeed, another interesting and joyful day in paradise!
 
-[![Img_6926](http://soultravelers3new.local/images/2008/04/18/img_6926.png "Img_6926")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6926.png)
+[![Img_6926](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6926.png "Img_6926")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6926.png)
 
-[![Img_6951](http://soultravelers3new.local/images/2008/04/18/img_6951.png "Img_6951")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6951.png)
+[![Img_6951](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6951.png "Img_6951")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6951.png)
 
-[![Img_6989](http://soultravelers3new.local/images/2008/04/18/img_6989.png "Img_6989")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6989.png)
+[![Img_6989](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6989.png "Img_6989")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6989.png)
 
-[![Img_7002](http://soultravelers3new.local/images/2008/04/18/img_7002.png "Img_7002")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7002.png)
+[![Img_7002](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7002.png "Img_7002")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7002.png)
 
-[![Img_6886](http://soultravelers3new.local/images/2008/04/18/img_6886.png "Img_6886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6886.png)
+[![Img_6886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6886.png "Img_6886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6886.png)
 
-[![Img_6915](http://soultravelers3new.local/images/2008/04/18/img_6915.png "Img_6915")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6915.png)
+[![Img_6915](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6915.png "Img_6915")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6915.png)
 
-[![Img_7013](http://soultravelers3new.local/images/2008/04/18/img_7013.png "Img_7013")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7013.png)
+[![Img_7013](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7013.png "Img_7013")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7013.png)
 
-[![Img_6947](http://soultravelers3new.local/images/2008/04/18/img_6947.png "Img_6947")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6947.png)
+[![Img_6947](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6947.png "Img_6947")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6947.png)
 
-[![Img_7028](http://soultravelers3new.local/images/2008/04/18/img_7028.png "Img_7028")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7028.png)
+[![Img_7028](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7028.png "Img_7028")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7028.png)
 
-[![Img_7018](http://soultravelers3new.local/images/2008/04/18/img_7018.png "Img_7018")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7018.png)
+[![Img_7018](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7018.png "Img_7018")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7018.png)

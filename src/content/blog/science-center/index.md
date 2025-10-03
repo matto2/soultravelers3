@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0364](http://soultravelers3new.local/images/2008/05/05/img_0364.png "Img_0364")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0364.png) Science Center Nemo  
+ [![Img_0364](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0364.png "Img_0364")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0364.png) Science Center Nemo  
 September 7, 2006
 
 We went into Amsterdam today on the  
@@ -15,7 +15,7 @@ the campground thru a pleasant walk 
 
 <!--more-->
 
-[![Img_0364_2](http://soultravelers3new.local/images/2008/05/05/img_0364_2.png "Img_0364_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0364_2.png)
+[![Img_0364_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0364_2.png "Img_0364_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0364_2.png)
 
 We went into Amsterdam today on the Metro that is about 500 meters from the campground thru a pleasant walk by the park next door after we horsed around, had some breakfast and did a little home school and music. It is an easy route to do because it is the last stop and central station is the last stop, still we managed to miss central station (because of the language and muffled sounds) and were surprised  
 when the train started going the opposite direction. Got to have some daily excitement.  
@@ -31,21 +31,21 @@ Even tho it was getting late, we hiked over to our favorite wifi bench spot on t
   
 By then it was almost dark and we were a little worried about going home as we passed a not terrific area just a metro stop or two away. But it turned out to be just fine and indeed lots of people were on the well lit path going in and out of the campground. It was a busy and active Saturday night.
 
-[![Img_0380](http://soultravelers3new.local/images/2008/05/05/img_0380.png "Img_0380")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0380.png)
+[![Img_0380](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0380.png "Img_0380")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0380.png)
 
-[![Img_0401](http://soultravelers3new.local/images/2008/05/05/img_0401.png "Img_0401")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0401.png)
+[![Img_0401](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0401.png "Img_0401")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0401.png)
 
-[![Img_0360filtered](http://soultravelers3new.local/images/2008/05/05/img_0360filtered.png "Img_0360filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0360filtered.png)
+[![Img_0360filtered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0360filtered.png "Img_0360filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0360filtered.png)
 
-[![Img_0361](http://soultravelers3new.local/images/2008/05/05/img_0361.png "Img_0361")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0361.png)
+[![Img_0361](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0361.png "Img_0361")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0361.png)
 
-[![Img_0366filtered](http://soultravelers3new.local/images/2008/05/05/img_0366filtered.png "Img_0366filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0366filtered.png)
+[![Img_0366filtered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0366filtered.png "Img_0366filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0366filtered.png)
 
-[![Img_0383](http://soultravelers3new.local/images/2008/05/05/img_0383.png "Img_0383")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0383.png)
+[![Img_0383](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0383.png "Img_0383")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0383.png)
 
-[![Img_0398](http://soultravelers3new.local/images/2008/05/05/img_0398.png "Img_0398")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0398.png)
+[![Img_0398](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0398.png "Img_0398")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0398.png)
 
-[![Img_0399](http://soultravelers3new.local/images/2008/05/05/img_0399.png "Img_0399")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0399.png)
+[![Img_0399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0399.png "Img_0399")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0399.png)
 
 [  
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0364_2.png)

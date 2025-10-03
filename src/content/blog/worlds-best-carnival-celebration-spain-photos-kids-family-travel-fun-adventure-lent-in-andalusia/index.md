@@ -32,11 +32,11 @@ family can enjoy? Think Andalusia
 
 Are you dreaming of a Carnival vacation destination that the whole family can enjoy? Think Andalusia, Spain! It's true [Rio de Janeiro](http://www.jaunted.com/state/Rio%20de%20Janeiro), New Orleans' [Mardi Gras](http://www.mardigras.com/) and [Venice](http://www.destination360.com/europe/italy/venice-carnevale), Italy are all divine and three of my favorite spots, but if you are looking for family friendly travel, I'd go for a small white village where the kids can even join in the fun.
 
-Even the UK Mail names [2 places in Spain as best in the world for Carnival.](http://www.dailymail.co.uk/travel/article-1249964/Mardi-Gras-New-Orleans-Rio-Carnival-worlds-best-places-celebrate-Fat-Tuesday.html) Spaniards definitely know how to party and [create community](http://soultravelers3new.local/2007/02/most-magical-mu.html) through [ritual.](http://soultravelers3new.local/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html) I love the drums of Carnival that reverberate through the whole village!
+Even the UK Mail names [2 places in Spain as best in the world for Carnival.](http://www.dailymail.co.uk/travel/article-1249964/Mardi-Gras-New-Orleans-Rio-Carnival-worlds-best-places-celebrate-Fat-Tuesday.html) Spaniards definitely know how to party and [create community](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/most-magical-mu.html) through [ritual.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/spain-stunning-semana-santa-easter-procession-in-andalusia-white-village.html) I love the drums of Carnival that reverberate through the whole village!
 
 ![world's best Carnival, drums, Spain, Andalusia, white village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a8ca046d970b.jpg)  
 
-This is our fourth winter in Spain in our [lovely village](http://soultravelers3new.local/2006/11/our-village.html) and Carnival just gets better every year. We made this  video one year and I have written about our [first Carnival in 2007](http://soultravelers3new.local/2007/02/carnival-espana.html) and got some [great photos](http://twitpic.com/1saol) in [2009](http://twitpic.com/1saby). I will have to get them up on [Flickr](http://www.flickr.com/people/23989603@N07/) one of these days.
+This is our fourth winter in Spain in our [lovely village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/11/our-village.html) and Carnival just gets better every year. We made this  video one year and I have written about our [first Carnival in 2007](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/carnival-espana.html) and got some [great photos](http://twitpic.com/1saol) in [2009](http://twitpic.com/1saby). I will have to get them up on [Flickr](http://www.flickr.com/people/23989603@N07/) one of these days.
 
 Mozart has participated every year, but this is the first year that she did it with a group of friends. They decided to do it as American Indians which is fascinating to me because Mozart has some Indian blood in her. Thus kind of like an American Indian pretending to be an American Indian in Spain.
 
@@ -69,7 +69,7 @@ This week the kids are out of school for a holiday which adds to the festive moo
 
 ![world's best Carnival, baby, Spain, Andalusia, white village](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f311065970c.jpg) 
 
-[![IMG_1805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f311708970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301310f311708970c-150x150.jpg)  
+[![IMG_1805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f311708970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301310f311708970c-150x150.jpg)  
 
 ![world's best Carnival, drums, Spain, Andalusia, white village, witch](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310f312f20970c.jpg)
 

@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2973](http://soultravelers3new.local/images/2008/04/26/img_2973.png "Img_2973")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2973.png) Pont du Gard  
+ [![Img_2973](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2973.png "Img_2973")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2973.png) Pont du Gard  
 October 14, 2006
 
 We are so glad that we made Pont du Gard  
@@ -15,7 +15,7 @@ site of the highest Roman aqueduct
 
 <!--more-->
 
-[![Img_2973_2](http://soultravelers3new.local/images/2008/04/26/img_2973_2.png "Img_2973_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2973_2.png)
+[![Img_2973_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2973_2.png "Img_2973_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2973_2.png)
 
 We are so glad that we made Pont du Gard our first stop in Provence! This world heritage site of the highest Roman aqueduct ever built is awe inspiring. No matter how many pictures we have seen, reality does not disappoint as pictures just can not do it justice. Mozart is very into the Romans, so we thought we would focus on those aspects in Provence first and are so glad we did. The museum connected to the site was a jewel that we all loved and we virtually had the bridge and museum all to ourselves so this was a perfect time to come as they get over two million visitors a year.
 
@@ -29,20 +29,20 @@ there are some others that are nearly as old nearby too.
 
 The aqueduct stands 157 feet above the river and is not only the highest, but is also one of the best preserved aqueducts in the world. It was a utilitarian structure when built ,but has become a work of art to our eyes. Stone and water, earth and sky come together to make something magnificent. It is more golden than I had imagined and so much bigger. If it makes this much of an impact on a person today, I can not imagine what it did on the people here at the time it was built. The markings and ancient graffiti chiseled into the stone were also cool.
 
-[![Img_2961](http://soultravelers3new.local/images/2008/04/26/img_2961.jpg "Img_2961")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2961.jpg)
+[![Img_2961](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2961.jpg "Img_2961")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2961.jpg)
 
-[![Img_2972](http://soultravelers3new.local/images/2008/04/26/img_2972.jpg "Img_2972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2972.jpg)
+[![Img_2972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2972.jpg "Img_2972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2972.jpg)
 
-[![Img_2998](http://soultravelers3new.local/images/2008/04/26/img_2998.jpg "Img_2998")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2998.jpg)
+[![Img_2998](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2998.jpg "Img_2998")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2998.jpg)
 
-[![Img_3014](http://soultravelers3new.local/images/2008/04/26/img_3014.jpg "Img_3014")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3014.jpg)
+[![Img_3014](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3014.jpg "Img_3014")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3014.jpg)
 
-[![Img_3017](http://soultravelers3new.local/images/2008/04/26/img_3017.jpg "Img_3017")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3017.jpg)
+[![Img_3017](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3017.jpg "Img_3017")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3017.jpg)
 
-[![Img_3101](http://soultravelers3new.local/images/2008/04/26/img_3101.jpg "Img_3101")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3101.jpg)
+[![Img_3101](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3101.jpg "Img_3101")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3101.jpg)
 
-[![Img_3023](http://soultravelers3new.local/images/2008/04/26/img_3023.jpg "Img_3023")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3023.jpg)
+[![Img_3023](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3023.jpg "Img_3023")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3023.jpg)
 
-[![Img_2989](http://soultravelers3new.local/images/2008/04/26/img_2989.jpg "Img_2989")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2989.jpg)
+[![Img_2989](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2989.jpg "Img_2989")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2989.jpg)
 
-[![Img_3103](http://soultravelers3new.local/images/2008/04/26/img_3103.jpg "Img_3103")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3103.jpg)
+[![Img_3103](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3103.jpg "Img_3103")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3103.jpg)

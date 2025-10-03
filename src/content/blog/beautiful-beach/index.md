@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_2973_2](http://soultravelers3new.local/images/2008/09/23/img_2973_2.jpg "Img_2973_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2973_2.jpg) Beautiful Beaches & Boats  
+ [![Img_2973_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/23/img_2973_2.jpg "Img_2973_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2973_2.jpg) Beautiful Beaches & Boats  
 September 23, 2008
 
 Galicia often looks more like  
@@ -21,7 +21,7 @@ and some of the beaches reminded
 
 Galicia often looks more like Scandinavia or Scotland than Spain and some of the beaches reminded me of the Caribbean. "Rias Bajas", "Rias Altas", such lovely sounding names for the fjord-like, shallow water ways which bring the Atlantic Ocean inland into Galicia, creating some of the most beautiful scenery in Europe.
 
-[![Img_2751](http://soultravelers3new.local/images/2008/09/23/img_2751.jpg "Img_2751")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2751.jpg)
+[![Img_2751](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/23/img_2751.jpg "Img_2751")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2751.jpg)
 
 In summer, this is truly one of the prettiest places on earth. There is just too much gorgeous coastline to catch it all, but we gave our best shot in the time we had. It is easy to forget that you are in Spain here, but it would be a great place for slow travel, even more so if you love sea food, beaches and boats. You can read more about some of the delights [here](http://www.galiciaguide.com/Beaches-index.html), [here](http://www.idealspain.com/pages/Places/Galicia.htm) and [here](http://100-point.blogspot.com/2007/10/beautiful-coastal-scenery-in-rias.html).
 
@@ -31,7 +31,7 @@ In summer, this is truly one of the prettiest places on earth. There is just too
 
 We headed out from  La Coruna  towards Buno a town dedicated to pottery since Roman times.Then onto Malpica via Laxe and Puentesceso where it is a particularly beautiful area.  Onto Camarinas which has been dedicated to lacemaking since the 16th century, more fishing villages and coast until we hit the famous Finisterre. Carnota was next with its unique hats and we loved Muros with its Gothic-arched arcaded streets. Too many sights to name them all. As soon as we can we will update our map on this years travels.
 
-[![Img_2934](http://soultravelers3new.local/images/2008/09/23/img_2934.jpg "Img_2934")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2934.jpg)
+[![Img_2934](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/23/img_2934.jpg "Img_2934")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2934.jpg)
 
 Sometimes a picture is worth more than words. In order to try and catch this blog up to real time, I am going to do my best to do more posts that are short on words and heavy on pictures.( You have heard that one before, eh? ) Or maybe also some with less pictures. Perhaps several posts at a time if I can.
 
@@ -51,12 +51,12 @@ We must post every week now for the non profit, [Reach The World](http://www.rea
 
 Thanks so much for your votes for us at [Divine Caroline](http://www.divinecaroline.com/awards/493-soultravelers3)! We were so surprised and pleased to see that we went from eight votes to twenty three in the time we were off line.Now we are up to thirtyfour, keep them coming!  If you have not voted, please do and spread the word! 
 
-[![Img_2577](http://soultravelers3new.local/images/2008/09/23/img_2577.jpg "Img_2577")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2577.jpg)
+[![Img_2577](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/23/img_2577.jpg "Img_2577")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2577.jpg)
 
 ![Img_3185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_3185.jpg)
 
-[![Img_2844](http://soultravelers3new.local/images/2008/09/23/img_2844.jpg "Img_2844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2844.jpg)
+[![Img_2844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/23/img_2844.jpg "Img_2844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2844.jpg)
 
-[![Img_2962](http://soultravelers3new.local/images/2008/09/23/img_2962.jpg "Img_2962")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2962.jpg)
+[![Img_2962](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/23/img_2962.jpg "Img_2962")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2962.jpg)
 
-[![Img_2719](http://soultravelers3new.local/images/2008/09/23/img_2719.jpg "Img_2719")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2719.jpg)
+[![Img_2719](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/23/img_2719.jpg "Img_2719")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/23/img_2719.jpg)

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_8284](http://soultravelers3new.local/images/2008/04/17/img_8284.png "Img_8284")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8284.png) Road to Ronda  
+ [![Img_8284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8284.png "Img_8284")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8284.png) Road to Ronda  
 February 23, 2007
 
 It is a gorgeous drive from Marbella to Ronda  
@@ -15,7 +15,7 @@ spectacular sea and mountain views.
 
 <!--more-->
 
-[![Img_8284_2](http://soultravelers3new.local/images/2008/04/17/img_8284_2.png "Img_8284_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8284_2.png)
+[![Img_8284_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8284_2.png "Img_8284_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8284_2.png)
 
 It is a gorgeous drive from Marbella to Ronda taking in the Spanish countryside and spectacular sea and mountain views. After three days in Madrid seeing the museums and city sights, I thought it was time they tasted this rural part of Spain and their first white village/Pueblo Blanco.
 
@@ -46,26 +46,26 @@ Our guests tried their first Spanish Sangria that they enjoyed as well as their 
 Ever the consummate shopper, Mozart leading the younger part of the family , strolled through the old  town to browse, shop a little and take in the ambiance. Meanwhile the elder two took in the views from  
 a sitting position on the bridge and enjoyed people watching.
 
-[![Img_7884](http://soultravelers3new.local/images/2008/04/17/img_7884.png "Img_7884")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7884.png)
+[![Img_7884](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7884.png "Img_7884")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7884.png)
 
-[![Img_7898](http://soultravelers3new.local/images/2008/04/17/img_7898.png "Img_7898")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7898.png)
+[![Img_7898](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7898.png "Img_7898")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7898.png)
 
-[![Img_8135](http://soultravelers3new.local/images/2008/04/17/img_8135.png "Img_8135")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8135.png)
+[![Img_8135](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8135.png "Img_8135")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8135.png)
 
-[![Img_8147](http://soultravelers3new.local/images/2008/04/17/img_8147.png "Img_8147")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8147.png)
+[![Img_8147](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8147.png "Img_8147")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8147.png)
 
-[![Img_8141](http://soultravelers3new.local/images/2008/04/17/img_8141.png "Img_8141")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8141.png)
+[![Img_8141](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8141.png "Img_8141")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8141.png)
 
-[![Img_8164](http://soultravelers3new.local/images/2008/04/17/img_8164.png "Img_8164")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8164.png)
+[![Img_8164](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8164.png "Img_8164")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8164.png)
 
-[![Img_8198](http://soultravelers3new.local/images/2008/04/17/img_8198.png "Img_8198")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8198.png)
+[![Img_8198](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8198.png "Img_8198")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8198.png)
 
-[![Img_8215](http://soultravelers3new.local/images/2008/04/17/img_8215.png "Img_8215")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8215.png)
+[![Img_8215](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8215.png "Img_8215")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8215.png)
 
-[![Img_8250](http://soultravelers3new.local/images/2008/04/17/img_8250.png "Img_8250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8250.png)
+[![Img_8250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8250.png "Img_8250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8250.png)
 
-[![Img_8311](http://soultravelers3new.local/images/2008/04/17/img_8311.png "Img_8311")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8311.png)
+[![Img_8311](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8311.png "Img_8311")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8311.png)
 
-[![Img_8355](http://soultravelers3new.local/images/2008/04/17/img_8355.png "Img_8355")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8355.png)
+[![Img_8355](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8355.png "Img_8355")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8355.png)
 
-[![Img_8372](http://soultravelers3new.local/images/2008/04/17/img_8372.png "Img_8372")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8372.png)
+[![Img_8372](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8372.png "Img_8372")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8372.png)

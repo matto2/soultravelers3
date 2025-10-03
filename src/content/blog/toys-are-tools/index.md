@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Img_0530](http://soultravelers3new.local/images/2008/08/30/img_0530.jpg "Img_0530")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_0530.jpg) Toys are Tools!  
+ [![Img_0530](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/30/img_0530.jpg "Img_0530")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_0530.jpg) Toys are Tools!  
 August 27, 2008  
   
 Meeting the sweet owner and collector in this  
@@ -19,7 +19,7 @@ Meeting the sweet owner and collector in this very special toy museum, called Mu
 
 Check out the original post with more information at:
 
-[http://soultravelers3new.local/2008/07/toy-museum.html#more](http://soultravelers3new.local/2008/07/toy-museum.html#more)
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/toy-museum.html#more](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/toy-museum.html#more)
 
 We post them on Youtube first until we have time to upload them to the blog video section. Please subscribe to our [Youtube Channel](http://www.youtube.com/user/soultravelers3) to be the first to see our videos!
 

@@ -21,7 +21,7 @@ can be one of the best ways to travel?
 
 <!--more--> ![travel by cargo ship or freighter for adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676806f85b970b.jpg)  
   
-Who knew that travel by freighter, cargo ship or ferry can be one of the best ways to travel? We've done a lot of it on our [family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world tour") in the last 7 years, but we probably never would have thought about it as a travel option before doing extensive [road trips in Europe](http://soultravelers3new.local/2011/06/road-trip-europe-plan-then-improvise.html "road trips Europe").  
+Who knew that travel by freighter, cargo ship or ferry can be one of the best ways to travel? We've done a lot of it on our [family world tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "family world tour") in the last 7 years, but we probably never would have thought about it as a travel option before doing extensive [road trips in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/road-trip-europe-plan-then-improvise.html "road trips Europe").  
   
 **CHEAPER AND FASTER**  
   
@@ -35,31 +35,31 @@ You can take your car on most of these, sometimes one can even camp inside one's
   
 It was a bit of a intimidating adventure the first time, but now that we've done it so much, we don't hesitate to do it often and it is one of our child's favorite ways to travel. Here are some posts that I have written on this topic.  
 [  
-Overnight cruise between Barcelona and Rome](http://soultravelers3new.local/2007/05/barcelona-rome.html "overnight cruise between barcelona and rome") ( This tells about our first experience but now we have done this many times as it is one of our favorites as well as their ship that goes from Barcelona to Genoa)  
+Overnight cruise between Barcelona and Rome](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/05/barcelona-rome.html "overnight cruise between barcelona and rome") ( This tells about our first experience but now we have done this many times as it is one of our favorites as well as their ship that goes from Barcelona to Genoa)  
 [  
-Cruise from Venice to Athens](http://soultravelers3new.local/2007/06/adriatic-birthd.html "cruise from Venice to Athens")  
+Cruise from Venice to Athens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/adriatic-birthd.html "cruise from Venice to Athens")  
 [  
-Greece - Italy- Croatia Ferries](http://soultravelers3new.local/2007/08/greece-italy-cr.html "Greece, Italy and Croatia ferries") ( We've taken extensive ferries and ships in Greece, Italy and Croatia)  
+Greece - Italy- Croatia Ferries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/08/greece-italy-cr.html "Greece, Italy and Croatia ferries") ( We've taken extensive ferries and ships in Greece, Italy and Croatia)  
 [  
-Ferry from Kusadasi, Turkey to Samos, Greece](http://soultravelers3new.local/2007/08/ferry-to-samos.html "cruise from Turkey to Samos, Greece")  
+Ferry from Kusadasi, Turkey to Samos, Greece](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/08/ferry-to-samos.html "cruise from Turkey to Samos, Greece")  
   
-[Ferry from Athens to Santorini](http://soultravelers3new.local/2007/06/athens-to-santo.html "ferry from athens to santorini") ( World's scariest road for a motorhome upon arrival)  
+[Ferry from Athens to Santorini](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/athens-to-santo.html "ferry from athens to santorini") ( World's scariest road for a motorhome upon arrival)  
   
-[Ferry from Split to Hvar Croatia](http://soultravelers3new.local/2007/09/ferry-to-hvar.html "ferry from Split to Hvar Croatia")  
+[Ferry from Split to Hvar Croatia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/09/ferry-to-hvar.html "ferry from Split to Hvar Croatia")  
   
-[Ferry from France to Ireland](http://soultravelers3new.local/2010/06/car-wreck-in-france-dealing-with-disaster-road-trip-nightmare-car-accident-abroad-insurance-problems.html "ferry from France to Ireland") ( Crazy story that invovles a wreck and police dog)  
+[Ferry from France to Ireland](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/car-wreck-in-france-dealing-with-disaster-road-trip-nightmare-car-accident-abroad-insurance-problems.html "ferry from France to Ireland") ( Crazy story that invovles a wreck and police dog)  
   
-[Turkey bus on a Ferry to Canakkale](http://soultravelers3new.local/2007/07/bus-on-ferry-to.html "turkey bus on ferry to Canakkale")  
+[Turkey bus on a Ferry to Canakkale](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/07/bus-on-ferry-to.html "turkey bus on ferry to Canakkale")  
 [  
-Ferry from Santorini to Crete](http://soultravelers3new.local/2007/06/santorini-to-cr.html "ferry from Santorini to Crete")  
+Ferry from Santorini to Crete](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/santorini-to-cr.html "ferry from Santorini to Crete")  
   
-[Ferry from Spain to Morocco](http://soultravelers3new.local/2007/03/long-day-into-a.html "ferry from Spain to Morocco")  
+[Ferry from Spain to Morocco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/long-day-into-a.html "ferry from Spain to Morocco")  
   
-[Ferry from Samos to Mykonos](http://soultravelers3new.local/2007/08/ferry-to-mykono.html "ferry from Samos to Mykonos")  
+[Ferry from Samos to Mykonos](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/08/ferry-to-mykono.html "ferry from Samos to Mykonos")  
   
-[Cruising the Fjords in Norway](http://soultravelers3new.local/2010/02/family-travel-photo-norway-in-a-nutshell-fijords-europe-roadtrip-budget-cheap-flam-train-vacation-.html "cruising the fjords of Norway")  
+[Cruising the Fjords in Norway](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/02/family-travel-photo-norway-in-a-nutshell-fijords-europe-roadtrip-budget-cheap-flam-train-vacation-.html "cruising the fjords of Norway")  
   
-[Crete to Rhodes Greece Ferry](http://soultravelers3new.local/2007/07/crete-to-rhodes.html "crete to rhodes")  
+[Crete to Rhodes Greece Ferry](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/07/crete-to-rhodes.html "crete to rhodes")  
   
   
 **QUESTIONS?**  

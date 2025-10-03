@@ -49,19 +49,19 @@ Surprisingly, in 2011, The Brookings Institution ranked Los Angeles at the top o
   
 **WHY NO CAR**  
   
-Since we've been [traveling the world](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "traveling the world - singer Mozart - most traveled kid") for 10 years now, I let my drivers license expire a long time ago, because I just didn't need it. My husband drives our [RV/Camper around Europe](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "traveling around Europe in a camper van") but mostly we've seen the world by foot, bike and mass transit. I hate to drive and I love [seeing the world](http://soultravelers3new.local/around-the-world-family-travel/ "how to travel the world tips") close up.   
+Since we've been [traveling the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/the-most-well-traveled-child-in-the-whole-world.html "traveling the world - singer Mozart - most traveled kid") for 10 years now, I let my drivers license expire a long time ago, because I just didn't need it. My husband drives our [RV/Camper around Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/travelling-traveling-around-europe-in-a-campervan.html "traveling around Europe in a camper van") but mostly we've seen the world by foot, bike and mass transit. I hate to drive and I love [seeing the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/around-the-world-family-travel/ "how to travel the world tips") close up.   
   
 ![6a00e5502a9507883301901cef6b37970b](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb085d5f83970d.jpg)  
   
 **14 YEAR OLD MOZART IS RECORDING HER ALBUM AND ACTING**  
   
-[Mozart is starting her first album](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "Teen singer Mozart singing at Grammy"), so her amazing entertainment lawyer in LA wanted her to write and record songs with some top LA producers. She also had lots of meetings scheduled as she just finished her first dramatic lead in a film.   
+[Mozart is starting her first album](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/teen-mozart-singing-red-carpet-grammys.html "Teen singer Mozart singing at Grammy"), so her amazing entertainment lawyer in LA wanted her to write and record songs with some top LA producers. She also had lots of meetings scheduled as she just finished her first dramatic lead in a film.   
   
 ![teen singer Mozart recording in Los Angeles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1431781970c.png)  
   
  **MOZART IS GRADUATING HIGH SCHOOL AT 14 AND STARTING COLLEGE**  
   
-So off we went for months this summer, just her and I, to do those things and figure out how to make it our next base.  Mozart is graduating high school at 14 and starting college there, so we are in full transition mode once again. Transition mode seems to be our normal, but we are still trying to maintain our [world school](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school ") freedom.   
+So off we went for months this summer, just her and I, to do those things and figure out how to make it our next base.  Mozart is graduating high school at 14 and starting college there, so we are in full transition mode once again. Transition mode seems to be our normal, but we are still trying to maintain our [world school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "world school ") freedom.   
   
 ![Los Angeles travel without a car](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7b96616970b.png)  
   
@@ -133,8 +133,3 @@ Have you ever gone carless in LA? 
 
 Related articles
 
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)
-
-[![](http://i.zemanta.com/338454533_80_80.jpg)](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)[B.madebybebe Gives Teen Singer Mozart Glamour Makeup & Hair!](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)

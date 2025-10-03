@@ -18,7 +18,7 @@ in our 15th century village. Thanks to our
 
 We are jumping for joy here in Spain! Yep, that's  Mozart at our local playground in our 15th century village. Thanks to our friend [Peace Mitchell](http://twitter.com/peace_) in [Australia,](http://www.cairnsfamilyholidays.com.au/more_info/about_us.htm "blog") we found out this morning that we have been nominated for three, yes THREE different [Lonely Planet travel blogging awards](http://lplabs.com/2009/02/25/voting-open-for-the-2009-travel-blogger-awards/)!
 
-  [![Lonely_planet_travel_blogge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116898157f970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301116898157f970c-150x136.jpg)
+  [![Lonely_planet_travel_blogge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301116898157f970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301116898157f970c-150x136.jpg)
 
 I am hacking away with my first cold of the year, feeling like I am in a fog and this wonderful news woke me right up! What a difference a day makes, eh? I am stunned. I think we are the only ones who got three nominations, although a couple of our friends got two nominations. When I first looked, I thought we did not get any, as we are far down on the page.
 
@@ -62,4 +62,4 @@ Look at the other categories too as there are  probably many other blogs that y
 
 Tell all your friends, because this is going to be a tight one. It closes at midnight on March 20 which is fitting as that is just a few days after my birthday! Hopefully, it will be a fun birthday surprise for the absolutely oldest person in the whole contest! Grin!  At least we will always have bragging rights on three nominations! Life is beautiful!
 
-[![Lonely_planet_travel_blogge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689813e5970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330111689813e5970c-150x136.jpg)
+[![Lonely_planet_travel_blogge](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330111689813e5970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330111689813e5970c-150x136.jpg)

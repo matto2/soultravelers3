@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_5482](http://soultravelers3new.local/images/2008/04/20/img_5482.png "Img_5482")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5482.png) Flamenco & Christmas recital  
+ [![Img_5482](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5482.png "Img_5482")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5482.png) Flamenco & Christmas recital  
 December 24, 2006
 
 What a sweet and joyous day! Dressed in  
@@ -15,7 +15,7 @@ walked excitedly from the grammar school
 
 <!--more-->
 
-[![Img_5482_2](http://soultravelers3new.local/images/2008/04/20/img_5482_2.png "Img_5482_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5482_2.png)
+[![Img_5482_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5482_2.png "Img_5482_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5482_2.png)
 
 What a sweet and joyous day! Dressed in their native costumes, all the boys and girls walked excitedly from the grammar school clear across town to the recital hall in the new part of town. Well, that is all the kids in her class except Mozart and her friend from England who is also new this year, somehow we were not told  that this was the standard dress for this day, but it did not matter. Mozart had on Christmas colors and even happened to wear a little fur vest that was a little like the ones the boys wore, plus she changed into her Flamenco outfit right after her song portion, so fit right in.
 
@@ -35,24 +35,24 @@ It was the joy that really touched me about the kids singing, doing Flamenco, an
 it was the kind of music that really made you want to move. Mozart was practicing some of her Flamenco steps in her routine as she waited. It was hard to be around this kind of music and joy without moving.  
 What a blessing to be part of it!
 
-[![Img_5519](http://soultravelers3new.local/images/2008/04/20/img_5519.png "Img_5519")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5519.png)
+[![Img_5519](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5519.png "Img_5519")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5519.png)
 
-[![Img_5560](http://soultravelers3new.local/images/2008/04/20/img_5560.png "Img_5560")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5560.png)
+[![Img_5560](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5560.png "Img_5560")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5560.png)
 
-[![Img_5406](http://soultravelers3new.local/images/2008/04/20/img_5406.png "Img_5406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5406.png)
+[![Img_5406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5406.png "Img_5406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5406.png)
 
-[![Img_5484](http://soultravelers3new.local/images/2008/04/20/img_5484.png "Img_5484")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5484.png)
+[![Img_5484](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5484.png "Img_5484")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5484.png)
 
-[![Img_5525](http://soultravelers3new.local/images/2008/04/20/img_5525.png "Img_5525")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5525.png)
+[![Img_5525](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5525.png "Img_5525")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5525.png)
 
   
 
-[![Img_5568](http://soultravelers3new.local/images/2008/04/20/img_5568.png "Img_5568")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5568.png)
+[![Img_5568](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5568.png "Img_5568")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5568.png)
 
-[![Img_5556](http://soultravelers3new.local/images/2008/04/20/img_5556.png "Img_5556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5556.png)
+[![Img_5556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5556.png "Img_5556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5556.png)
 
-[![Img_5523](http://soultravelers3new.local/images/2008/04/20/img_5523.png "Img_5523")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5523.png)
+[![Img_5523](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5523.png "Img_5523")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5523.png)
 
-[![Img_5543](http://soultravelers3new.local/images/2008/04/20/img_5543.png "Img_5543")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5543.png)
+[![Img_5543](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5543.png "Img_5543")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5543.png)
 
-[![Img_5521](http://soultravelers3new.local/images/2008/04/20/img_5521.png "Img_5521")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5521.png)
+[![Img_5521](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5521.png "Img_5521")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5521.png)

@@ -15,11 +15,11 @@ snow capped mountains jutting high above
 
 <!--more-->
 
-[![Img_4001_2](http://soultravelers3new.local/images/2008/12/15/img_4001_2.jpg "Img_4001_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/15/img_4001_2.jpg)
+[![Img_4001_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/15/img_4001_2.jpg "Img_4001_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/15/img_4001_2.jpg)
 
 Blue sparkling sea, rolling green hills dotted with sugar cube, white houses, snow capped mountains jutting high above and warm sunshine bathing our every move, how can one not feel blessed in this environment? As we put our Christmas tree up yesterday here in Andalusia, we thought about all that we have to be grateful for.
 
-[![Img_4015](http://soultravelers3new.local/images/2008/12/16/img_4015.jpg "Img_4015")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4015.jpg)
+[![Img_4015](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_4015.jpg "Img_4015")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4015.jpg)
 
 Yes, in this economic climate that affects Spain as much as the U.S. , the U.K. or most any where on our planet today, one can easily be shaken with the contagious fear that is being passed around, but I keep doing my best to focus on what is right with this world. [Here](http://www.manageyourlifenow.com/Articles/tabid/60/articleType/ArticleView/articleId/61/12-Quick-ways-to-manage-stress-at-work.aspx) are a [few things](http://blogs.psychologytoday.com/blog/crisis-center/200812/holiday-stress-how-manage-it) to try if you are [feeling stressed.](http://abundantattitude.blogspot.com/2008/12/guiding-your-emotions-feel-good.html) The exotic, authentic, modern yet ancient world here in southern Spain gives us plenty to be thankful for.
 
@@ -35,13 +35,13 @@ We were very happy to be listed as one of the [top travel twitterers at Voyageek
 
 We were happy to be included in Christine Gilberts post on [traveling with kids](http://almostfearless.com/2008/10/08/traveling-with-kids-everyones-doing-it/)  as well as this one asking ["Where would you take your kids in Europe?"](http://www.europestring.com/where-would-you-take-your-kids-in-europe/)
 
-[![Img_4045](http://soultravelers3new.local/images/2008/12/16/img_4045.jpg "Img_4045")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4045.jpg)
+[![Img_4045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_4045.jpg "Img_4045")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4045.jpg)
 
 I hope there is some good reading for you in these and cool new sites to discover! Every night we read aloud together in bed, then talk about what we are grateful for before our nightly prayers. Often it is the simple things we think about and the love of family and friends shown in so many little ways (frequently with them just being themselves and unaware how their goodness shows through in everyday ways).
 
-[![Img_4041](http://soultravelers3new.local/images/2008/12/16/img_4041.jpg "Img_4041")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4041.jpg)
+[![Img_4041](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_4041.jpg "Img_4041")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4041.jpg)
 
-[![Img_4026_2](http://soultravelers3new.local/images/2008/12/16/img_4026_2.jpg "Img_4026_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4026_2.jpg)
+[![Img_4026_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_4026_2.jpg "Img_4026_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4026_2.jpg)
 
 As we put up our little living tree ( that is how it is done here, you buy them, then plant them and they cost about 6 bucks instead of 60) I realized how much pleasure we get out of simple things. I have boxes full of long collected ornaments in storage and once even put up 6 Christmas trees in our home. We love watching home movies of our last Christmas there and reopen each little sacred ornament with our 4 year old in the video. Because of our traveling life, we have the simplest of ornaments, some hand made, but we will always remember the pleasures of our simple Christmas times in Spain.
 

@@ -30,9 +30,9 @@ certainly been the truth and what
 <!--more-->  
 ![New Home, Moving and Big Changes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0622fb7970c.png)  
   
-Having a child, changes your life forever and in our case, that has certainly been the truth and what a wild ride it has been [all around the world.](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family traveling all around the world") Since Mozart turned 13 it has been particularly full of constant change and leading us into new horizons we never really expected.  
+Having a child, changes your life forever and in our case, that has certainly been the truth and what a wild ride it has been [all around the world.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "family traveling all around the world") Since Mozart turned 13 it has been particularly full of constant change and leading us into new horizons we never really expected.  
   
-While many of you were enjoying a relaxing Labor Day Weekend, we made a quick move into a new "home". Luckily, as a [minimalist family,](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist family") we don't take long [to pack](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html "Packing secrets"), but our challenge this time, was furniture as the best deals in Dallas come without furniture.  
+While many of you were enjoying a relaxing Labor Day Weekend, we made a quick move into a new "home". Luckily, as a [minimalist family,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist family") we don't take long [to pack](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/top-travel-tip-for-long-term-travel.html "Packing secrets"), but our challenge this time, was furniture as the best deals in Dallas come without furniture.  
   
 In many ways, America is the most foreign country to us, especially in a state we do not know....yet, some how familiar too. We feel a bit like aliens who have returned to a once familiar planet.  
   
@@ -85,22 +85,3 @@ How about you? Is this a transition time period, or just us?
 
 Related articles
 
-[![](http://i.zemanta.com/264138071_80_80.jpg)](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)[Bora Bora Dream Vacation on a Low Budget](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)
-
-[![](http://i.zemanta.com/93117408_80_80.jpg)](http://soultravelers3new.local/2012/06/bhutans-colorful-art.html)[Bhutan's Colorful Art](http://soultravelers3new.local/2012/06/bhutans-colorful-art.html)
-
-[![](http://i.zemanta.com/273206581_80_80.jpg)](http://soultravelers3new.local/2014/05/how-and-why-take-your-kids-to-europe.html)[How and Why Take Your Kids to Europe](http://soultravelers3new.local/2014/05/how-and-why-take-your-kids-to-europe.html)
-
-[![](http://i.zemanta.com/261912623_80_80.jpg)](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)[World as my Middle School - The Atlantic & Soultravelers3](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)
-
-[![](http://i.zemanta.com/281968163_80_80.jpg)](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)[Demi Lovato, Dianna De La Garza, Singing and Mozart's SAT Score!](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)
-
-[![](http://i.zemanta.com/149896182_80_80.jpg)](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html)[Top Packing Tip for Long Term Travel](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html)
-
-[![](http://i.zemanta.com/185282080_80_80.jpg)](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html)[Retire and Travel the World](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html)
-
-[![](http://i.zemanta.com/200358711_80_80.jpg)](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html)[Best Classes or Tutor for Spanish, English or Mandarin in Penang](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html)
-
-[![](http://i.zemanta.com/242635267_80_80.jpg)](http://soultravelers3new.local/2014/01/baby-boomer-travel.html)[Baby Boomer Travel](http://soultravelers3new.local/2014/01/baby-boomer-travel.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)

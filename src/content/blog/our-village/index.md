@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Img_4842](http://soultravelers3new.local/images/2008/04/24/img_4842.png "Img_4842")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4842.png)Our Village  
+[![Img_4842](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4842.png "Img_4842")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4842.png)Our Village  
 November 3, 2006
 
 It is a breathtakingly beautiful,  
@@ -15,7 +15,7 @@ to the 15th century with the obvious Moor
 
 <!--more-->
 
-[![Img_4842_2](http://soultravelers3new.local/images/2008/04/24/img_4842_2.png "Img_4842_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4842_2.png)
+[![Img_4842_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4842_2.png "Img_4842_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4842_2.png)
 
 It is a breathtakingly beautiful, quintessential white village dating back to the 15th century with the obvious Moor and Catholic influence that epitomizes the rural heart of Andalusia. Southern Spain is renowned for its rich legacy of historic, picture postcard white villages. I have never been to Greece, but they remind me of the pictures I have seen of white villages there and indeed there is a link between the Moors and the Greeks and both were very sophisticated societies. They are called “Pueblo Blanco’s” here and are characterized by neat sugar-cube houses precariously stacked one above the other looking like  
 they are defying gravity on steep, serpentine cobbled streets with terra cotta colored tiled roofs and  
@@ -72,28 +72,28 @@ of the elderly walking around with crutches and walkers on these streets.
 
 The cobblestones, the white, white village houses, the bright flowers, beautiful doors, and the azure blue sky all add their magic to this place. It is very different than any place we have been before and that is exactly what we wanted. It may not be the village of my fantasies exactly, but it is close enough to give us the experience we were looking for. We are excited to be here!
 
-[![Img_4054](http://soultravelers3new.local/images/2008/04/24/img_4054.png "Img_4054")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4054.png)
+[![Img_4054](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4054.png "Img_4054")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4054.png)
 
-[![Img_4057](http://soultravelers3new.local/images/2008/04/24/img_4057.png "Img_4057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4057.png)
+[![Img_4057](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4057.png "Img_4057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4057.png)
 
-[![Img_4523](http://soultravelers3new.local/images/2008/04/24/img_4523.png "Img_4523")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4523.png)
+[![Img_4523](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4523.png "Img_4523")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4523.png)
 
   
 
-[![Img_4274](http://soultravelers3new.local/images/2008/04/24/img_4274.png "Img_4274")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4274.png)
+[![Img_4274](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4274.png "Img_4274")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4274.png)
 
-[![Img_4261](http://soultravelers3new.local/images/2008/04/24/img_4261.png "Img_4261")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4261.png)
+[![Img_4261](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4261.png "Img_4261")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4261.png)
 
-[![Img_4235](http://soultravelers3new.local/images/2008/04/24/img_4235.png "Img_4235")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4235.png)
+[![Img_4235](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4235.png "Img_4235")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4235.png)
 
-[![Img_4049](http://soultravelers3new.local/images/2008/04/24/img_4049.png "Img_4049")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4049.png)
+[![Img_4049](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4049.png "Img_4049")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4049.png)
 
-[![Img_4223](http://soultravelers3new.local/images/2008/04/24/img_4223.png "Img_4223")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4223.png)
+[![Img_4223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4223.png "Img_4223")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4223.png)
 
-[![Img_4250](http://soultravelers3new.local/images/2008/04/24/img_4250.png "Img_4250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4250.png)
+[![Img_4250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4250.png "Img_4250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4250.png)
 
-[![Img_4247](http://soultravelers3new.local/images/2008/04/24/img_4247.png "Img_4247")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4247.png)
+[![Img_4247](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4247.png "Img_4247")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4247.png)
 
-[![Img_4090](http://soultravelers3new.local/images/2008/04/24/img_4090.png "Img_4090")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4090.png)
+[![Img_4090](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4090.png "Img_4090")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4090.png)
 
-[![Img_4186](http://soultravelers3new.local/images/2008/04/24/img_4186.png "Img_4186")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4186.png)
+[![Img_4186](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4186.png "Img_4186")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4186.png)

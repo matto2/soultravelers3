@@ -25,27 +25,27 @@ in where angels fear to tread?
 
 <!--more-->  ![cute kitty and angel- scaredy cat treading where angels fear to tread](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676909ccd7970b.jpg)  
   
- Are you a scaredy cat adventurer or a fool who rushes in where angels fear to tread?  I think I am a bit of both. Can you [travel the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "travel around the world") if you have vertigo, claustrophobia, agoraphobia and are afraid to fly? YES and I am living proof! (The cute photo by the way, is of our kitten at our old home in the redwoods.)  
+ Are you a scaredy cat adventurer or a fool who rushes in where angels fear to tread?  I think I am a bit of both. Can you [travel the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "travel around the world") if you have vertigo, claustrophobia, agoraphobia and are afraid to fly? YES and I am living proof! (The cute photo by the way, is of our kitten at our old home in the redwoods.)  
   
 "Decide that you want it more than you are afraid of it. " - Bill Cosby  
   
 Recently, I put this quote by Bill Cosby up on our [Soultravelers3 Facebook Page](http://www.facebook.com/pages/Soultravelers3com-Around-the-World-Family-Travel-Education-Adventure/185105005187 "soultravelers3 facebook fan page"), and I realized I hadn't posted an article yet on this blog, specifically about fear and travel . I have confessed some of these fears with travel in posts like:  
   
-[Monkeys and Taxi Terror](http://soultravelers3new.local/2007/04/monkeys-taxi-te.html "monkeys and taxi terror = dealing with fear and travel")  
+[Monkeys and Taxi Terror](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/monkeys-taxi-te.html "monkeys and taxi terror = dealing with fear and travel")  
   
-[Crazy Travel Challenges](http://soultravelers3new.local/2008/08/crazy-travel-ch.html "crazy travel challenges")  
+[Crazy Travel Challenges](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/crazy-travel-ch.html "crazy travel challenges")  
   
-[Sahara Rainbow Adventure](http://soultravelers3new.local/2007/04/sahara-rainbow.html "Sahara rainbow adventure")  
+[Sahara Rainbow Adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/sahara-rainbow.html "Sahara rainbow adventure")  
 [  
-Dental Emergencies During Travel](http://soultravelers3new.local/2008/05/dentists-travel.html "dental emergencies while traveling")  
+Dental Emergencies During Travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/dentists-travel.html "dental emergencies while traveling")  
   
-[Scary Mountain  Roads](http://soultravelers3new.local/2007/08/delphi.html "scary mountain roads")  
+[Scary Mountain  Roads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/08/delphi.html "scary mountain roads")  
 [Travel Disasters, Vacation Nightmares  
   
-](http://soultravelers3new.local/2011/10/travel-distasters-vacation-nightmares.html "travel disasters, vacation nightmares")[Car Wreck While Traveling](http://soultravelers3new.local/2010/06/car-wreck-in-france-dealing-with-disaster-road-trip-nightmare-car-accident-abroad-insurance-problems.html "car wreck while traveling")  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/travel-distasters-vacation-nightmares.html "travel disasters, vacation nightmares")[Car Wreck While Traveling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/car-wreck-in-france-dealing-with-disaster-road-trip-nightmare-car-accident-abroad-insurance-problems.html "car wreck while traveling")  
   
 [  
-](http://soultravelers3new.local/2007/04/monkeys-taxi-te.html "monkeys and taxi terror = dealing with fear and travel")One long time reader said: " It surprises me that you have fear. It seems like you're a brave and fearless explorer. Thanks for the encouragement you provide."  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/monkeys-taxi-te.html "monkeys and taxi terror = dealing with fear and travel")One long time reader said: " It surprises me that you have fear. It seems like you're a brave and fearless explorer. Thanks for the encouragement you provide."  
   
 I think we all deal with some level of fear and that will come up more when one goes into the unknown and out of comfort zones as travel tends to do. I use to fly with TWA long ago, but, surprisingly, a fear of flying is not that uncommon amongst airline crew at points in their careers.  I certainly, am not always a brave and fearless explorer.  
   
@@ -88,7 +88,7 @@ Here are the things that have helped me:
 **NURTURING INNER SELF TALK**  
   
   
-Yes, we all must deal with fear and some of us more than others, but it doesn't have to stop one from doing what ever we want in life. I've been at my wall many times on this [world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "world tour"), and even DaVinci has faced some fears like when we have been on some of the world's scariest roads with our old [motorhome](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html "traveling europe in a motorhome"), but we endure just like anyone does, because there is often no choice in life, but to walk through things. I am sure Mozart had fear at her [first day at her Spanish school](http://soultravelers3new.local/2006/11/first-day-of-sc.html "American in school in spain") at 6 or her [Mandarin school](http://soultravelers3new.local/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "Mandarin school in Asia") at 10. Can there ever be a life with no fear?  
+Yes, we all must deal with fear and some of us more than others, but it doesn't have to stop one from doing what ever we want in life. I've been at my wall many times on this [world tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "world tour"), and even DaVinci has faced some fears like when we have been on some of the world's scariest roads with our old [motorhome](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/travelling-traveling-around-europe-in-a-campervan.html "traveling europe in a motorhome"), but we endure just like anyone does, because there is often no choice in life, but to walk through things. I am sure Mozart had fear at her [first day at her Spanish school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/11/first-day-of-sc.html "American in school in spain") at 6 or her [Mandarin school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/only-american-girl-in-an-all-mandarin-school-chinese-immersion-in-language-culture-through-school.html "Mandarin school in Asia") at 10. Can there ever be a life with no fear?  
   
 I think one must feel the fear ( if it is present) and do it any way. We try to make smart choices and take calculated risks, but life happens, so one has to deal with what shows up.  
   

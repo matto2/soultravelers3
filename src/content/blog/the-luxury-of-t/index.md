@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_7155](http://soultravelers3new.local/images/2008/04/18/img_7155.png "Img_7155")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7155.png) The Luxury of Time  
+ [![Img_7155](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7155.png "Img_7155")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7155.png) The Luxury of Time  
 February 15, 2007
 
 The longer we stay here the more we  
@@ -15,7 +15,7 @@ seeps into our consciousness.
 
 <!--more-->
 
-[![Img_7155_2](http://soultravelers3new.local/images/2008/04/18/img_7155_2.png "Img_7155_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7155_2.png)
+[![Img_7155_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7155_2.png "Img_7155_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7155_2.png)
 
 The longer we stay here the more we discover and the deeper the enchantment seeps into our consciousness. It is not just the beauty that we keep seeing in greater depth and in more abstract and subtle ways, but the also in the sweetness of the people here. Today we had a delightful conversation with a very young 82 year old man who has lived here all his life. It makes me wish that we could spend months in every place we like as the value of time adds such richness.
 
@@ -36,22 +36,22 @@ After leaving the restaurant, there was a little viewing area nearby which Mozar
 
 So it turned out to be another sweet day in southern Spain. Again, nothing spectacular, but village life just keeps soaking into our American souls. As my six year old child writhes to the haunting sounds of the soulful flamenco singers in a very Andalusian way; as our taste buds adapt to the “sherry-like” flavor of the sangria; and our eyes find the looming mountains, sugar cube houses and sea familiar as “home”; I find us transforming, not unlike Spiderman in a molecular way, into something quite different than when we arrived. Ah, the luxury of time in a place of value and how that can impact.
 
-[![Img_7128](http://soultravelers3new.local/images/2008/04/18/img_7128.png "Img_7128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7128.png)
+[![Img_7128](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7128.png "Img_7128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7128.png)
 
-[![Img_7166](http://soultravelers3new.local/images/2008/04/18/img_7166.png "Img_7166")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7166.png)
+[![Img_7166](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7166.png "Img_7166")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7166.png)
 
-[![Img_7101](http://soultravelers3new.local/images/2008/04/18/img_7101.png "Img_7101")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7101.png)
+[![Img_7101](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7101.png "Img_7101")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7101.png)
 
-[![Img_7126](http://soultravelers3new.local/images/2008/04/18/img_7126.png "Img_7126")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7126.png)
+[![Img_7126](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7126.png "Img_7126")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7126.png)
 
-[![Img_7137](http://soultravelers3new.local/images/2008/04/18/img_7137.png "Img_7137")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7137.png)
+[![Img_7137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7137.png "Img_7137")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7137.png)
 
-[![Img_7134](http://soultravelers3new.local/images/2008/04/18/img_7134.png "Img_7134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7134.png)
+[![Img_7134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7134.png "Img_7134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7134.png)
 
-[![Img_7099](http://soultravelers3new.local/images/2008/04/18/img_7099.png "Img_7099")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7099.png)
+[![Img_7099](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7099.png "Img_7099")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7099.png)
 
-[![Img_7103](http://soultravelers3new.local/images/2008/04/18/img_7103.png "Img_7103")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7103.png)
+[![Img_7103](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7103.png "Img_7103")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7103.png)
 
-[![Img_7142](http://soultravelers3new.local/images/2008/04/18/img_7142.png "Img_7142")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7142.png)
+[![Img_7142](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7142.png "Img_7142")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7142.png)
 
-[![Img_7175](http://soultravelers3new.local/images/2008/04/18/img_7175.png "Img_7175")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7175.png)
+[![Img_7175](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7175.png "Img_7175")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7175.png)

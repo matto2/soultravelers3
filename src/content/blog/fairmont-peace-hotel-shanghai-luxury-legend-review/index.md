@@ -21,7 +21,7 @@ The Fairmont Peace Hotel in Shanghai is a legendary luxurious art deco masterpie
   
 ![view of the Bund from Fairmont Peace hotel shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8e3b531970d.jpg)  
   
-The jaw-dropping dazzling view of the renowned Bund and extraordinary Pudong across the river, wowed even super [seasoned world travelers](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "world traveling family") like us. Many say that [Shanghai has the world's best skyline](http://soultravelers3new.local/2012/12/shanghai-skyline-worlds-best-.html "shanghai world's best skyline") and the peerless Peace Hotel and its elegant Cathay Room Restaurant and Terrace is the finest place to see and experience this futuristic  architectural eye-candy with massive use of neon, even on the boats floating by. Some say this beloved landmark is the closest one will ever get to dining at the imperial Court.  
+The jaw-dropping dazzling view of the renowned Bund and extraordinary Pudong across the river, wowed even super [seasoned world travelers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "world traveling family") like us. Many say that [Shanghai has the world's best skyline](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/shanghai-skyline-worlds-best-.html "shanghai world's best skyline") and the peerless Peace Hotel and its elegant Cathay Room Restaurant and Terrace is the finest place to see and experience this futuristic  architectural eye-candy with massive use of neon, even on the boats floating by. Some say this beloved landmark is the closest one will ever get to dining at the imperial Court.  
   
   
 ![Fairmont Peace Hotel legendary luxury](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3740bfc5970b.jpg)  
@@ -33,7 +33,7 @@ The Fairmont Peace Hotel is old world luxury at it's best and the history of thi
 
   
   
-True to every Fairmont Hotel we have been to ( [San Francisco](http://soultravelers3new.local/2011/01/family-vacation-san-francisco-fairmont-review-family-friendly-best-luxury-hotel-with-kids.html "San francisco fairmont hotel review"), [Singapore](http://soultravelers3new.local/2011/03/top-hotel-for-luxury-fairmont-singapore.html "Singapore fairmont"), and [Beijing](http://soultravelers3new.local/2013/02/fairmont-beijing-5-star-luxury-hotel.html "beijing fairmont hotel")), the service was impeccable. We want to give a special thanks to Cherry Yu who went out of her way to make sure we had a dazzling time and warm, enthusiastic hotel General Manager Christophe Le Chatton. One can really sense the Fairmont family feeling and aim to please in every aspect of customer service.  
+True to every Fairmont Hotel we have been to ( [San Francisco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/family-vacation-san-francisco-fairmont-review-family-friendly-best-luxury-hotel-with-kids.html "San francisco fairmont hotel review"), [Singapore](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/03/top-hotel-for-luxury-fairmont-singapore.html "Singapore fairmont"), and [Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/fairmont-beijing-5-star-luxury-hotel.html "beijing fairmont hotel")), the service was impeccable. We want to give a special thanks to Cherry Yu who went out of her way to make sure we had a dazzling time and warm, enthusiastic hotel General Manager Christophe Le Chatton. One can really sense the Fairmont family feeling and aim to please in every aspect of customer service.  
   
 ![Fairmont Peace Hotel ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8e3b7ef970d.jpg)  
   
@@ -67,7 +67,7 @@ Look at that gorgeous claw-foot tub with bath side LCD screen, perfect for a bub
   
 ![Fairmont Peace Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3740d384970b.jpg)  
   
-We were blessed to visit on [Thanksgiving weekend](http://soultravelers3new.local/2012/11/thanksgiving-in-china.html "Thanksgiving in China"), and we started the first night in the meticulously refurbished Peace Hall which was once the heart of those extravagant galas and Parisian fashion shows in the twenties and thirties.  
+We were blessed to visit on [Thanksgiving weekend](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/thanksgiving-in-china.html "Thanksgiving in China"), and we started the first night in the meticulously refurbished Peace Hall which was once the heart of those extravagant galas and Parisian fashion shows in the twenties and thirties.  
   
   
 ![Fairmont Peace Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8e4e501970d.jpg)
@@ -131,7 +131,7 @@ We were surprised and delighted to run into innovative Chef J.W. Foster, who sto
   
 ![Fairmont Peace Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d41712051970c.jpg)  
   
-This was such a great way to start the day before [exploring Shanghai](http://soultravelers3new.local/2012/11/shanghai-with-kids.html "exploring shanhai with kids") and the [water villages](http://soultravelers3new.local/2012/12/visiting-a-beautiful-water-village-china-zhujiajio.html "beautiful water village in China near Shanghai") nearby.  
+This was such a great way to start the day before [exploring Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/shanghai-with-kids.html "exploring shanhai with kids") and the [water villages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/visiting-a-beautiful-water-village-china-zhujiajio.html "beautiful water village in China near Shanghai") nearby.  
   
 ![Fairmont Peace Hotel breakfast buffet](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3742005f970b.jpg)  
   
@@ -151,20 +151,3 @@ and the very best place to stay in Shanghai is at this lavish hotel. Thank you a
 
 Related articles
 
-[![](http://i.zemanta.com/142854027_80_80.jpg)](http://soultravelers3new.local/2013/02/fairmont-beijing-5-star-luxury-hotel.html)[Fairmont Beijing - 5 Star Luxury Hotel](http://soultravelers3new.local/2013/02/fairmont-beijing-5-star-luxury-hotel.html)
-
-[![](http://i.zemanta.com/145325476_80_80.jpg)](http://soultravelers3new.local/2013/02/top-10-most-romantic-cities-.html)[Top 10 Most Romantic Cities](http://soultravelers3new.local/2013/02/top-10-most-romantic-cities-.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/146409563_80_80.jpg)](http://soultravelers3new.local/2013/02/china-travel-20-interviews-soultravelers3-part-2.html)[China Travel 2.0 Interviews Soultravelers3 Part 2](http://soultravelers3new.local/2013/02/china-travel-20-interviews-soultravelers3-part-2.html)
-
-[![](http://i.zemanta.com/148118983_80_80.jpg)](http://soultravelers3new.local/2013/02/minimalist-family-frugal-tip-omg.html)[Minimalist Family - BEST Frugal Tip - OMG!](http://soultravelers3new.local/2013/02/minimalist-family-frugal-tip-omg.html)
-
-[![](http://i.zemanta.com/138225478_80_80.jpg)](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html)[World School - Education at it's Best](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html)
-
-[![](http://i.zemanta.com/148698346_80_80.jpg)](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html)[Escaping Winter in Tropical Asia!](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html)
-
-[![](http://i.zemanta.com/147221099_80_80.jpg)](http://soultravelers3new.local/2013/02/europes-rustic-old-world-charm-romantic-road.html)[Europe's Rustic old world charm - Romantic Road](http://soultravelers3new.local/2013/02/europes-rustic-old-world-charm-romantic-road.html)

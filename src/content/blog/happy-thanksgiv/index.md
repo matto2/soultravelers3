@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4790](http://soultravelers3new.local/images/2008/04/22/img_4790.png "Img_4790")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4790.png) Happy Thanksgiving Espana!  
+ [![Img_4790](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4790.png "Img_4790")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4790.png) Happy Thanksgiving Espana!  
 November 23, 2006
 
 We have so much to be grateful for on this  
@@ -15,7 +15,7 @@ happy to be able to talk to family at home
 
 <!--more-->
 
-[![Img_4790_2](http://soultravelers3new.local/images/2008/04/22/img_4790_2.png "Img_4790_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4790_2.png)
+[![Img_4790_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4790_2.png "Img_4790_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4790_2.png)
 
 We have so much to be grateful for on this holiday about gratitude! We were especially happy to be able to talk to family at home and share the holiday with them thru skype. It was wonderful for Mozart to be able to see Grandma’s face on our 15 inch PC screen as this is the very first Thanksgiving of her life that she was not at Grandma’s house for Turkey day. Nearing eighty years old and totally computer illiterate when we started the trip, Grandma (my mom) is now the resident expert on skype and using her webcam. She had practiced with my sister who only lives a few blocks away (and is a natural at computers and machinery with her love of civil engineering and race cars) so called us all by herself without a hitch. We were impressed!
 
@@ -74,18 +74,18 @@ My heart so full that it is hard to express it without coming across corny or po
 
 May each of you celebrate your many blessings even if you don’t celebrate this particular all American holiday, for every day is really one for giving thanks! Life is beautiful and like the movie with the same name (which is a fave of ours), it is always present for those with the eyes to see it. I am grateful for this opportunity to open my eyes in greater ways to the endless bounty of love  in my life.
 
-[![Img_4773](http://soultravelers3new.local/images/2008/04/22/img_4773.png "Img_4773")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4773.png)
+[![Img_4773](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4773.png "Img_4773")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4773.png)
 
-[![Img_4775](http://soultravelers3new.local/images/2008/04/22/img_4775.png "Img_4775")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4775.png)
+[![Img_4775](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4775.png "Img_4775")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4775.png)
 
-[![Img_4779](http://soultravelers3new.local/images/2008/04/22/img_4779.png "Img_4779")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4779.png)
+[![Img_4779](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4779.png "Img_4779")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4779.png)
 
-[![Img_4783](http://soultravelers3new.local/images/2008/04/22/img_4783.png "Img_4783")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4783.png)
+[![Img_4783](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4783.png "Img_4783")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4783.png)
 
-[![Img_4799](http://soultravelers3new.local/images/2008/04/22/img_4799.png "Img_4799")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4799.png)
+[![Img_4799](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4799.png "Img_4799")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4799.png)
 
-[![Img_4697](http://soultravelers3new.local/images/2008/04/22/img_4697.png "Img_4697")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4697.png)
+[![Img_4697](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4697.png "Img_4697")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4697.png)
 
-[![Img_4794](http://soultravelers3new.local/images/2008/04/22/img_4794.png "Img_4794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4794.png)
+[![Img_4794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4794.png "Img_4794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4794.png)
 
-[![Img_4791](http://soultravelers3new.local/images/2008/04/22/img_4791.png "Img_4791")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4791.png)
+[![Img_4791](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4791.png "Img_4791")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4791.png)

@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0983](http://soultravelers3new.local/images/2008/04/30/img_0983.png "Img_0983")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0983.png) Nuvi to New Country  
+ [![Img_0983](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0983.png "Img_0983")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0983.png) Nuvi to New Country  
 September 13, 2006
 
 We loooove our new nuvi GPS thing.  
@@ -15,7 +15,7 @@ this and waited to pick it up in Amsterdam
 
 <!--more-->
 
-[![Img_0983_2](http://soultravelers3new.local/images/2008/04/30/img_0983_2.png "Img_0983_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0983_2.png)
+[![Img_0983_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0983_2.png "Img_0983_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0983_2.png)
 
 We loooove our new nuvi GPS thing. WOW! We have never used anything like this and waited to pick it up in Amsterdam because that way it came with the European maps instead of U.S. maps which are pretty useless to us now. My job as navigator has never been so easy! Now the driving is so much less tense for both of us and our dear Princess Mozart also got to do lots of movie watching (The American girl Samantha movie) so quite the life of Riley for her too. (Her dvd player is not working so well here probably due to the converter, so she is using the mac here). We are relieved and happy that it went so well and was easy and fun.
 
@@ -33,6 +33,6 @@ Just before we left we met another couple (from Gainesville Florida) who just go
 I can not say enough about B&W campers as they were really terrific, every single person we met there with that company. Thank you Rene, Eddie, Richard, Honey, Marcos, Rolf, the girl from Poland (whose name  
 we do not know)! We could not have done this without your help and appreciate your kindness and service! Besides helping us with the camper, they did lots of other little things that helped us so much from allowing us to take a bunch of great books and maps, to recommending places,to allowing us to use their van one day, to making calls to places like the camera shop and customs for us talking in the local language helping to sort things out. It was like having a local friend or family to help us get a good start.
 
-[![Img_0644](http://soultravelers3new.local/images/2008/04/30/img_0644.png "Img_0644")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0644.png)
+[![Img_0644](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0644.png "Img_0644")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0644.png)
 
-[![Img_0645](http://soultravelers3new.local/images/2008/04/30/img_0645.png "Img_0645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0645.png)
+[![Img_0645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0645.png "Img_0645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0645.png)

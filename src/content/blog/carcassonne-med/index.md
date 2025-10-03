@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_3671](http://soultravelers3new.local/images/2008/04/24/img_3671.png "Img_3671")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3671.png) Carcassonne Medieval Castle  
+ [![Img_3671](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3671.png "Img_3671")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3671.png) Carcassonne Medieval Castle  
 October 23, 2006
 
 As we drove further south to our last stop  
@@ -15,7 +15,7 @@ of the lit up castle from our camper
 
 <!--more-->
 
-[![Img_3671_2](http://soultravelers3new.local/images/2008/04/24/img_3671_2.png "Img_3671_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3671_2.png)
+[![Img_3671_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3671_2.png "Img_3671_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3671_2.png)
 
 As we drove further south to our last stop in France, we were all wowed by the sight of the lit up castle from our camper windows as we arrived and drove along the road to our campsite. A very impressive medieval castle indeed,at least from this angle welcoming us at night. Certainly not something you see out your windshield in America, this almost 2500 year old sight. DaVinci and I have been to all the  Loire major castles and Versaille, so did not really need to see another castle in France. But this one is supposed to be good for children, so we went a bit out of our way to show Mozart this castle and a sense of life at that time. When we passed on Versaille on this trip, we added this possibility to our list. It is a coincidence that we were just reading about Charlemagne in the Story of the World and he has a history here.
 
@@ -33,22 +33,22 @@ It was the most crowded place that we have been so far and that was a surprise t
 
 It is souvenir haven so Mozart got a king, queen, princess and prince and played with them for much of the drive to Spain. She also found a candy shop, so it was a great day for her. Thats good because we had a long drive ahead.
 
-[![Img_3682](http://soultravelers3new.local/images/2008/04/24/img_3682.png "Img_3682")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3682.png)
+[![Img_3682](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3682.png "Img_3682")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3682.png)
 
-[![Img_3683](http://soultravelers3new.local/images/2008/04/24/img_3683.png "Img_3683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3683.png)
+[![Img_3683](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3683.png "Img_3683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3683.png)
 
-[![Img_3688](http://soultravelers3new.local/images/2008/04/24/img_3688.png "Img_3688")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3688.png)
+[![Img_3688](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3688.png "Img_3688")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3688.png)
 
-[![Img_3709](http://soultravelers3new.local/images/2008/04/24/img_3709.png "Img_3709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3709.png)
+[![Img_3709](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3709.png "Img_3709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3709.png)
 
-[![Img_3718](http://soultravelers3new.local/images/2008/04/24/img_3718.png "Img_3718")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3718.png)
+[![Img_3718](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3718.png "Img_3718")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3718.png)
 
-[![Img_3699](http://soultravelers3new.local/images/2008/04/24/img_3699.png "Img_3699")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3699.png)
+[![Img_3699](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3699.png "Img_3699")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3699.png)
 
-[![Img_3731](http://soultravelers3new.local/images/2008/04/24/img_3731.png "Img_3731")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3731.png)
+[![Img_3731](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3731.png "Img_3731")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3731.png)
 
-[![Img_3713](http://soultravelers3new.local/images/2008/04/24/img_3713.png "Img_3713")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3713.png)
+[![Img_3713](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3713.png "Img_3713")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3713.png)
 
-[![Img_3690](http://soultravelers3new.local/images/2008/04/24/img_3690.png "Img_3690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3690.png)
+[![Img_3690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3690.png "Img_3690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3690.png)
 
-[![Img_3680](http://soultravelers3new.local/images/2008/04/24/img_3680.png "Img_3680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3680.png)
+[![Img_3680](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3680.png "Img_3680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3680.png)

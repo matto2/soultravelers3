@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4542](http://soultravelers3new.local/images/2008/04/22/img_4542.png "Img_4542")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4542.png) First Flamenco Class  
+ [![Img_4542](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4542.png "Img_4542")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4542.png) First Flamenco Class  
 November 18, 2006
 
 Mozart was excited to go to her first  
@@ -15,7 +15,7 @@ Flamenco dancer.
 
 <!--more-->
 
-[![Img_4542_2](http://soultravelers3new.local/images/2008/04/22/img_4542_2.png "Img_4542_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4542_2.png)
+[![Img_4542_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4542_2.png "Img_4542_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4542_2.png)
 
 Mozart was excited to go to her first Flamenco class with a well known Flamenco dancer. We still have to buy her the black special top and long Flamenco skirt and shoes for class, but wanted to make sure she liked it before investing in them. Some of the girls like to wear the boys hats in class and they are cute too even tho not part of the tradition for girls (they sneak it from the teachers table). At six you can make up your own rules. One of the compelling things for a girl this age is the dance shoes have high heels!
 
@@ -41,6 +41,6 @@ This one has some good video, pictures along with more  information:
 
 We have been in love with Flamenco ever since we saw a live performance by some great performers from Spain while visiting Santa Fe, so we hope to learn more while living in its home environment.
 
-[![Img_4544](http://soultravelers3new.local/images/2008/04/22/img_4544.png "Img_4544")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4544.png)
+[![Img_4544](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4544.png "Img_4544")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4544.png)
 
-[![Img_4540](http://soultravelers3new.local/images/2008/04/22/img_4540.png "Img_4540")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4540.png)
+[![Img_4540](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4540.png "Img_4540")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4540.png)

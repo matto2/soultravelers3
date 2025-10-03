@@ -30,7 +30,7 @@ with it's  traditonal Tibetan-
 ![bhutan vacation dragon kingdom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e88e33ea7970d.jpg)  
   
   
-[Travel to Bhutan](http://soultravelers3new.local/2011/05/travel-to-bhutan-.html "travel to bhutan"), The Dragon Kingdom of the Himalayas with it's unspoiled traditional [Tibetan-style culture](http://soultravelers3new.local/2011/05/buddhist-bhutan-bliss.html "tibetan buddhist culture"), breathtaking architecture, rich history, outrageous trekking and pristine forests with outstanding flora and fauna... is like no other place on earth.  
+[Travel to Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/travel-to-bhutan-.html "travel to bhutan"), The Dragon Kingdom of the Himalayas with it's unspoiled traditional [Tibetan-style culture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/buddhist-bhutan-bliss.html "tibetan buddhist culture"), breathtaking architecture, rich history, outrageous trekking and pristine forests with outstanding flora and fauna... is like no other place on earth.  
   
 ![travel to Bhutan for awesome landscapes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432c33da8970c.jpg)  
   
@@ -41,7 +41,7 @@ Based on questions that I have been receiving there seems to be many myths about
   
   
   
-**MYTH** - [Travel to Bhutan](http://soultravelers3new.local/2011/05/bhutan-travel-mother-and-child-photo.html "travel to Bhutan") is expensive  
+**MYTH** - [Travel to Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/bhutan-travel-mother-and-child-photo.html "travel to Bhutan") is expensive  
   
 **FACT** - It really depends on how you look at it.  
   
@@ -49,7 +49,7 @@ It is true there is no backpacker-style independent travel because once you arri
   
 There is a government mandated minimum $US200 per day fee that makes many people react with surprise. **BUT look again**, that includes all costs including lodging, driver, transportaion, guides and porters, entrance fees to cultural sites and programs, all food and you can arrange your own itinerary, plus you do not have to travel with a group.  
   
-So if you are a backpacker use to ten dollar a night super low budget lodging in Asia and living on street food, Bhutan is going to be too expensive, but for most working folks on a two week vacation, Bhutan can be a pretty good deal and less expensive than a typical vacation in Paris or Tokyo plus it's a much more incomparable experience. There is a reason why Bhutan has become the trendiest and exclusive destination. We've been [all over the world](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world travel") and found Bhutan to be one-of-a kind.  
+So if you are a backpacker use to ten dollar a night super low budget lodging in Asia and living on street food, Bhutan is going to be too expensive, but for most working folks on a two week vacation, Bhutan can be a pretty good deal and less expensive than a typical vacation in Paris or Tokyo plus it's a much more incomparable experience. There is a reason why Bhutan has become the trendiest and exclusive destination. We've been [all over the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "around the world travel") and found Bhutan to be one-of-a kind.  
   
 "Tourism is a like a fire, you can cook your dinner on it, or it can burn your house down.” Asian proverb  
   
@@ -70,13 +70,13 @@ So if you are a backpacker use to ten dollar a night super low budget lodging in
 ![Bhutan travel means prayer flags and green mountain views](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432c3a50e970c.jpg)  
   
   
-We were sponsored guests of the [Tourism Council of Bhutan](http://www.tourism.gov.bt/ "tourism coucil of Bhutan") who invited us via email ( out of the blue) and we were very honored to be the first travel bloggers invited to visit this stunning country. It was on our long term big bucket list, but we were not thinking about doing it just now, yet we're so grateful we got to experience this exqusite country and loving people at this juncture in time and hope to visit again. Like my recent post [about Jordan](http://soultravelers3new.local/2011/05/jordan-tourismsmartest-.html "jordan tourism and social media"), we also think Bhutan is one of the smartest tourism boards and it is not just because they both invited us.  
+We were sponsored guests of the [Tourism Council of Bhutan](http://www.tourism.gov.bt/ "tourism coucil of Bhutan") who invited us via email ( out of the blue) and we were very honored to be the first travel bloggers invited to visit this stunning country. It was on our long term big bucket list, but we were not thinking about doing it just now, yet we're so grateful we got to experience this exqusite country and loving people at this juncture in time and hope to visit again. Like my recent post [about Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/jordan-tourismsmartest-.html "jordan tourism and social media"), we also think Bhutan is one of the smartest tourism boards and it is not just because they both invited us.  
   
 ![Bhutan young monks at a monastery](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538ef0ddc0970b.jpg)  
   
   
   
-[Travel has become our life](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html " family travel lifestyle"), so we pay attention to who is doing it well and we have a special place in our heart for responsible travel and sustainable, eco- friendly living because we want Mozart's generation and her kids and grand kids etc. to enjoy travel and this planet like we have.  
+[Travel has become our life](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html " family travel lifestyle"), so we pay attention to who is doing it well and we have a special place in our heart for responsible travel and sustainable, eco- friendly living because we want Mozart's generation and her kids and grand kids etc. to enjoy travel and this planet like we have.  
   
 Before accepting, we looked at the history of Bhutan tourism and the unique, honorable way the country is run which is really impressive in today's world. Unlike nearby Nepal with it's famous Hippie Trail and Freak Street in Kathmandu where western flower children smoked pot and lived on two dollars a day in the sixties, Bhutan only opened it's doors to tourism in the late seventies and had a total of 250 tourist visa's in 1979. 
   
@@ -90,6 +90,6 @@ While many other countries around the world have allowed tourism to compromise a
   
   
   
-It's a country of many surprises that is bridging the gap between the past and the future perhaps better than anyone, putting people's happiness and protecting the environment and culture first.  [Visiting Bhutan is worth it](http://soultravelers3new.local/2011/05/family-vacation-in-bhutan.html "Visiting Bhutan") on so many levels, thus I hope you get the opportunity yourself to visit this magical and mysterious place and sort out your own myths and facts.  
+It's a country of many surprises that is bridging the gap between the past and the future perhaps better than anyone, putting people's happiness and protecting the environment and culture first.  [Visiting Bhutan is worth it](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/family-vacation-in-bhutan.html "Visiting Bhutan") on so many levels, thus I hope you get the opportunity yourself to visit this magical and mysterious place and sort out your own myths and facts.  
   
 Please feel free to add anymore questions in the comments!

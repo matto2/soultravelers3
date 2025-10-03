@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0160](http://soultravelers3new.local/images/2008/05/06/img_0160.png "Img_0160")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0160.png) Divine Cheese and Cream Puffs  
+ [![Img_0160](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0160.png "Img_0160")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0160.png) Divine Cheese and Cream Puffs  
 August 29, 2006
 
 We had our first adventure taking the tram  
@@ -15,7 +15,7 @@ That doesn’t sound too adventurous but
 
 <!--more-->
 
-[![Img_0160_2](http://soultravelers3new.local/images/2008/05/06/img_0160_2.png "Img_0160_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0160_2.png)
+[![Img_0160_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0160_2.png "Img_0160_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0160_2.png)
 
 We had our first adventure taking the tram into Amsterdam from the campground. That doesn’t sound too adventurous but it was just enough challenge to be fun. We had a nice hike over a long bridge to where we caught the tram and we all enjoyed the walk and hike. We got a tiny bit twisted by our map and almost went the wrong way, but a lovely lady on a bike helped turn us in the right direction.
 
@@ -48,6 +48,6 @@ They also have the most wonderful and unique playgrounds in the Netherlands. We 
 
 After doing our errands, moseying around the city, playing on unique playgrounds, munching on delights and basking in outdoor cafes we did the obligatory canal boat tourist ride and enjoyed learning a little as we went. We enjoyed our trek home and felt very satisfied with ourselves as we savored a little more of that cheese before bed.
 
-[![Img_0428](http://soultravelers3new.local/images/2008/05/06/img_0428.png "Img_0428")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0428.png)
+[![Img_0428](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0428.png "Img_0428")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0428.png)
 
-[![Img_0426](http://soultravelers3new.local/images/2008/05/06/img_0426.png "Img_0426")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0426.png)
+[![Img_0426](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0426.png "Img_0426")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0426.png)

@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_1250](http://soultravelers3new.local/images/2008/04/30/img_1250.png "Img_1250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1250.png) Paris! Bois de Boulogne  
+ [![Img_1250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1250.png "Img_1250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1250.png) Paris! Bois de Boulogne  
 September 23, 2006
 
 Royalty use to hunt in the beautiful 25  
@@ -15,7 +15,7 @@ and today, here we are camping in it along
 
 <!--more-->
 
-[![Img_1250_2](http://soultravelers3new.local/images/2008/04/30/img_1250_2.png "Img_1250_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1250_2.png)
+[![Img_1250_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1250_2.png "Img_1250_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1250_2.png)
 
 Royalty use to hunt in the beautiful 25 acres that is now Bois de Boulogne in Paris and today, here we are camping in it along the Seine! Where else can you get a huge space to stay in Paris for twenty something dollars (even much less for tent campers)? It is not a secret as it is on 7 hectars just 15 minutes from the Champs-Elysees open 365 days a year with its own store, restaurant, take out food, rentals etc and has 435 pitches for camping and is usually pretty full. You can also rent campers here if you do not have one, reserve ahead tho if it is high season.
 
@@ -29,22 +29,22 @@ We also plan to do at least one children’s literature based Paris itinerary on
 
 I got some shots of the camp at our first sunset in Paris upon our arrival as it sets on the Seine just behind our camper as we settle in. Every day Mozart enjoyed walking on that ledge on the way to the camp store, playing in the trees, eating outside, playing in the little playground with the Eiffel Tower in the distance as we waited for the bus.
 
-[![Img_1243](http://soultravelers3new.local/images/2008/04/30/img_1243.png "Img_1243")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1243.png)
+[![Img_1243](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1243.png "Img_1243")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1243.png)
 
-[![Img_1244](http://soultravelers3new.local/images/2008/04/30/img_1244.png "Img_1244")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1244.png)
+[![Img_1244](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1244.png "Img_1244")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1244.png)
 
-[![Img_1256](http://soultravelers3new.local/images/2008/04/30/img_1256.png "Img_1256")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1256.png)
+[![Img_1256](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1256.png "Img_1256")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1256.png)
 
-[![Img_1253](http://soultravelers3new.local/images/2008/04/30/img_1253.png "Img_1253")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1253.png)
+[![Img_1253](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1253.png "Img_1253")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1253.png)
 
-[![Img_1621](http://soultravelers3new.local/images/2008/04/30/img_1621.png "Img_1621")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1621.png)
+[![Img_1621](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1621.png "Img_1621")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1621.png)
 
-[![Img_1459](http://soultravelers3new.local/images/2008/04/30/img_1459.png "Img_1459")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1459.png)
+[![Img_1459](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1459.png "Img_1459")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1459.png)
 
-[![Img_1697](http://soultravelers3new.local/images/2008/04/30/img_1697.png "Img_1697")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1697.png)
+[![Img_1697](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1697.png "Img_1697")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1697.png)
 
-[![Img_1844](http://soultravelers3new.local/images/2008/04/30/img_1844.png "Img_1844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1844.png)
+[![Img_1844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1844.png "Img_1844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1844.png)
 
-[![Img_2025](http://soultravelers3new.local/images/2008/04/30/img_2025.png "Img_2025")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_2025.png)
+[![Img_2025](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_2025.png "Img_2025")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_2025.png)
 
-[![Img_1949](http://soultravelers3new.local/images/2008/04/30/img_1949.png "Img_1949")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1949.png)
+[![Img_1949](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_1949.png "Img_1949")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_1949.png)

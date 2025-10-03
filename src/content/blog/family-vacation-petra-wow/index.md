@@ -26,9 +26,9 @@ on my "bucket list",
 
 ![family vacation Petra Wow](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f10284a970b.jpg)
 
-Family friendly? Fun for kids? [Petra](http://en.wikipedia.org/wiki/Petra "Petra"), Jordan has long been on my "bucket list", but little did I know that it is a perfect [family vacation](http://soultravelers3new.local/2011/05/jordan-tourismsmartest-.html#more "Jordan family vacation") destination. Out of all the amazing and diverse places that we saw in Jordan, Petra was my personal favorite.  
+Family friendly? Fun for kids? [Petra](http://en.wikipedia.org/wiki/Petra "Petra"), Jordan has long been on my "bucket list", but little did I know that it is a perfect [family vacation](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/jordan-tourismsmartest-.html#more "Jordan family vacation") destination. Out of all the amazing and diverse places that we saw in Jordan, Petra was my personal favorite.  
   
-It is THE breathtaking iconic site in [Jordan](http://en.wikipedia.org/wiki/Jordan "Jordan") and more than lives up to it's mystical and magical reputation. Kids and parents alike will love magnificent Petra. No fears either, [Jordan is a very safe](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "jordan is safe for family travel"), welcoming  and peaceful place.  
+It is THE breathtaking iconic site in [Jordan](http://en.wikipedia.org/wiki/Jordan "Jordan") and more than lives up to it's mystical and magical reputation. Kids and parents alike will love magnificent Petra. No fears either, [Jordan is a very safe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/jordan-family-travel-is-it-safe.html "jordan is safe for family travel"), welcoming  and peaceful place.  
   
   
 
@@ -38,13 +38,13 @@ It is THE breathtaking iconic site in [Jordan](http://en.wikipedia.org/wiki/Jord
   
 "...match me such a marvel, save in Eastern clime, A rose-red city, half as old as time" Petra by Dean Burgen  
   
-Petra rocks! And sometimes in [Jordan family travel](http://soultravelers3new.local/2011/06/cooking-at-four-seasons-amman.html "jordan family travel"), that means literally.... like when riding a camel around the stunning landscape of ancient Petra or taking the colorful  horse cart in. This really added to the excitement and our ten year old adored both and came up with the great idea to play her [violin on top of the camel in front of the Treasury.](http://www.youtube.com/watch?v=Vobwwib8dic "girl on camel playing violin in Petra ") Wow!  
+Petra rocks! And sometimes in [Jordan family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/cooking-at-four-seasons-amman.html "jordan family travel"), that means literally.... like when riding a camel around the stunning landscape of ancient Petra or taking the colorful  horse cart in. This really added to the excitement and our ten year old adored both and came up with the great idea to play her [violin on top of the camel in front of the Treasury.](http://www.youtube.com/watch?v=Vobwwib8dic "girl on camel playing violin in Petra ") Wow!  
   
 ![Our girl playing violin on camel at Petra](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e8903cab8970d.jpg)  
   
   
   
-Talk about making history come alive, experiential, hands on learning  and immersing in the culture. Could there be a better [educational](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "education while traveling") or [unschooling](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "unschooling travel") assignment than this, which was both a blast and informative? Petra was a unique and enriching experience that our 10 year old  daughter will never forget because there is no other place like it on earth.  
+Talk about making history come alive, experiential, hands on learning  and immersing in the culture. Could there be a better [educational](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "education while traveling") or [unschooling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "unschooling travel") assignment than this, which was both a blast and informative? Petra was a unique and enriching experience that our 10 year old  daughter will never forget because there is no other place like it on earth.  
   
 ![Jordan musician at Petra](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015432e45950970c.jpg)  
   

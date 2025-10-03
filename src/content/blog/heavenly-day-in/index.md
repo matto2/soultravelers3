@@ -6,7 +6,7 @@ categories:
   - "blog"
 ---
 
- [![Img_0794](http://soultravelers3new.local/images/2008/04/30/img_0794.png "Img_0794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0794.png) Heavenly Day in Brugge  
+ [![Img_0794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0794.png "Img_0794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0794.png) Heavenly Day in Brugge  
 September 15, 2006
 
 Our second day in Brugge was even better  
@@ -15,7 +15,7 @@ beautiful shots that I don’t know how I
 
 <!--more-->
 
-[![Img_0794_2](http://soultravelers3new.local/images/2008/04/30/img_0794_2.png "Img_0794_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0794_2.png)
+[![Img_0794_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0794_2.png "Img_0794_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0794_2.png)
 
 Our second day in Brugge was even better than the first and we have soooo many beautiful shots that I don’t know how I will ever narrow it down. There are just too many pretty things to show you. The weather was a perfect  sunny autumn day that still feels like summer but without the crowds or extreme heat.
 
@@ -26,24 +26,24 @@ We are hearing lots more French here along with Flemish which sounds just like D
 It is funny how one just gets use to everybody talking in several languages and how valuable it is to have  
 a few in a place like this. One night I was waiting outside trying to connect with the receptionist with an older French woman who was also waiting for the same thing. We did not speak hardly a word of the others language, but still managed to communicate and several people came by who spoke various languages and we all muttered thru some. It was heartening to observe. It is amazing how the bus drivers, waiters, clerks etc all seem to know at least three languages, but one can also see how that happens with the necessity here.
 
-[![Img_0874](http://soultravelers3new.local/images/2008/04/30/img_0874.png "Img_0874")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0874.png)
+[![Img_0874](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0874.png "Img_0874")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0874.png)
 
-[![Img_0942](http://soultravelers3new.local/images/2008/04/30/img_0942.png "Img_0942")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0942.png)
+[![Img_0942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0942.png "Img_0942")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0942.png)
 
-[![Img_0958](http://soultravelers3new.local/images/2008/04/30/img_0958.png "Img_0958")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0958.png)
+[![Img_0958](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0958.png "Img_0958")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0958.png)
 
-[![Img_0712](http://soultravelers3new.local/images/2008/04/30/img_0712.png "Img_0712")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0712.png)
+[![Img_0712](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0712.png "Img_0712")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0712.png)
 
-[![Img_0913](http://soultravelers3new.local/images/2008/04/30/img_0913.png "Img_0913")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0913.png)
+[![Img_0913](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0913.png "Img_0913")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0913.png)
 
-[![Img_0852](http://soultravelers3new.local/images/2008/04/30/img_0852.png "Img_0852")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0852.png)
+[![Img_0852](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0852.png "Img_0852")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0852.png)
 
-[![Img_0847](http://soultravelers3new.local/images/2008/04/30/img_0847.png "Img_0847")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0847.png)
+[![Img_0847](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0847.png "Img_0847")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0847.png)
 
-[![Img_0814](http://soultravelers3new.local/images/2008/04/30/img_0814.png "Img_0814")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0814.png)
+[![Img_0814](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0814.png "Img_0814")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0814.png)
 
-[![Img_0702](http://soultravelers3new.local/images/2008/04/30/img_0702.png "Img_0702")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0702.png)
+[![Img_0702](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0702.png "Img_0702")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0702.png)
 
-[![Img_0716](http://soultravelers3new.local/images/2008/04/30/img_0716.png "Img_0716")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0716.png)
+[![Img_0716](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0716.png "Img_0716")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0716.png)
 
-[![Img_0805](http://soultravelers3new.local/images/2008/04/30/img_0805.png "Img_0805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0805.png)
+[![Img_0805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0805.png "Img_0805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0805.png)

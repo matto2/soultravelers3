@@ -44,9 +44,9 @@ DaVinci took Rickshaw photos
 <!--more-->  
 ![Fabulous Colorful Rickshaw Art Photo Essay](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07ddc7ac970d.png)  
   
-[Living in Asia](http://soultravelers3new.local/2012/05/living-in-asia.html "living in Asia") , during our 9 year non-stop [Around-the-World trip](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "around-the-world trip family"). DaVinci took [rickshaw photos](http://soultravelers3new.local/2011/01/family-travel-asia-photo-georgetown-malaysia.html "rickshaw photo") around [Penang](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "Penang rental") as he [walked all over](http://soultravelers3new.local/2012/08/walking-in-asia.html "walking all over Asia") UNESCO Heritage Site, [Georgetown](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Georgetown, Penang Unesco heritage site"), to handle our errands.  
+[Living in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/05/living-in-asia.html "living in Asia") , during our 9 year non-stop [Around-the-World trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "around-the-world trip family"). DaVinci took [rickshaw photos](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/family-travel-asia-photo-georgetown-malaysia.html "rickshaw photo") around [Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "Penang rental") as he [walked all over](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/walking-in-asia.html "walking all over Asia") UNESCO Heritage Site, [Georgetown](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Georgetown, Penang Unesco heritage site"), to handle our errands.  
   
-These colorful photos, like our [coconut rickshaw photo](http://soultravelers3new.local/2012/08/awesome-asian-coconut-rickshaw-photo.html "coconut rickshaw photo"), says everything about Asia. Truly, a picture is worth a thousand words.  
+These colorful photos, like our [coconut rickshaw photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/awesome-asian-coconut-rickshaw-photo.html "coconut rickshaw photo"), says everything about Asia. Truly, a picture is worth a thousand words.  
   
 ![Fabulous Colorful Rickshaw Art Photo ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0c3a6f2970c.png)  
   
@@ -93,8 +93,3 @@ These colorful photos, like our [coconut rickshaw photo](http://soultravelers3ne
 
 Related articles
 
-[![](http://i.zemanta.com/318394906_80_80.jpg)](http://soultravelers3new.local/2014/12/cut-your-own-christmas-tree-sustainable-family-fun-tradition.html)[Cut Your Own Christmas Tree! Sustainable Family Fun Tradition](http://soultravelers3new.local/2014/12/cut-your-own-christmas-tree-sustainable-family-fun-tradition.html)
-
-[![](http://i.zemanta.com/322011446_80_80.jpg)](http://soultravelers3new.local/2015/01/buy-mozarts-song-youre-not-alone-on-itunes-googleplay-or-amazon-.html)[Buy Mozart's Song "You're Not Alone" on Itunes, GooglePlay or Amazon!](http://soultravelers3new.local/2015/01/buy-mozarts-song-youre-not-alone-on-itunes-googleplay-or-amazon-.html)
-
-[![](http://i.zemanta.com/317983075_80_80.jpg)](http://soultravelers3new.local/2014/12/polar-express-grand-canyon-adventure.html)[Polar Express Grand Canyon Adventure!](http://soultravelers3new.local/2014/12/polar-express-grand-canyon-adventure.html)

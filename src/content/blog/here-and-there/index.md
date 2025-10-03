@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0295](http://soultravelers3new.local/images/2008/04/30/img_0295.png "Img_0295")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0295.png) Here and There  
+ [![Img_0295](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0295.png "Img_0295")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0295.png) Here and There  
 September 12, 2006
 
 One can not help but continually compare  
@@ -15,7 +15,7 @@ and what is alike and what is different.
 
 <!--more-->
 
-[![Img_0295_2](http://soultravelers3new.local/images/2008/04/30/img_0295_2.png "Img_0295_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0295_2.png)
+[![Img_0295_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0295_2.png "Img_0295_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0295_2.png)
 
 One can not help but continually compare the differences between home and here and what is alike and what is different. There are moments that I almost forget I am in Europe now. Sitting at a playground here is not much different than home. At first the uniqueness of our favorite playground in Amsterdam made it feel different and certainly hearing everybody talk in a different language added to that, but as we have become regulars, we find it not so different than doing the same thing at home. Mozart has the same ease of making friends despite not speaking the language. The same with grocery stores, dealing in Euros and many other things, one shifts quite easy and naturally to the new reality.
 
@@ -68,14 +68,14 @@ Here and there. The same and different. Just observations, food for thought  an
   
   
 
-[![Img_0625](http://soultravelers3new.local/images/2008/04/30/img_0625.png "Img_0625")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0625.png)
+[![Img_0625](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0625.png "Img_0625")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0625.png)
 
-[![Img_0611](http://soultravelers3new.local/images/2008/04/30/img_0611.png "Img_0611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0611.png)
+[![Img_0611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0611.png "Img_0611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0611.png)
 
-[![Img_0612](http://soultravelers3new.local/images/2008/04/30/img_0612.png "Img_0612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0612.png)
+[![Img_0612](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0612.png "Img_0612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0612.png)
 
-[![Img_0617](http://soultravelers3new.local/images/2008/04/30/img_0617.png "Img_0617")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0617.png)
+[![Img_0617](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0617.png "Img_0617")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0617.png)
 
-[![Img_0614](http://soultravelers3new.local/images/2008/04/30/img_0614.png "Img_0614")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0614.png)
+[![Img_0614](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0614.png "Img_0614")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0614.png)
 
-[![Img_0618](http://soultravelers3new.local/images/2008/04/30/img_0618.png "Img_0618")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0618.png)
+[![Img_0618](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0618.png "Img_0618")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0618.png)

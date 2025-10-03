@@ -20,7 +20,7 @@ singer Mozart left the huge stage of
 <!--more-->  
 ![travel teen Mozart sings like a Pop star!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dd3253b970d.png)  
   
-"Amazing performance. She has the whole package" they remarked as [singer Mozart](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "singer mozart") left the huge stage of the [famous Gas Monkey,](http://gasmonkeybarngrill.com/ "gas monkey bar n grill stage") one of the hottest venues in Dallas, Texas where stars like Willie Nelson play nightly.  
+"Amazing performance. She has the whole package" they remarked as [singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "singer mozart") left the huge stage of the [famous Gas Monkey,](http://gasmonkeybarngrill.com/ "gas monkey bar n grill stage") one of the hottest venues in Dallas, Texas where stars like Willie Nelson play nightly.  
   
 ( It's owned by TV star [Richard Rawlings](http://www.dmagazine.com/publications/d-magazine/2013/september/interview-richard-rawlings-of-fast-n-loud "richard rawlings") of [Discovery Channel](http://www.discovery.com/ "disovery channel")'s hit show [Fast n' Loud](http://www.discovery.com/tv-shows/fast-n-loud "fast n loud show") [fame](http://www.gasmonkeygarage.com/ "gas monkey garage")).  
   
@@ -37,7 +37,7 @@ Please spread this video and leave comments!
   
 **PROUD AND SHOCKED**  
   
-As proud as we were of her and all the great compliments and audience reaction, I must admit we were all a bit shocked to see our 13 year old in make up and looking so much like a real pop sensation. [Mozart](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html "Mozart talented singer songwriter musician") was even shocked when she looked in the mirror.  
+As proud as we were of her and all the great compliments and audience reaction, I must admit we were all a bit shocked to see our 13 year old in make up and looking so much like a real pop sensation. [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/tween-is-a-talented-singer-songwriter.html "Mozart talented singer songwriter musician") was even shocked when she looked in the mirror.  
   
 **BRAND NEW TO PERFORMING**  
   
@@ -51,7 +51,7 @@ I've got a whole story coming about the make up, done by the best in Dallas, the
   
 **CHILDHOOD MELTS INTO TEEN YEARS**  
   
-One reader told me she felt some melancholy in watching this video because she would miss meeting Mozart as a young child. I can understand that melancholy. I feel her [childhood slipping through my fingers](http://soultravelers3new.local/2012/09/mother-daughter-bonding-tips-for-tweens.html "mother daughter bonding tips for teens") fast these days as she heads towards fourteen this fall.   
+One reader told me she felt some melancholy in watching this video because she would miss meeting Mozart as a young child. I can understand that melancholy. I feel her [childhood slipping through my fingers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/mother-daughter-bonding-tips-for-tweens.html "mother daughter bonding tips for teens") fast these days as she heads towards fourteen this fall.   
   
 **LITTLE GIRL SIZE**  
   
@@ -75,7 +75,7 @@ This video was only done last December, five months ago and she seems about the 
   
 **MUSIC, ACTING, ART INSPIRATION**  
   
-Her big goal is still about changing the world and spreading light through her music, speaking, acting and art. This is the time of her life when she learns her craft and all that it takes to become an artist and has many advantages through her [homeschool](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html "homeschool high school") freedom to lean into things and learn by doing.  
+Her big goal is still about changing the world and spreading light through her music, speaking, acting and art. This is the time of her life when she learns her craft and all that it takes to become an artist and has many advantages through her [homeschool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/homeschool-high-school-and-world-travel.html "homeschool high school") freedom to lean into things and learn by doing.  
   
 We believe the artist is a servant for humanity and one can minister through music and the arts.  
   
@@ -85,7 +85,7 @@ Mozart writes songs every day, did 30 last month, and writes them in 3 languages
   
 **TRAVEL LIFESTYLE IMPACTS**  
   
-Her [travel lifestyle](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled child in the world") can't help but impact her music and global view point.  
+Her [travel lifestyle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled child in the world") can't help but impact her music and global view point.  
   
 
 <iframe allowfullscreen src="//www.youtube.com/embed/32bVaNasZyU?rel=0" frameborder="0" height="480" width="640"></iframe>
@@ -111,7 +111,7 @@ Mozart has always had a passion for music, really from birth. She even did a pla
   
 **OPERA, SHAKESPEARE AND VIOLIN**  
   
-She asked for opera at just a year old and probably has seen more opera and Shakespeare than any toddler/preschooler on record, all because we followed her lead. She begged for violin lessons ( because all the kids in our country neighborhood studied with Yale grad and [amazing teache](http://soultravelers3new.local/2006/09/more-chocolate.html.%20 "chocolate violin ")r [Lisa Barca-Hall](http://barcahall.com/violin/ "lisa barca-hall")) and we got permission to start at just 21 months old because she was ready, an exception as most can't start until three.  
+She asked for opera at just a year old and probably has seen more opera and Shakespeare than any toddler/preschooler on record, all because we followed her lead. She begged for violin lessons ( because all the kids in our country neighborhood studied with Yale grad and [amazing teache](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/more-chocolate.html.%20 "chocolate violin ")r [Lisa Barca-Hall](http://barcahall.com/violin/ "lisa barca-hall")) and we got permission to start at just 21 months old because she was ready, an exception as most can't start until three.  
   
 ![Mozart at 2 playing violin performance - eyes intent on teachers instructions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511c7e0d9970c.png)  
   
@@ -143,7 +143,7 @@ We've long been passionate about Attachment parenting and think that principal i
   
 **TEEN AS TEACHER, SPEAKER, SINGER AND ENTREPRENEUR**  
   
-Mozart is already an entrepreneur, [public speaker](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "public speaker mozart trilingual travel teen") and [language teacher](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "language teacher teen Mozart best") and we believe in a child's  natural ability to teach themselves and design a personalized education program that is specific to the child or teen.  
+Mozart is already an entrepreneur, [public speaker](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "public speaker mozart trilingual travel teen") and [language teacher](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "language teacher teen Mozart best") and we believe in a child's  natural ability to teach themselves and design a personalized education program that is specific to the child or teen.  
   
 She is interested in a duo track now of combining singing AND preparing for a top University like Harvard, Stanford, Yale, MIT, Oxford etc..Luckily now, she has met [amazing singer](http://www.youtube.com/user/MadisonGreerMusic "amazing singer madison Greer") 22 year old [Madison Greer](http://news.harvard.edu/gazette/story/2012/02/madison-greer-solo-artist-video/ "Madison Greer") who just graduated from Harvard, is a beautiful person and role model and sat next to us at the Gas Monkey show as one of the judges.  
   
@@ -186,22 +186,3 @@ How have you been supported in your talents? Do you think teens should take risk
 
 Related articles
 
-[![](http://i.zemanta.com/243671903_80_80.jpg)](http://soultravelers3new.local/2014/01/winter-road-trip-americas-southwest-.html)[Winter Road Trip - America's Southwest](http://soultravelers3new.local/2014/01/winter-road-trip-americas-southwest-.html)
-
-[![](http://i.zemanta.com/255447587_80_80.jpg)](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)[Mozart - Beautiful Teen Singer, Songwriter, Musician](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)
-
-[![](http://i.zemanta.com/261038051_80_80.jpg)](http://soultravelers3new.local/2014/03/13-year-old-mozart-sings-time-after-time.html)[13 Year Old Mozart Sings Time After Time](http://soultravelers3new.local/2014/03/13-year-old-mozart-sings-time-after-time.html)
-
-[![](http://i.zemanta.com/249776674_80_80.jpg)](http://soultravelers3new.local/2014/02/dallas-luxury-resort-arriving-to-big-d-in-style.html)[Dallas Luxury Resort - "Big D" Arrival in Style!](http://soultravelers3new.local/2014/02/dallas-luxury-resort-arriving-to-big-d-in-style.html)
-
-[![](http://i.zemanta.com/91218951_80_80.jpg)](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)[Advice to College Grads From a World Traveler](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)
-
-[![](http://i.zemanta.com/264138071_80_80.jpg)](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)[Bora Bora Dream Vacation on a Low Budget](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/248764474_80_80.jpg)](http://soultravelers3new.local/2014/02/home-school-science-unschool-and-world-school-tips.html)[Home school Science - Unschool and World School Tips](http://soultravelers3new.local/2014/02/home-school-science-unschool-and-world-school-tips.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/242410534_80_80.jpg)](http://soultravelers3new.local/2014/01/gluten-free-yummy-chocolate-cake.html)[Gluten-Free Yummy Chocolate Cake](http://soultravelers3new.local/2014/01/gluten-free-yummy-chocolate-cake.html)

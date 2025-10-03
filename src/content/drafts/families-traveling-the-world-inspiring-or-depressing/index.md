@@ -20,7 +20,7 @@ One no longer has to buy the myth that travel is expensive and one has to be ric
   
 We have been traveling the world as a family ( and very green, minimalist style) to 43 countries on 5 continents on just $23/day...going on 6 years now! (Yes, even expensive places like Bora Bora, Bhutan and Europe). I wrote this popular post on how to do extended travel full of valuable links and info:  
   
-http://soultravelers3new.local/2008/06/how-to-do-exten.html  
+https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html  
   
 We travel the world for MUCH cheaper than we lived at home. We are monolinguals raising a fluent as a native trilingual/triliterate ( Mandarin, Spanish, English) kid who speaks bits of many languages.  
   

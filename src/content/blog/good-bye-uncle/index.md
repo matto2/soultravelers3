@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2051](http://soultravelers3new.local/images/2008/04/26/img_2051.png "Img_2051")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2051.png) Good bye Uncle Bill  
+ [![Img_2051](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2051.png "Img_2051")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2051.png) Good bye Uncle Bill  
 October 16, 2006
 
 We called home to hear very sad news   
@@ -15,7 +15,7 @@ happened suddenly after years of
 
 <!--more-->
 
-[![Img_2051_2](http://soultravelers3new.local/images/2008/04/26/img_2051_2.png "Img_2051_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2051_2.png)
+[![Img_2051_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2051_2.png "Img_2051_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2051_2.png)
 
   
 We called home to hear very sad news  about a beloved uncles death which happened suddenly after years  

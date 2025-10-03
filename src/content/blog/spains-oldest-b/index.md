@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Img_7983_2](http://soultravelers3new.local/images/2008/04/17/img_7983_2.png "Img_7983_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7983_2.png) Spain's Oldest Bullring  
+[![Img_7983_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7983_2.png "Img_7983_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7983_2.png) Spain's Oldest Bullring  
 February 24, 2007
 
 We all just loved Spain’s oldest bullring in  
@@ -15,7 +15,7 @@ beautiful and a great introduction to the
 
 <!--more-->
 
-[![Img_7983_3](http://soultravelers3new.local/images/2008/04/17/img_7983_3.png "Img_7983_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7983_3.png)
+[![Img_7983_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7983_3.png "Img_7983_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7983_3.png)
 
 We all just loved Spain’s oldest bullring in Ronda! Plaza De Toros was astonishingly beautiful and a great introduction to the culture. It is an exquisite neoclassical design with double arches supported by many columns. Generations of  Ronda’s famous Romero family were crucial in establishing bullfighting as it is known today. Grandpa Jess has always enjoyed bullfighting on TV, so this was a “must see”.
 
@@ -34,24 +34,24 @@ We were surprised to see one matadors costume filled with blood and I am not sur
 
 I have seen plenty of pictures of bullrings and Ronda before, but experiencing them first hand was very different than I would have imagined. It is compelling that pictures and even film can not fully capture reality. I am always delighted when an often photographed place surprises and impacts me.
 
-[![Img_7932](http://soultravelers3new.local/images/2008/04/17/img_7932.png "Img_7932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7932.png)
+[![Img_7932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7932.png "Img_7932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7932.png)
 
-[![Img_7953](http://soultravelers3new.local/images/2008/04/17/img_7953.png "Img_7953")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7953.png)
+[![Img_7953](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7953.png "Img_7953")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7953.png)
 
-[![Img_7972](http://soultravelers3new.local/images/2008/04/17/img_7972.png "Img_7972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7972.png)
+[![Img_7972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7972.png "Img_7972")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7972.png)
 
-[![Img_7962](http://soultravelers3new.local/images/2008/04/17/img_7962.png "Img_7962")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7962.png)
+[![Img_7962](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7962.png "Img_7962")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7962.png)
 
-[![Img_7977](http://soultravelers3new.local/images/2008/04/17/img_7977.png "Img_7977")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7977.png)
+[![Img_7977](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7977.png "Img_7977")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7977.png)
 
-[![Img_8059](http://soultravelers3new.local/images/2008/04/17/img_8059.png "Img_8059")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8059.png)
+[![Img_8059](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8059.png "Img_8059")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8059.png)
 
-[![Img_8061](http://soultravelers3new.local/images/2008/04/17/img_8061.png "Img_8061")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8061.png)
+[![Img_8061](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8061.png "Img_8061")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8061.png)
 
-[![Img_8071](http://soultravelers3new.local/images/2008/04/17/img_8071.png "Img_8071")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8071.png)
+[![Img_8071](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8071.png "Img_8071")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8071.png)
 
-[![Img_8078](http://soultravelers3new.local/images/2008/04/17/img_8078.png "Img_8078")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8078.png)
+[![Img_8078](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8078.png "Img_8078")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8078.png)
 
-[![Img_8112](http://soultravelers3new.local/images/2008/04/17/img_8112.png "Img_8112")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8112.png)
+[![Img_8112](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8112.png "Img_8112")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8112.png)
 
-[![Img_8084](http://soultravelers3new.local/images/2008/04/17/img_8084.png "Img_8084")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8084.png)
+[![Img_8084](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_8084.png "Img_8084")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_8084.png)

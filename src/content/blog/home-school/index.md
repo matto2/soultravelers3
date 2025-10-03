@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4114](http://soultravelers3new.local/images/2008/04/22/img_4114.png "Img_4114")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4114.png) Home School  
+ [![Img_4114](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4114.png "Img_4114")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4114.png) Home School  
 November 27, 2006
 
 I thought I would put a few pages from Mozart’s math work  
@@ -14,7 +14,7 @@ that she is doing at home for our records, those who like to discuss home
 
 <!--more-->
 
-[![Img_4114_2](http://soultravelers3new.local/images/2008/04/22/img_4114_2.png "Img_4114_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4114_2.png)
+[![Img_4114_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4114_2.png "Img_4114_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4114_2.png)
 
 I thought I would put a few pages from Mozart’s math work that she is doing at home for our records, those who like to discuss home school and Grandma’s pleasure. DaVinci is going to take this book into the teacher because the math there is just ridiculously slow for her, so a total waste of time. I am worried that she might be getting bored with school and it is the best place to get the immersion. At least with the language arts she is learning cursive and improving her Spanish reading. We will continue it at home, but it would be nice if she was learning something in math class at school too, but if not we can carry on.
 
@@ -49,14 +49,14 @@ I showed her a book I brought from prufrock press yesterday that were on sale be
 
   
 
-[![Img_4802](http://soultravelers3new.local/images/2008/04/22/img_4802.png "Img_4802")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4802.png)
+[![Img_4802](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4802.png "Img_4802")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4802.png)
 
-[![Img_4803](http://soultravelers3new.local/images/2008/04/22/img_4803.png "Img_4803")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4803.png)
+[![Img_4803](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4803.png "Img_4803")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4803.png)
 
-[![Img_4804](http://soultravelers3new.local/images/2008/04/22/img_4804.png "Img_4804")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4804.png)
+[![Img_4804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4804.png "Img_4804")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4804.png)
 
-[![Img_4805](http://soultravelers3new.local/images/2008/04/22/img_4805.png "Img_4805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4805.png)
+[![Img_4805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4805.png "Img_4805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4805.png)
 
-[![Img_4701](http://soultravelers3new.local/images/2008/04/22/img_4701.png "Img_4701")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4701.png)
+[![Img_4701](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4701.png "Img_4701")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4701.png)
 
-[![Img_4320](http://soultravelers3new.local/images/2008/04/22/img_4320.png "Img_4320")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4320.png)
+[![Img_4320](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4320.png "Img_4320")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4320.png)

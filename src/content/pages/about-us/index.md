@@ -47,6 +47,6 @@ A great husband, father, artist and human being. He has many talents and abiliti
 
 A loving and fun wife,mom and writer. Another one who appreciates beauty in all its forms. An entrepreneurial spirit who was a former actress and Ford model who appeared in many magazines, films, commercials, TV shows and theatrical productions many moons ago. Later she started 2 successful small businesses. She has also been a nurse who worked in ICU and a psychiatric hospital, a flight attendant for TWA and a Playboy bunny. She loves to read, learn, garden, create, meditate, listen to classical music, dance, massage, sing, laugh, cuddle and play.
 
-![Family](http://soultravelers3new.local/typepad-images/family_portrait.png)
+![Family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/family_portrait.png)
 
-![Family](http://soultravelers3new.local/typepad-images/9_16_HVS_BD_party5.png)
+![Family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/9_16_HVS_BD_party5.png)

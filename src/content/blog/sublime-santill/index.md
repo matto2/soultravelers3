@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_1299](http://soultravelers3new.local/images/2008/10/16/img_1299.jpg "Img_1299")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_1299.jpg) Sublime Santillana Del Mar  
+ [![Img_1299](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_1299.jpg "Img_1299")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_1299.jpg) Sublime Santillana Del Mar  
 October 16, 2008
 
 You never know when you hear high  
@@ -15,7 +15,7 @@ meet your expectations or if your
 
 <!--more-->
 
-[![Img_1299_2](http://soultravelers3new.local/images/2008/10/16/img_1299_2.jpg "Img_1299_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_1299_2.jpg)
+[![Img_1299_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_1299_2.jpg "Img_1299_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_1299_2.jpg)
 
 [  
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/15/img_1299_2.jpg)You never know when you hear high praise for a place, whether it will meet your expectations or if your imagination is stronger than the best pictures and words you've researched, leaving you a little let down,  when you finally walk the land yourself. [Santillana del Mar](http://en.wikipedia.org/wiki/Santillana_del_Mar) easily surpassed our highest expectations!
@@ -24,11 +24,11 @@ meet your expectations or if your
 
 "The prettiest village in Spain"    Jean-Paul  Satre   
 
-[![Img_3591](http://soultravelers3new.local/images/2008/10/16/img_3591.jpg "Img_3591")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3591.jpg)
+[![Img_3591](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_3591.jpg "Img_3591")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3591.jpg)
 
 We traveled across the Astrias region of Spain, to [Cantabrias](http://www.red2000.com/spain/region/r-canta.html), yet another beautiful area of "Green Spain", where [Santillana del Mar](http://www.frommers.com/destinations/santillanadelmar/1206010001.html) is located. We love ancient, authentic golden villages, full of charm and enchantment, so of course, this place appealed to us.
 
-[![Img_3770](http://soultravelers3new.local/images/2008/10/16/img_3770.jpg "Img_3770")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3770.jpg)
+[![Img_3770](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_3770.jpg "Img_3770")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3770.jpg)
 
   
 
@@ -40,16 +40,16 @@ The sun was shining so we were in good moods, enjoying an ideal day in a fairy t
 
 ![Img_3390](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3390.jpg)
 
-[![Img_3468](http://soultravelers3new.local/images/2008/10/16/img_3468.jpg "Img_3468")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3468.jpg)
+[![Img_3468](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_3468.jpg "Img_3468")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3468.jpg)
 
 ![Img_3414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3414.jpg)
 
 ![Img_3600](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3600.jpg)
 
-[![Img_3796](http://soultravelers3new.local/images/2008/10/16/img_3796.jpg "Img_3796")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3796.jpg)
+[![Img_3796](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_3796.jpg "Img_3796")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3796.jpg)
 
-[![Img_3586](http://soultravelers3new.local/images/2008/10/16/img_3586.jpg "Img_3586")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3586.jpg)
+[![Img_3586](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_3586.jpg "Img_3586")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3586.jpg)
 
-[![Img_3721](http://soultravelers3new.local/images/2008/10/16/img_3721.jpg "Img_3721")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3721.jpg)
+[![Img_3721](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_3721.jpg "Img_3721")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3721.jpg)
 
-[![Img_3662](http://soultravelers3new.local/images/2008/10/16/img_3662.jpg "Img_3662")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3662.jpg)
+[![Img_3662](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/16/img_3662.jpg "Img_3662")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/16/img_3662.jpg)

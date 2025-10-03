@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
- [![Img_9917](http://soultravelers3new.local/images/2008/07/21/img_9917.jpg "Img_9917")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9917.jpg) Explorers & Maritime Museum  
+ [![Img_9917](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_9917.jpg "Img_9917")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9917.jpg) Explorers & Maritime Museum  
 July 17, 2008
 
 Looking at a world map, it is simply  
@@ -15,7 +15,7 @@ of Florida made so many significant
 
 <!--more-->
 
-[![Img_9917_2](http://soultravelers3new.local/images/2008/07/21/img_9917_2.jpg "Img_9917_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9917_2.jpg)
+[![Img_9917_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_9917_2.jpg "Img_9917_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9917_2.jpg)
 
 Looking at a world map, it is simply amazing that a small country the size of Florida made so many significant discoveries!  It really struck me when I looked down from the top of the [Monument to the Discoveries](http://www.strawberryworld-lisbon.com/lisbon/places/discoveries.html) to the large world map below and then later at the Maritime Museum world map.
 
@@ -29,24 +29,24 @@ One of the quirky things we saw there was a man riding a bike on the embankment 
 
 Another huge statue of Henry the Navigator greeted us surrounded by important [Portuguese explorers](http://www.mariner.org/educationalad/ageofex/portuguese_exp.php) and another impressive world [map](http://www.mariner.org/educationalad/ageofex/15thcenturymaps.php) detailing Portugal's discoveries. Mozart ran around enjoying it all from imagining what it was like on a Royal boat to pretend steering one of the great old ships. [Here](http://www.cdli.ca/CITE/exgama.htm) and [here](http://www.mariner.org/educationalad/ageofex/) are a couple of sites that you might enjoy to learn more about the Portuguese explorers. [This one](http://www.enchantedlearning.com/explorers/page/d/dagama.shtml) from Enchanted Learning has a printout for younger kids. This was a homes school field trip well worth taking!
 
-[![Img_9888](http://soultravelers3new.local/images/2008/07/21/img_9888.jpg "Img_9888")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9888.jpg)
+[![Img_9888](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_9888.jpg "Img_9888")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9888.jpg)
 
-[![Img_9956](http://soultravelers3new.local/images/2008/07/21/img_9956.jpg "Img_9956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9956.jpg)
+[![Img_9956](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_9956.jpg "Img_9956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9956.jpg)
 
-[![Img_9980](http://soultravelers3new.local/images/2008/07/21/img_9980.jpg "Img_9980")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9980.jpg)
+[![Img_9980](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_9980.jpg "Img_9980")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9980.jpg)
 
-[![Img_9926](http://soultravelers3new.local/images/2008/07/21/img_9926.jpg "Img_9926")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9926.jpg)
+[![Img_9926](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_9926.jpg "Img_9926")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9926.jpg)
 
-[![Img_9889](http://soultravelers3new.local/images/2008/07/21/img_9889.jpg "Img_9889")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9889.jpg)
+[![Img_9889](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_9889.jpg "Img_9889")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_9889.jpg)
 
-[![Img_0112](http://soultravelers3new.local/images/2008/07/21/img_0112.jpg "Img_0112")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0112.jpg)
+[![Img_0112](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0112.jpg "Img_0112")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0112.jpg)
 
-[![Img_0099](http://soultravelers3new.local/images/2008/07/21/img_0099.jpg "Img_0099")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0099.jpg)
+[![Img_0099](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0099.jpg "Img_0099")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0099.jpg)
 
-[![Img_0986](http://soultravelers3new.local/images/2008/07/21/img_0986.jpg "Img_0986")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0986.jpg)
+[![Img_0986](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0986.jpg "Img_0986")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0986.jpg)
 
-[![Img_0107](http://soultravelers3new.local/images/2008/07/21/img_0107.jpg "Img_0107")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0107.jpg)
+[![Img_0107](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0107.jpg "Img_0107")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0107.jpg)
 
-[![Img_0120](http://soultravelers3new.local/images/2008/07/21/img_0120.jpg "Img_0120")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0120.jpg)
+[![Img_0120](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0120.jpg "Img_0120")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0120.jpg)
 
-[![Img_0052](http://soultravelers3new.local/images/2008/07/21/img_0052.jpg "Img_0052")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0052.jpg)
+[![Img_0052](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0052.jpg "Img_0052")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0052.jpg)

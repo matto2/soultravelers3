@@ -29,7 +29,7 @@ Despite it not being a travelers campground, we ended up really enjoying the [So
 
 We must have arrived on a festival day of some sort and on our way to the metro we stopped and enjoyed the celebrations including this fun folk dancing. They also had a band with a typical Basque flute, [txistutx](http://en.wikipedia.org/wiki/Txistu) and lots of activities for the locals. 
 
-[![IMG_3913](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115704925a0970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330115704925a0970c-150x150.jpg) 
+[![IMG_3913](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115704925a0970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330115704925a0970c-150x150.jpg) 
 
 ![IMG_3935](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570492c69970c.jpg) 
 
@@ -43,4 +43,4 @@ I am going to get as many up as possible while in Barcelona, so will probably be
 
 ![IMG_3909](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115713e5180970b.jpg)
 
-[![IMG_3937](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115713e5265970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330115713e5265970b-300x209.jpg)
+[![IMG_3937](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115713e5265970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330115713e5265970b-300x209.jpg)

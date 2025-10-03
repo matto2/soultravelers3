@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0592](http://soultravelers3new.local/images/2008/05/05/img_0592.png "Img_0592")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0592.png) Open Air Museum  
+ [![Img_0592](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0592.png "Img_0592")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0592.png) Open Air Museum  
 September 8, 2006
 
 We had a fantastic day today at an open  
@@ -15,7 +15,7 @@ that is about fifteen minutes north of Amsterdam
 
 <!--more-->
 
-[![Img_0592_2](http://soultravelers3new.local/images/2008/05/05/img_0592_2.png "Img_0592_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0592_2.png)
+[![Img_0592_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0592_2.png "Img_0592_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0592_2.png)
 
 We had a fantastic day today at an open air museum called Zaanse Schans Folk Museum that is about fifteen minutes north of Amsterdam in Koogzaandijk. We got to do a lot of the touristy things that we have been wanting to do before leaving Holland including eating a traditional  Dutch pancake meal ( they call it pancookin), see and go inside windmills,see a cheese farm and factory, find out how wooden shoes are made and watch that process and more. In fact, there was so much wonderful information & sights that I will break it into a few blog entries as some parts need their own page. I want to leave some cool pictures for the curious kids following us.
 
@@ -48,30 +48,30 @@ The pancakes are more like crepes and were a hit with all of us. I got the ones 
 I have found a new camping hair do for those who are wondering why I have my hair up in braids. I have fine hair so it tangles easy in this humidity, wind and sleeping in a camper. So the braids on top work good on the days that I don’t wash it and keeps it from tangling and out of the way better than any other way.  
 I wear my hat a lot too and it works with one going off and on a lot.
 
-[![Img_0426](http://soultravelers3new.local/images/2008/05/05/img_0426.png "Img_0426")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0426.png)
+[![Img_0426](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0426.png "Img_0426")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0426.png)
 
-[![Img_0423](http://soultravelers3new.local/images/2008/05/05/img_0423.png "Img_0423")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0423.png)
+[![Img_0423](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0423.png "Img_0423")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0423.png)
 
-[![Img_0431](http://soultravelers3new.local/images/2008/05/05/img_0431.png "Img_0431")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0431.png)
+[![Img_0431](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0431.png "Img_0431")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0431.png)
 
-[![Img_0452](http://soultravelers3new.local/images/2008/05/05/img_0452.png "Img_0452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0452.png)
+[![Img_0452](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0452.png "Img_0452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0452.png)
 
-[![Img_0439filtered](http://soultravelers3new.local/images/2008/05/05/img_0439filtered.png "Img_0439filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0439filtered.png)
+[![Img_0439filtered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0439filtered.png "Img_0439filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0439filtered.png)
 
-[![Img_0443](http://soultravelers3new.local/images/2008/05/05/img_0443.png "Img_0443")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0443.png)
+[![Img_0443](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0443.png "Img_0443")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0443.png)
 
-[![Img_0451](http://soultravelers3new.local/images/2008/05/05/img_0451.png "Img_0451")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0451.png)
+[![Img_0451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0451.png "Img_0451")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0451.png)
 
-[![Img_0444](http://soultravelers3new.local/images/2008/05/05/img_0444.png "Img_0444")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0444.png)
+[![Img_0444](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0444.png "Img_0444")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0444.png)
 
-[![Img_0445](http://soultravelers3new.local/images/2008/05/05/img_0445.png "Img_0445")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0445.png)
+[![Img_0445](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0445.png "Img_0445")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0445.png)
 
-[![Img_0446](http://soultravelers3new.local/images/2008/05/05/img_0446.png "Img_0446")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0446.png)
+[![Img_0446](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0446.png "Img_0446")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0446.png)
 
-[![Img_0448](http://soultravelers3new.local/images/2008/05/05/img_0448.png "Img_0448")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0448.png)
+[![Img_0448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0448.png "Img_0448")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0448.png)
 
-[![Img_0456](http://soultravelers3new.local/images/2008/05/05/img_0456.png "Img_0456")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0456.png)
+[![Img_0456](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0456.png "Img_0456")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0456.png)
 
-[![Img_0521](http://soultravelers3new.local/images/2008/05/05/img_0521.png "Img_0521")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0521.png)
+[![Img_0521](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0521.png "Img_0521")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0521.png)
 
-[![Img_0436](http://soultravelers3new.local/images/2008/05/05/img_0436.png "Img_0436")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0436.png)
+[![Img_0436](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0436.png "Img_0436")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0436.png)

@@ -35,18 +35,18 @@ I can't even tell you how beautiful this organic farm and terraced hills looked 
   
 **MORE ABOUT BEAUTIFUL BHUTAN**  
   
-[Family Vacation in Bhutan](http://soultravelers3new.local/2011/05/family-vacation-in-bhutan.html "family vacation in bhutan")  
+[Family Vacation in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/family-vacation-in-bhutan.html "family vacation in bhutan")  
   
-[](http://soultravelers3new.local/2011/06/family-travel-bhutan-nomads.html "bhutan Nomads")[Climbing Famous Tiger's Nest](http://soultravelers3new.local/2011/07/tigers-nest-in-paro-bhutan.html "climbing famous tiger's nest")  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/family-travel-bhutan-nomads.html "bhutan Nomads")[Climbing Famous Tiger's Nest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/tigers-nest-in-paro-bhutan.html "climbing famous tiger's nest")  
   
-[Bhutan Vacation -Facts and Myths](http://soultravelers3new.local/2011/06/bhutan-vacation-facts-and-myths.html "Bhutan Vacations facts and myths")[](http://soultravelers3new.local/2011/06/family-travel-bhutan-nomads.html "bhutan Nomads")  
+[Bhutan Vacation -Facts and Myths](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/bhutan-vacation-facts-and-myths.html "Bhutan Vacations facts and myths")[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/family-travel-bhutan-nomads.html "bhutan Nomads")  
   
-[Bhutan Food Markets](http://soultravelers3new.local/2011/08/bhutan-food-markets.html "Bhutan food markets")  
+[Bhutan Food Markets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/bhutan-food-markets.html "Bhutan food markets")  
   
-[Bhutan Happiest Place on Earth](http://soultravelers3new.local/2011/07/bhutan-happiest-place-on-earth--1.html "Bhutan happiest place on earth")  
+[Bhutan Happiest Place on Earth](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/bhutan-happiest-place-on-earth--1.html "Bhutan happiest place on earth")  
   
-[Buddhist Bhutan Bliss](http://soultravelers3new.local/2011/05/buddhist-bhutan-bliss.html "Bhutan Buddhist bliss")  
+[Buddhist Bhutan Bliss](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/buddhist-bhutan-bliss.html "Bhutan Buddhist bliss")  
   
-[Taj Tashi](http://soultravelers3new.local/2011/07/taj-tashi-thimpu-bhutan-5-star-hotel-thrills.html "Taj Tashi Hotel Bhutan")  
+[Taj Tashi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/taj-tashi-thimpu-bhutan-5-star-hotel-thrills.html "Taj Tashi Hotel Bhutan")  
   
-[](http://soultravelers3new.local/2012/03/bhutan-means-penis-art-and-phallus-paintings.html "penis art bhutan")
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/bhutan-means-penis-art-and-phallus-paintings.html "penis art bhutan")

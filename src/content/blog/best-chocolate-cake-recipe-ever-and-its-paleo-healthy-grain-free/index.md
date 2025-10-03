@@ -33,32 +33,32 @@ gluten-free, grain-free and easy!
 <!--more--> ![YUM! Mouth-watering delicious healthy chocolate cake - grain-free, gluten-free, paleo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cabbb970c.jpg)  
   
   
-This is truly the best chocolate cake in the world, plus it is healthy, gluten-free, grain-free and easy! Who could ask for anything more? Maybe a little bit of homemade [healthy chocolate ice cream](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html "healthy chocolate ice cream recipe") to go with it and some banana? Yum! It is so moist and rich it is a delight to luxuriously devour totally on it's own too.  
+This is truly the best chocolate cake in the world, plus it is healthy, gluten-free, grain-free and easy! Who could ask for anything more? Maybe a little bit of homemade [healthy chocolate ice cream](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html "healthy chocolate ice cream recipe") to go with it and some banana? Yum! It is so moist and rich it is a delight to luxuriously devour totally on it's own too.  
   
 ![delicious, easy  Chocolate cake -Paleo Healthy Grain and Gluten Free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cb37e970c.jpg)  
   
 **CAN IT BE HEALTHY AND DELICIOUS?**  
   
-We were all stunned at just how delicious this chocolate cake was..better than we have ever eaten ANY where! This was the first layered cake I ever made, so I was a bit nervous beforehand.  We are grateful to have a healthy, paleo version on our [healing journey](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html "healing journey") that tastes just as good and even better than less-healthy conventional chocolate cakes that are filled with bad fats, gluten and grains.  
+We were all stunned at just how delicious this chocolate cake was..better than we have ever eaten ANY where! This was the first layered cake I ever made, so I was a bit nervous beforehand.  We are grateful to have a healthy, paleo version on our [healing journey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/healing-journey-and-blessings.html "healing journey") that tastes just as good and even better than less-healthy conventional chocolate cakes that are filled with bad fats, gluten and grains.  
   
 **BEST REAL FOOD HEALTHY RECIPE GEM**  
   
-Out of all the delicious healthy recipes we have discovered, like [fermented salsa](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "fermented salsa recipe"), [paleo pizza](http://soultravelers3new.local/2013/07/best-paleo-pizza-recipe.html "healthy pizza paleo"), [goat cheese](http://soultravelers3new.local/2013/02/how-to-make-diy-goat-cheese-with-kefir.html "goat cheese"), [healthy chips](http://soultravelers3new.local/2013/06/yummy-healthy-chips-recipe.html "healthy chips recipe"), fermented [mayonaise](http://soultravelers3new.local/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html "fermented mayo"), [soda pop](http://soultravelers3new.local/2012/09/how-to-make-healthy-soda-pop-even-a-kid-can-do-it-.html "soda pop healthy"), [bone broth](http://soultravelers3new.local/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth") and so much more, this is truly the gem among gems. You don't think of this as a substitute in ANY way, shape or form.  
+Out of all the delicious healthy recipes we have discovered, like [fermented salsa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "fermented salsa recipe"), [paleo pizza](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/best-paleo-pizza-recipe.html "healthy pizza paleo"), [goat cheese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/how-to-make-diy-goat-cheese-with-kefir.html "goat cheese"), [healthy chips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/yummy-healthy-chips-recipe.html "healthy chips recipe"), fermented [mayonaise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html "fermented mayo"), [soda pop](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-healthy-soda-pop-even-a-kid-can-do-it-.html "soda pop healthy"), [bone broth](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth") and so much more, this is truly the gem among gems. You don't think of this as a substitute in ANY way, shape or form.  
   
-The only downside is the to-die-for frosting melts quite easily in [tropical](http://soultravelers3new.local/2012/12/tropical-winter-vacation-from-freezing-to-flipflops.html "tropical vacation") heat, but is fine as long as you keep it refrigerated and the cake is rich so lasts a long time refridgerated and stays delectable.  
+The only downside is the to-die-for frosting melts quite easily in [tropical](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/tropical-winter-vacation-from-freezing-to-flipflops.html "tropical vacation") heat, but is fine as long as you keep it refrigerated and the cake is rich so lasts a long time refridgerated and stays delectable.  
   
 ![raw cacao for chocolate cake recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003d2f4d970d.jpg)  
   
 **WHAT ABOUT FRUCTOSE AND PHYTIC ACID?**  
   
-This is too sweet and indulgent for every day, as it has more fructose than we normally eat and cacao or chocolate is higher in phytic acid than we usually eat on our [curing gum disease and cavities naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "curing cavities and gum disease naturally diet") diet.  Cacao (or chocolate) are one of those controversial ingredients  that some say are super healthy and others say not, but for a special occasion, this is the perfect, decadent splurge. It is even tame enough for my super sensitive tummy in small portions.  
+This is too sweet and indulgent for every day, as it has more fructose than we normally eat and cacao or chocolate is higher in phytic acid than we usually eat on our [curing gum disease and cavities naturally](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/curing-gum-disease-and-cavities-naturally.html "curing cavities and gum disease naturally diet") diet.  Cacao (or chocolate) are one of those controversial ingredients  that some say are super healthy and others say not, but for a special occasion, this is the perfect, decadent splurge. It is even tame enough for my super sensitive tummy in small portions.  
   
 ![best, easy, healthy chocolate frosting recipe - Paleo, Grain-free and Gluten Free ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b004b0fcd970b.jpg)  
   
   
 **FAST CHOCOLATE FROSTING CAN BE USED AS A SEPARATE TREAT TOO**  
   
-We sometimes use just the frosting for a little treat for Mozart, like we will on [Halloween](http://soultravelers3new.local/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "best halloween europe or USA") or any time she needs an extra special treat around friends splurging on junk food temptations. It can be made in minutes and popped into a little jar with a spoon to savor. Nice topping with frozen banana too and because it is uncooked,  it is even healthier than the cake.  
+We sometimes use just the frosting for a little treat for Mozart, like we will on [Halloween](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "best halloween europe or USA") or any time she needs an extra special treat around friends splurging on junk food temptations. It can be made in minutes and popped into a little jar with a spoon to savor. Nice topping with frozen banana too and because it is uncooked,  it is even healthier than the cake.  
   
 ![gathering ingredients for healthy, easy, delish chocolate cake](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b003cc0f7970c.jpg)  
   
@@ -149,22 +149,3 @@ Doesn't it sound tempting? It's thrilling to discover you can have your healthy 
 
 Related articles
 
-[![](http://i.zemanta.com/188106839_80_80.jpg)](http://soultravelers3new.local/2013/07/yum-super-healthy-dessert-recipe-paleo-mango-clafouti.html)[Yum! Super Healthy Dessert Recipe - Paleo Mango Clafouti](http://soultravelers3new.local/2013/07/yum-super-healthy-dessert-recipe-paleo-mango-clafouti.html)
-
-[![](http://i.zemanta.com/192276044_80_80.jpg)](http://soultravelers3new.local/2013/08/healthy-banana-bread-recipe-paleogapsgluten-free.html)[Healthy Banana Bread Recipe - Paleo/GAPS/Gluten Free](http://soultravelers3new.local/2013/08/healthy-banana-bread-recipe-paleogapsgluten-free.html)
-
-[![](http://i.zemanta.com/92033338_80_80.jpg)](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html)[Healthy Food and Travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html)
-
-[![](http://i.zemanta.com/196276182_80_80.jpg)](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html)[Healthy Chocolate Ice Cream Recipe - No Machine!](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html)
-
-[![](http://i.zemanta.com/191008312_80_80.jpg)](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html)[Healing Journey and Blessings](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html)
-
-[![](http://i.zemanta.com/100812762_80_80.jpg)](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)[How To Make Kefir Easy - Goats Milk or Coconut Milk](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)
-
-[![](http://i.zemanta.com/114817233_80_80.jpg)](http://soultravelers3new.local/2012/09/how-to-make-diy-homemade-shampoo-and-creme-rinse-easy-cheap-healthy.html)[How to Make DIY Homemade Shampoo and Creme Rinse - Easy, Cheap, Healthy](http://soultravelers3new.local/2012/09/how-to-make-diy-homemade-shampoo-and-creme-rinse-easy-cheap-healthy.html)
-
-[![](http://i.zemanta.com/109813796_80_80.jpg)](http://soultravelers3new.local/2012/09/how-to-make-diy-homemade-deodorant-easy-cheap-healthy.html)[How to Make DIY Homemade Deodorant - Easy, Cheap, Healthy](http://soultravelers3new.local/2012/09/how-to-make-diy-homemade-deodorant-easy-cheap-healthy.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/85809747_80_80.jpg)](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html)[The Benefits of Educational Travel for Kids](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html)

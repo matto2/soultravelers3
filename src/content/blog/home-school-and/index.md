@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0237](http://soultravelers3new.local/images/2008/05/06/img_0237.png "Img_0237")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0237.png) Home School and Odds & Ends  
+ [![Img_0237](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0237.png "Img_0237")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0237.png) Home School and Odds & Ends  
 September 2, 2006
 
 Well, we tried to upload the latest on  
@@ -15,7 +15,7 @@ There was a lovely internet place in Edam
 
 <!--more-->
 
-[![Img_0237_2](http://soultravelers3new.local/images/2008/05/06/img_0237_2.png "Img_0237_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0237_2.png)
+[![Img_0237_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0237_2.png "Img_0237_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0237_2.png)
 
 Well, we tried to upload the latest on this blog yesterday, but no such luck. There was a lovely internet place in Edam with the sweetest host with a cute daughter. Instead of a smoky bar like the last one at  
 the campsite,this one was a shop that did copying and design work and they had a few macs available to use...very nice. Plus if one was in the middle of an email, the system didn’t just shut down on you when  
@@ -41,28 +41,28 @@ sees something about Mozart printed as has happened a few times) and she even ga
 
 Feel free to let us know what you like or do not like or what you would like to see more of. We are still figuring out how to add the feedback portion that should be part of every blog and like the RSS feed this one has it, we are just not sure how to activate such and not having much wifi access has prevented us on solving these things. BUT you can always write to us at soultravelers3\[at\]hotmail\[dot\]com and we will get it and eventually get back to you. I am not sure if anyone is reading, but that might be just as well if most are missing this as we are just winging it and learning as we go. It may never look professional as I just seem to have to write quickly when I can. I really miss my online dictionary and thesaurus and reference guide! Perhaps I will get a chance to edit it if we ever get to a place that has wifi or maybe when we are in our rental home in Spain.
 
-[![Img_0173](http://soultravelers3new.local/images/2008/05/06/img_0173.png "Img_0173")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0173.png)
+[![Img_0173](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0173.png "Img_0173")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0173.png)
 
-[![Img_0260](http://soultravelers3new.local/images/2008/05/06/img_0260.png "Img_0260")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0260.png)
+[![Img_0260](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0260.png "Img_0260")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0260.png)
 
-[![Img_0233](http://soultravelers3new.local/images/2008/05/06/img_0233.png "Img_0233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0233.png)
+[![Img_0233](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0233.png "Img_0233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0233.png)
 
-[![Img_0101](http://soultravelers3new.local/images/2008/05/06/img_0101.png "Img_0101")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0101.png)
+[![Img_0101](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0101.png "Img_0101")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0101.png)
 
-[![Img_0351](http://soultravelers3new.local/images/2008/05/06/img_0351.png "Img_0351")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0351.png)
+[![Img_0351](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0351.png "Img_0351")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0351.png)
 
-[![Img_0140](http://soultravelers3new.local/images/2008/05/06/img_0140.png "Img_0140")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0140.png)
+[![Img_0140](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0140.png "Img_0140")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0140.png)
 
-[![Img_0156](http://soultravelers3new.local/images/2008/05/06/img_0156.png "Img_0156")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0156.png)
+[![Img_0156](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0156.png "Img_0156")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0156.png)
 
-[![Img_0174](http://soultravelers3new.local/images/2008/05/06/img_0174.png "Img_0174")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0174.png)
+[![Img_0174](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0174.png "Img_0174")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0174.png)
 
-[![Img_0175](http://soultravelers3new.local/images/2008/05/06/img_0175.png "Img_0175")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0175.png)
+[![Img_0175](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0175.png "Img_0175")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0175.png)
 
-[![Img_0227](http://soultravelers3new.local/images/2008/05/06/img_0227.png "Img_0227")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0227.png)
+[![Img_0227](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0227.png "Img_0227")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0227.png)
 
-[![Img_0239](http://soultravelers3new.local/images/2008/05/06/img_0239.png "Img_0239")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0239.png)
+[![Img_0239](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0239.png "Img_0239")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0239.png)
 
-[![Img_0250](http://soultravelers3new.local/images/2008/05/06/img_0250.png "Img_0250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0250.png)
+[![Img_0250](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0250.png "Img_0250")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0250.png)
 
-[![Img_0248](http://soultravelers3new.local/images/2008/05/06/img_0248.png "Img_0248")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0248.png)
+[![Img_0248](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0248.png "Img_0248")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0248.png)

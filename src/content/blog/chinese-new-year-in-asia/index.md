@@ -27,9 +27,9 @@ is HUGE in Asia, bigger than
 
 <!--more--> ![Chinese New Year dragon dance celebration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8511667970d.jpg)  
   
-[Chinese New Year](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Chinese new year stunning photos") ( or Lunar New Year/ Spring Festival) is HUGE in Asia, bigger than [Christmas](http://soultravelers3new.local/2010/12/tropical-christmas-abroad-in-asia.html "Christmas in Asia") or [Thanksgiving](http://soultravelers3new.local/2012/11/thanksgiving-in-china.html "Thanksgiving in China") at home, so a thrilling time to visit.  
+[Chinese New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "Chinese new year stunning photos") ( or Lunar New Year/ Spring Festival) is HUGE in Asia, bigger than [Christmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/12/tropical-christmas-abroad-in-asia.html "Christmas in Asia") or [Thanksgiving](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/thanksgiving-in-china.html "Thanksgiving in China") at home, so a thrilling time to visit.  
   
-Our blond 12 year old daughter Mozart is going to a [Chinese school](http://soultravelers3new.local/2012/07/chinese-school-in-asia-11-year-old-american-doing-physics-in-mandarin.html "American in Chinese school") to [learn Mandarin](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html "learning Mandarin best school Beijing") while we are in [Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Penang Chinese school") ( which has a dominant Chinese community), and she has been chosen again to sing a Mandarin song solo with her [large high school choir](http://soultravelers3new.local/2011/04/earth-day-song-solo-and-1st-place.html "high school choir mandarin song") today. [Learning Chinese culture](http://soultravelers3new.local/2012/06/chines.html "learning chinese culture - teas ceremony") and [traditions](http://soultravelers3new.local/2012/04/the-beauty-of-traditional-chinese-culture.html "Chinese traditional culture"), along with the language here and i[n China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel") has been very enriching for all of us.  
+Our blond 12 year old daughter Mozart is going to a [Chinese school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/chinese-school-in-asia-11-year-old-american-doing-physics-in-mandarin.html "American in Chinese school") to [learn Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/learning-mandarin-in-beijing-china-best-school.html "learning Mandarin best school Beijing") while we are in [Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Penang Chinese school") ( which has a dominant Chinese community), and she has been chosen again to sing a Mandarin song solo with her [large high school choir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/04/earth-day-song-solo-and-1st-place.html "high school choir mandarin song") today. [Learning Chinese culture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/chines.html "learning chinese culture - teas ceremony") and [traditions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/the-beauty-of-traditional-chinese-culture.html "Chinese traditional culture"), along with the language here and i[n China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/china-travel-in-the-autumn.html "China travel") has been very enriching for all of us.  
   
   
 
@@ -40,11 +40,11 @@ Our blond 12 year old daughter Mozart is going to a [Chinese school](http://soul
   
 They only have half a day of school today, mostly celebrations and start a two weeks vacation as it is a 15 day holiday and most go home for extended family dinners and traditional celebrations.  
   
-Even singer Psy from Gangnam style is going to do a free concert at her school for [Chinese New Year](http://soultravelers3new.local/2011/02/family-travel-year-of-the-rabbit-in-asia-photos-chinese-new-year-.html "Chinese New Year") and there will be dragon dances, fireworks and festivals galore.  
+Even singer Psy from Gangnam style is going to do a free concert at her school for [Chinese New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/family-travel-year-of-the-rabbit-in-asia-photos-chinese-new-year-.html "Chinese New Year") and there will be dragon dances, fireworks and festivals galore.  
   
-Last year [we dragons celebrated in China,](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "dragons in China") earlier we did [3 generations travel](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html "3 generations travel") in a rabbit year,  and now this 2013 Year of the Snake, should be exciting for Davinci who was born in a snake year.  
+Last year [we dragons celebrated in China,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/visiting-china-and-dragons.html "dragons in China") earlier we did [3 generations travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/traveling-with-grandma-3-generation-travel.html "3 generations travel") in a rabbit year,  and now this 2013 Year of the Snake, should be exciting for Davinci who was born in a snake year.  
   
-Southeast Asia's largest temple[, Kek Lok Si in Penang](http://soultravelers3new.local/2012/09/stunning-kek-lok-si-largest-buddhist-temple-in-se-asia.html "Kek Lok Si temple in Penang on Chinese New Year") with be lit up again with 10,000 lanterns, 10,000 Buddhas, 230,000 decorative lights.  
+Southeast Asia's largest temple[, Kek Lok Si in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/stunning-kek-lok-si-largest-buddhist-temple-in-se-asia.html "Kek Lok Si temple in Penang on Chinese New Year") with be lit up again with 10,000 lanterns, 10,000 Buddhas, 230,000 decorative lights.  
   
 We're looking forward to celebrating with the 1.5 billion people in Asia who participate in this most important and biggest Chinese holiday celebrating family, joy, gratitude and prosperty!  
   
@@ -54,22 +54,3 @@ Have you ever celebrated Chinese New Year in Asia?
 
 Related articles
 
-[![](http://i.zemanta.com/134800869_80_80.jpg)](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)[Around-the-World Family Travel](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)
-
-[![](http://i.zemanta.com/133178306_80_80.jpg)](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)[Around-the-World Travel - Best Advice](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/132755696_80_80.jpg)](http://soultravelers3new.local/2012/12/tropical-winter-vacation-from-freezing-to-flipflops.html)[Tropical Winter Vacation - From Freezing to Flipflops](http://soultravelers3new.local/2012/12/tropical-winter-vacation-from-freezing-to-flipflops.html)
-
-[![](http://i.zemanta.com/137403788_80_80.jpg)](http://soultravelers3new.local/2013/01/camping-spain.html)[Camping Spain](http://soultravelers3new.local/2013/01/camping-spain.html)
-
-[![](http://i.zemanta.com/135775485_80_80.jpg)](http://soultravelers3new.local/2013/01/best-white-sand-beach-.html)[Best White Sand Beach](http://soultravelers3new.local/2013/01/best-white-sand-beach-.html)
-
-[![](http://i.zemanta.com/141946037_80_80.jpg)](http://soultravelers3new.local/2013/01/tropical-island-paradise.html)[Tropical Island Paradise?](http://soultravelers3new.local/2013/01/tropical-island-paradise.html)
-
-[![](http://i.zemanta.com/141410675_80_80.jpg)](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)[Learning Mandarin in Beijing, China - Best School](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/132518557_80_80.jpg)](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html)[China Family Vacation - Beauty, Love, Joy!](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html)

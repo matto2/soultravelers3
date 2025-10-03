@@ -24,17 +24,17 @@ Sadly most see it during high season for just a [few hours off a cruise ship](ht
   
   
   
-You can read more about our time in [Santorini](http://en.wikipedia.org/wiki/Santorini) [here](http://soultravelers3new.local/2007/06/heaven-on-earth.html) , [here](http://soultravelers3new.local/2007/06/santorini-wine.html) and [here](http://soultravelers3new.local/2007/06/beaches-and-vie.html) plus many more in that area, along with other islands in Greece.  
+You can read more about our time in [Santorini](http://en.wikipedia.org/wiki/Santorini) [here](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/heaven-on-earth.html) , [here](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/santorini-wine.html) and [here](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/beaches-and-vie.html) plus many more in that area, along with other islands in Greece.  
   
-We loved [Santorini camping](http://soultravelers3new.local/2007/06/santorini-campi.html) which has everything you need including bungalows for those without a tent or RV, plus a great pool, good internet pool side, fab restaurant and lovely people!  
+We loved [Santorini camping](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/santorini-campi.html) which has everything you need including bungalows for those without a tent or RV, plus a great pool, good internet pool side, fab restaurant and lovely people!  
   
 [http://www.santorinicamping.gr/](http://www.santorinicamping.gr/ "http://www.santorinicamping.gr/")  
   
-Warning- do NOT go to [Santorini in July or August.](http://soultravelers3new.local/2007/08/hello-goodbye-s.html) We left our RV there while we toured more Greek Islands & Turkey and this heaven was no longer visible through the crowds when we returned. We could not wait to leave then, so see it in May, June or September.  
+Warning- do NOT go to [Santorini in July or August.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/08/hello-goodbye-s.html) We left our RV there while we toured more Greek Islands & Turkey and this heaven was no longer visible through the crowds when we returned. We could not wait to leave then, so see it in May, June or September.  
   
 We also stayed right on the caldera at beautiful Volcano Villa that we can highly recommend:  
   
-[http://soultravelers3new.local/2007/06...](http://soultravelers3new.local/2007/06/heaven-on-earth.html "http://soultravelers3new.local/2007/06/heaven-on-earth.html")  
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06...](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/heaven-on-earth.html "https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/heaven-on-earth.html")  
   
 Here is more info on the unique wines and vineyards that we enjoyed touring. [http://www.santonet.gr/wineries/](http://www.santonet.gr/wineries/ "http://www.santonet.gr/wineries/")  
 That is cherry juice that Mozart is drinking by the way! ;)  

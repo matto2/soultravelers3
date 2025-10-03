@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Officesmall_3](http://soultravelers3new.local/images/2008/06/04/officesmall_3.jpg "Officesmall_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/04/officesmall_3.jpg)How To Do Extended Travel & Mini-retirements  
+[![Officesmall_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/04/officesmall_3.jpg "Officesmall_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/04/officesmall_3.jpg)How To Do Extended Travel & Mini-retirements  
 June 4,  2008
 
 Extended travel is really a fabulous way to go  
@@ -15,7 +15,7 @@ at this option and we want to be able to help others
 
 <!--more-->
 
-[![Officesmall_2](http://soultravelers3new.local/images/2008/06/04/officesmall_2.jpg "Officesmall_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/04/officesmall_2.jpg)
+[![Officesmall_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/04/officesmall_2.jpg "Officesmall_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/04/officesmall_2.jpg)
 
 Extended travel is really a fabulous way to go and it seems more and more people are looking at this option and we want to be able to help others fulfill this dream! I recently got a [twitter](http://twitter.com/soultravelers3) message from a cyber-friend  who has a great family travel site called [Delicious Baby](http://www.deliciousbaby.com/) which is particularly good for families with babies and young children. There seems to be more curiosity about long term family travel, which I think is a great thing. The big questions seem to be "How do you do this?" and "How much does it cost?" so I thought I would  address these in greater depth here.
 

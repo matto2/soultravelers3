@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
-[![Img_2457](http://soultravelers3new.local/images/2008/09/08/img_2457.jpg "Img_2457")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2457.jpg) Pint-sized Pilgrim's Joy In Learning  
+[![Img_2457](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/08/img_2457.jpg "Img_2457")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2457.jpg) Pint-sized Pilgrim's Joy In Learning  
 September 9, 2008
 
 How do you teach a child about  
@@ -27,7 +27,7 @@ We started talking and reading about Santiago before our arrival which builds a 
 
 The traditional way the pilgrims dressed in the middle ages was with a brown cloak with a staff ( walking stick) with a gourd for water and a hat. The statue of Saint James at the cathedral in Santiago shows a good example of the dress that was common during the middle ages. When they completed the journey they would get scallop shells which was the symbol that they had made it. One sees scallop shells everywhere in Santiago which one can not help but appreciate their simple [symbolism](http://www.cwrl.utexas.edu/~bump/images/arch/shells/Shellsymbolism.htm).
 
-When we first arrived, we allowed Mozart to dress in the traditional pilgrim outfit and get her picture taken in it. She loved it! Yes, it is a corny touristy thing to do, but just like trying on a princess outfit for a [picture at the Alhambra](http://soultravelers3new.local/2007/03/ancient-princes.html#more), it is a fun way to help a child connect to the history.
+When we first arrived, we allowed Mozart to dress in the traditional pilgrim outfit and get her picture taken in it. She loved it! Yes, it is a corny touristy thing to do, but just like trying on a princess outfit for a [picture at the Alhambra](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/ancient-princes.html#more), it is a fun way to help a child connect to the history.
 
 These things make impressions on little ones. Later when we were at a local cafe to use the wifi, Mozart was busying herself with some drawing on her napkin. I did not pay too much attention until later and I saw she had made a little picture of an old fashioned pilgrim! I asked her why it had a frown on it's face and she told me that was because she was a pilgrim and had been on a very, very long walk, so now she was tired and her feet were hurting. (She has probably heard her mother talk too much about her feet hurting when we go on long walks. )
 
@@ -39,23 +39,23 @@ Mozart had been given a bubble blowing necklace gift from the tourist center, so
 
 Even though her age peers at home have just finished first grade, Mozart is capable of reading the adult materials of places we go and she does that, but I feel the child related materials connects her to sites in a way that is more child oriented. Kids like to have fun, so I think all learning at Mozart's age should be enjoyable. I don't always know how to bring the essential elements down to a child's level, so really appreciate books that do this and help us parents along.
 
-I think running around the [Plaza del Obradoiro](http://www.planetware.com/santiago-de-compostela/plaza-del-obradoiro-plaza-de-espana-e-gal-obrad.htm), dancing to a bagpipe-playing young man off to the side of the [cathedral](http://www.youtube.com/watch?v=TnqpoELmDbM), dressing in [a pilgrims costume](http://soultravelers3new.local/2008/08/little-pilgrims.html#more) and reading this book,  right along with touring, all help Mozart understand why we came to Santiago and the rich history here.
+I think running around the [Plaza del Obradoiro](http://www.planetware.com/santiago-de-compostela/plaza-del-obradoiro-plaza-de-espana-e-gal-obrad.htm), dancing to a bagpipe-playing young man off to the side of the [cathedral](http://www.youtube.com/watch?v=TnqpoELmDbM), dressing in [a pilgrims costume](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/little-pilgrims.html#more) and reading this book,  right along with touring, all help Mozart understand why we came to Santiago and the rich history here.
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2038.jpg)
 
-[![Img_2038_2](http://soultravelers3new.local/images/2008/09/08/img_2038_2.jpg "Img_2038_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2038_2.jpg)
+[![Img_2038_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/08/img_2038_2.jpg "Img_2038_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2038_2.jpg)
 
   
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2348.jpg)
 
-[![Img_2348_2](http://soultravelers3new.local/images/2008/09/08/img_2348_2.jpg "Img_2348_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2348_2.jpg)
+[![Img_2348_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/08/img_2348_2.jpg "Img_2348_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2348_2.jpg)
 
   
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_1921.jpg)
 
-[![Img_1921_2](http://soultravelers3new.local/images/2008/09/08/img_1921_2.jpg "Img_1921_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_1921_2.jpg)
+[![Img_1921_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/08/img_1921_2.jpg "Img_1921_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_1921_2.jpg)
 
   
 
@@ -67,7 +67,7 @@ I think running around the [Plaza del Obradoiro](http://www.planetware.com/santi
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2165.jpg)
 
-[![Img_2165_2](http://soultravelers3new.local/images/2008/09/08/img_2165_2.jpg "Img_2165_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2165_2.jpg)
+[![Img_2165_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/08/img_2165_2.jpg "Img_2165_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2165_2.jpg)
 
   
 
@@ -85,4 +85,4 @@ I think running around the [Plaza del Obradoiro](http://www.planetware.com/santi
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2228.jpg)
 
-[![Img_2228_2](http://soultravelers3new.local/images/2008/09/08/img_2228_2.jpg "Img_2228_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2228_2.jpg)
+[![Img_2228_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/08/img_2228_2.jpg "Img_2228_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/08/img_2228_2.jpg)

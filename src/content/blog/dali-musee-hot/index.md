@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_3812](http://soultravelers3new.local/images/2008/04/24/img_3812.png "Img_3812")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3812.png) Dali Musee, hot, hot, hot!  
+ [![Img_3812](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3812.png "Img_3812")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3812.png) Dali Musee, hot, hot, hot!  
 October 26, 2006
 
 We heard that the Dali Museum was a  
@@ -15,7 +15,7 @@ Figueres and were thrilled to see this
 
 <!--more-->
 
-[![Img_3812_2](http://soultravelers3new.local/images/2008/04/24/img_3812_2.png "Img_3812_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3812_2.png)
+[![Img_3812_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3812_2.png "Img_3812_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3812_2.png)
 
 We heard that the Dali Museum was a "must see", so we made a quick dash into Figueres and were thrilled to see this gorgeous art museum! Only Dali could do this and it was very thought provoking, enticing, and entertaining to all three of us. DaVinci particularly liked his etchings as he felt they showed his mastery of the human figure which is common for all great masters. Mozart has decided that Dali is her favorite artist of all that we have seen, pushing Monet and Michaelangelo out of that spot. So we are very glad that we went a little out of our way and took the time to see it .
 
@@ -38,24 +38,24 @@ have never heard this before nor do I know if it is a fact, but interestingly, t
 
 So now she has a bigger gap,but already the two permanent  teeth are coming in.I never noticed that kids look so cute with that gap and I am surprised to find myself grinning inside with joy every time I catch a fleeting glimpse of it when she talks because it is too adorable. (Must be a mom thing ;). So I suppose the tooth fairy will now have to find us in Spain. We are giving her a run for her money! One out in France, one in Spain, who wants to guess where the next one will come out?
 
-[![Img_3788](http://soultravelers3new.local/images/2008/04/24/img_3788.png "Img_3788")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3788.png)
+[![Img_3788](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3788.png "Img_3788")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3788.png)
 
-[![Img_3794](http://soultravelers3new.local/images/2008/04/24/img_3794.png "Img_3794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3794.png)
+[![Img_3794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3794.png "Img_3794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3794.png)
 
-[![Img_3805](http://soultravelers3new.local/images/2008/04/24/img_3805.png "Img_3805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3805.png)
+[![Img_3805](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3805.png "Img_3805")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3805.png)
 
-[![Img_3817](http://soultravelers3new.local/images/2008/04/24/img_3817.png "Img_3817")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3817.png)
+[![Img_3817](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3817.png "Img_3817")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3817.png)
 
-[![Img_3825](http://soultravelers3new.local/images/2008/04/24/img_3825.png "Img_3825")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3825.png)
+[![Img_3825](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3825.png "Img_3825")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3825.png)
 
-[![Img_3834](http://soultravelers3new.local/images/2008/04/24/img_3834.png "Img_3834")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3834.png)
+[![Img_3834](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3834.png "Img_3834")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3834.png)
 
-[![Img_3835](http://soultravelers3new.local/images/2008/04/24/img_3835.png "Img_3835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3835.png)
+[![Img_3835](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3835.png "Img_3835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3835.png)
 
-[![Img_3843](http://soultravelers3new.local/images/2008/04/24/img_3843.png "Img_3843")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3843.png)
+[![Img_3843](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3843.png "Img_3843")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3843.png)
 
-[![Img_3801](http://soultravelers3new.local/images/2008/04/24/img_3801.png "Img_3801")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3801.png)
+[![Img_3801](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3801.png "Img_3801")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3801.png)
 
-[![Img_3823](http://soultravelers3new.local/images/2008/04/24/img_3823.png "Img_3823")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3823.png)
+[![Img_3823](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3823.png "Img_3823")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3823.png)
 
-[![Img_3851](http://soultravelers3new.local/images/2008/04/24/img_3851.png "Img_3851")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3851.png)
+[![Img_3851](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3851.png "Img_3851")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3851.png)

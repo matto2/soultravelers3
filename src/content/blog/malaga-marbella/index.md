@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_0663](http://soultravelers3new.local/images/2008/06/03/img_0663.jpg "Img_0663")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0663.jpg) Malaga & Marbella '08  
+ [![Img_0663](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0663.jpg "Img_0663")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0663.jpg) Malaga & Marbella '08  
 June 3, 2008
 
 We did not know that May 15th was a  
@@ -15,11 +15,11 @@ the start of our European '08  Odyssey.
 
 <!--more-->
 
-[![Img_0663_2](http://soultravelers3new.local/images/2008/06/03/img_0663_2.jpg "Img_0663_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0663_2.jpg)
+[![Img_0663_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0663_2.jpg "Img_0663_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0663_2.jpg)
 
 We did not know that May 15th was a [major holiday in Spain](http://everydaysaholiday.wordpress.com/2008/05/15/san-isidro/) when we planned the start of our European '08  Odyssey. Shades of our arrival on November 1st, 2006 when we did not realize that was a [major holiday](http://en.wikipedia.org/wiki/All_Saints_Day). Grin. It is hard to keep track of all the holidays in Europe, although we are often affected by them as there is an impact on our travel when the Spanish have a bank and/or school holiday or even the Germans, Dutch, French or English...who sometimes suddenly take over an area.
 
-[![Img_0620](http://soultravelers3new.local/images/2008/06/03/img_0620.jpg "Img_0620")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0620.jpg)
+[![Img_0620](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0620.jpg "Img_0620")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0620.jpg)
 
   
 
@@ -31,7 +31,7 @@ Then we went onto our next errand of getting a new bike for Mozart and me and pi
 
 It was a lovely evening, so the three of us, scraggly and tired campers, sat down on a little wall outside the empty large store under the stars and had a magical moment. Suddenly, out of the blue, the most glorious fireworks display above the nearby trees, entertained us as we ate. We took it as a sign of approval from above, that we were being rewarded for our hard work and reminded  us that the joy of simple pleasures will light up our journey on this new '08 odyssey. We headed to bed after the fireworks, content and happy after a very long day, grateful for the Grace in our lives.
 
-[![Img_0675](http://soultravelers3new.local/images/2008/06/03/img_0675.jpg "Img_0675")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0675.jpg)
+[![Img_0675](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0675.jpg "Img_0675")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0675.jpg)
 
   
 
@@ -40,7 +40,7 @@ The next morning we headed to Marbella which is not so far away, about an hour. 
 We stayed at [Marbella Playa campsite](http://www.campingmarbella.com/) which happened to be very close to and on the same beach that we [stayed at](http://www.marriott.com/hotels/hotel-photos.mi?marshaCode=agpmb&pageID=HWHOM) last year with DaVinci's family. It was just perfect for our needs and nice and quiet in the off season. It was a great place to ride bikes which was terrific for Mozart who does not get much chance  
 to do that in our very hilly village and about a block away from the beach. Family life goes on in our timeless extended travel and sometimes we need time to just be. It is one of the rewards of slow travel.
 
-[![Img_0665](http://soultravelers3new.local/images/2008/06/03/img_0665.jpg "Img_0665")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0665.jpg)
+[![Img_0665](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0665.jpg "Img_0665")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0665.jpg)
 
   
 
@@ -48,32 +48,32 @@ Life in our RV is slower and close to nature, so very soothing. Part of that is 
   
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0643.jpg)
 
-[![Img_0643_3](http://soultravelers3new.local/images/2008/06/03/img_0643_3.jpg "Img_0643_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0643_3.jpg)
+[![Img_0643_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0643_3.jpg "Img_0643_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0643_3.jpg)
 
 We are  all so happy to be homeschooling full time again and have a nice rhythm in the morning, part  
 of it is when all three of us are on our laptops doing our work in peaceful harmony. We juggle places, sometimes outside in our comfy chairs, sometimes at the table inside and sometimes one or two of us " downstairs" and another "upstairs" in our loft bedroom. It still amazes me how comfortable we can be  
 in such tight quarters as I never would have guessed it or that we could find ways to have privacy and personal time so easily. We are usually quite cuddly in the mornings and before bed "upstairs" together & have found a great set up for laying in bed while watching dvd's for entertainment nights. We even have getting the piano out for practice down to a science. Before going the small space was one of my biggest worries, but it has worked like a charm much to my surprise.
 
-[![Img_0657](http://soultravelers3new.local/images/2008/06/03/img_0657.jpg "Img_0657")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0657.jpg)
+[![Img_0657](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0657.jpg "Img_0657")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0657.jpg)
 
 Some of the campsites were quite elaborate like Mozart's favorite that was filled with gardens and  
 a fountain. Some northern Europeans spend the winter here and others use their spaces as summer get-away cottages. The weather was divine and it was the perfect place to unwind, barbeque,  
 make homemade orange juice and  castles in the sand!
 
-[![Img_0636](http://soultravelers3new.local/images/2008/06/03/img_0636.jpg "Img_0636")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0636.jpg)
+[![Img_0636](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0636.jpg "Img_0636")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0636.jpg)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0723.jpg)
 
-[![Img_0723_2](http://soultravelers3new.local/images/2008/06/03/img_0723_2.jpg "Img_0723_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0723_2.jpg)
+[![Img_0723_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0723_2.jpg "Img_0723_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0723_2.jpg)
 
-[![Img_0728](http://soultravelers3new.local/images/2008/06/03/img_0728.jpg "Img_0728")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0728.jpg)
+[![Img_0728](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0728.jpg "Img_0728")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0728.jpg)
 
-[![Img_0626](http://soultravelers3new.local/images/2008/06/03/img_0626.jpg "Img_0626")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0626.jpg)
+[![Img_0626](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0626.jpg "Img_0626")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0626.jpg)
 
-[![Img_0858](http://soultravelers3new.local/images/2008/06/03/img_0858.jpg "Img_0858")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0858.jpg)
+[![Img_0858](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0858.jpg "Img_0858")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0858.jpg)
 
-[![Img_0683](http://soultravelers3new.local/images/2008/06/03/img_0683.jpg "Img_0683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0683.jpg)
+[![Img_0683](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0683.jpg "Img_0683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0683.jpg)
 
-[![Img_0660](http://soultravelers3new.local/images/2008/06/03/img_0660.jpg "Img_0660")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0660.jpg)
+[![Img_0660](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/03/img_0660.jpg "Img_0660")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/03/img_0660.jpg)
 
 Don't forget that if you click on the photos here that you can enlarge them. We are going to try to keep up with additional photos in Flickr if we can, depending on internet connection.

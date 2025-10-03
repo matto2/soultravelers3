@@ -24,13 +24,13 @@ them in a luxury high tea
 
 <!--more--> ![High Tea in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168eaf7ef79970c.jpg)  
   
-[Traveling to London with kids?](http://soultravelers3new.local/2012/03/travel-kids-london-hamleys-toy-store.html "traveling to London with kids") You can't miss indulging them in a luxury high tea experience! Afternoon tea is a centuries-old tradition in London and most kids love the fancy service with flourish and scrumptious food, making them feel like real British Royalty or the upper class that they read about in books or see in movies.  
+[Traveling to London with kids?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/travel-kids-london-hamleys-toy-store.html "traveling to London with kids") You can't miss indulging them in a luxury high tea experience! Afternoon tea is a centuries-old tradition in London and most kids love the fancy service with flourish and scrumptious food, making them feel like real British Royalty or the upper class that they read about in books or see in movies.  
   
-On our ongoing [family world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "Around the world trip with kids"), our daughter has been to quite a few in many destinations ( including at the [Four Seasons Hotel in Jordan](http://soultravelers3new.local/2011/07/amazing-family-fun-at-four-seasons-amman.html "four seasons hotel"))  and loves them, plus everyone should try to-die-for  [clotted cream](http://en.wikipedia.org/wiki/Clotted_cream "clotted cream") and scones at least once in life.  
+On our ongoing [family world tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "Around the world trip with kids"), our daughter has been to quite a few in many destinations ( including at the [Four Seasons Hotel in Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/amazing-family-fun-at-four-seasons-amman.html "four seasons hotel"))  and loves them, plus everyone should try to-die-for  [clotted cream](http://en.wikipedia.org/wiki/Clotted_cream "clotted cream") and scones at least once in life.  
   
 Whether you want a "proper" afternoon tea experience ( expensive) or just happily enjoying Brit-style sandwhiches, scones and tea in a less formal way ( cheaper) there are endless choices in London.  
   
-We had an [amazing and very luxurious and fancy high tea](http://soultravelers3new.local/2009/10/family-travel-photo-england-knight-tapestry-high-tea.html "amazing, luxurious, delish high tea London") with old friends at the posh [Cliveden House](http://en.wikipedia.org/wiki/Cliveden "cliveden house, london"), but there are plenty of other choices. Here are a few:  
+We had an [amazing and very luxurious and fancy high tea](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/family-travel-photo-england-knight-tapestry-high-tea.html "amazing, luxurious, delish high tea London") with old friends at the posh [Cliveden House](http://en.wikipedia.org/wiki/Cliveden "cliveden house, london"), but there are plenty of other choices. Here are a few:  
   
 **Best High Tea Choices in London**  
 [  
@@ -45,14 +45,14 @@ Fortnum & Mason](http://www.fortnumandmason.com/c-209-afternoon-tea-fortnum-and-
   
 **Other ideas for traveling kids and London?**  
   
-[Free Museums in London](http://soultravelers3new.local/2010/10/family-travel-london-free-museums-educational-family-adventures-for-homeschool.html "free museums in London")  
+[Free Museums in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/family-travel-london-free-museums-educational-family-adventures-for-homeschool.html "free museums in London")  
   
-[Globe Theatre for Free](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "globe theatre for free")  
+[Globe Theatre for Free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "globe theatre for free")  
 [  
-Camping in London](http://soultravelers3new.local/2012/04/camping-in-london-best-low-budget-travel.html "camping in London")  
+Camping in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/camping-in-london-best-low-budget-travel.html "camping in London")  
   
-[Best Budget Hotel in London](http://soultravelers3new.local/2011/02/top-budget-hotel-london-travelodge-waterloo-review-central-london-lodging-bargain-family-friendly.html "best budget hotel in london")  
+[Best Budget Hotel in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/top-budget-hotel-london-travelodge-waterloo-review-central-london-lodging-bargain-family-friendly.html "best budget hotel in london")  
   
-[Short Term Rental Apartment in London](http://soultravelers3new.local/2009/10/-roomorama-short-term-rentals-usa-london-budget-hotel-apartments-.html "short term rental apartment london")  
+[Short Term Rental Apartment in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/-roomorama-short-term-rentals-usa-london-budget-hotel-apartments-.html "short term rental apartment london")  
   
 Did you ever do a high tea in London ( or else where)? What was your favorite spot and food item?

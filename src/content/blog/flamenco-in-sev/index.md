@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_9399](http://soultravelers3new.local/images/2008/04/16/img_9399.png "Img_9399")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9399.png) Flamenco in Sevilla  
+ [![Img_9399](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9399.png "Img_9399")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9399.png) Flamenco in Sevilla  
 March 4, 2007
 
 I will forever be haunted by the Flamenco  
@@ -15,7 +15,7 @@ rich, but one singer just blew me away.
 
 <!--more-->
 
-[![Img_9399_2](http://soultravelers3new.local/images/2008/04/16/img_9399_2.png "Img_9399_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9399_2.png)
+[![Img_9399_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9399_2.png "Img_9399_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9399_2.png)
 
 I will forever be haunted by the Flamenco I heard in Sevilla. All of it was luscious and rich, but one singer just blew me away. He was a very young man, but the best singer I have ever heard in my life! The depth of his passion and profoundly  intimate sharing left the audience stunned and spellbound and tears gushed from my eyes. Even Mozart was enthralled  and knew she was witnessing something special. He sang the saddest song I have ever heard.
 
@@ -35,24 +35,24 @@ Both places do not allow you to take photos or video during the show, but they a
 
 The more Flamenco I see and hear, the more I want to see! We picked up some great Flamenco  CD’s, so that will have to satisfy my cravings until the next time.
 
-[![Img_8931](http://soultravelers3new.local/images/2008/04/16/img_8931.png "Img_8931")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_8931.png)
+[![Img_8931](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_8931.png "Img_8931")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_8931.png)
 
-[![Img_8939](http://soultravelers3new.local/images/2008/04/16/img_8939.png "Img_8939")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_8939.png)
+[![Img_8939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_8939.png "Img_8939")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_8939.png)
 
-[![Img_9369](http://soultravelers3new.local/images/2008/04/16/img_9369.png "Img_9369")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9369.png)
+[![Img_9369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9369.png "Img_9369")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9369.png)
 
-[![Img_9383](http://soultravelers3new.local/images/2008/04/16/img_9383.png "Img_9383")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9383.png)
+[![Img_9383](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9383.png "Img_9383")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9383.png)
 
-[![Img_9386](http://soultravelers3new.local/images/2008/04/16/img_9386.png "Img_9386")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9386.png)
+[![Img_9386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9386.png "Img_9386")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9386.png)
 
-[![Img_9385](http://soultravelers3new.local/images/2008/04/16/img_9385.png "Img_9385")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9385.png)
+[![Img_9385](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9385.png "Img_9385")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9385.png)
 
-[![Img_9388](http://soultravelers3new.local/images/2008/04/16/img_9388.png "Img_9388")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9388.png)
+[![Img_9388](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9388.png "Img_9388")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9388.png)
 
-[![Img_9401](http://soultravelers3new.local/images/2008/04/16/img_9401.png "Img_9401")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9401.png)
+[![Img_9401](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9401.png "Img_9401")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9401.png)
 
-[![Img_9395](http://soultravelers3new.local/images/2008/04/16/img_9395.png "Img_9395")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9395.png)
+[![Img_9395](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9395.png "Img_9395")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9395.png)
 
-[![Img_9406](http://soultravelers3new.local/images/2008/04/16/img_9406.png "Img_9406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9406.png)
+[![Img_9406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9406.png "Img_9406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9406.png)
 
-[![Img_9437](http://soultravelers3new.local/images/2008/04/16/img_9437.png "Img_9437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9437.png)
+[![Img_9437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9437.png "Img_9437")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9437.png)

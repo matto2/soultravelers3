@@ -36,14 +36,14 @@ makeup artist in Dallas, Terri
 <!--more-->  
 ![beautiful teen singer Mozart gets pop star look makeup](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd2ed299970b.png)
 
- Perfect [makeup for teens](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "teen model ") is a new realm for us, so the best makeup artist in Dallas, [Terri Tomlinson](http://territomlinson.com/ "terri tomilinson make up dallas") gave [Mozart her Pop Star look](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html "Mozart is a pop star teen singer") when she performed at the [famous Gas Monkey Bar and Grill.](http://gasmonkeybarngrill.com/ "gas monkey bar n grill stage")  
+ Perfect [makeup for teens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/how-my-almost-teen-became-a-model-.html "teen model ") is a new realm for us, so the best makeup artist in Dallas, [Terri Tomlinson](http://territomlinson.com/ "terri tomilinson make up dallas") gave [Mozart her Pop Star look](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html "Mozart is a pop star teen singer") when she performed at the [famous Gas Monkey Bar and Grill.](http://gasmonkeybarngrill.com/ "gas monkey bar n grill stage")  
   
 
 <iframe allowfullscreen src="//www.youtube.com/embed/oF-lexCmkJs?list=UUcMwuQFsEJfOct29ZTa0v8w" frameborder="0" height="360" width="640"></iframe>
 
   
   
-[Teen singer/songwriter Mozart](http://soultravelers3new.local/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html "teen singer songwriter Mozart") was really excited  
+[Teen singer/songwriter Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html "teen singer songwriter Mozart") was really excited  
   
 ![travel teen and singer Mozart ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511df0920970c.png)  
   
@@ -60,7 +60,7 @@ so we partnered with [Terri Tomlinson](https://www.facebook.com/MpkArtist101?fre
   
 ![Terri Tomlinson doing pop star look for singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511de82e2970c.png)  
   
-Terri came to us at [Hawthorn Suites Addison](http://soultravelers3new.local/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "hawthorn suites addison hotel extended stay") and brought her chair and magical makeup products and supplies. She has her own makeup line from Paris and is a regular beauty consultant for a Dallas morning show.  
+Terri came to us at [Hawthorn Suites Addison](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "hawthorn suites addison hotel extended stay") and brought her chair and magical makeup products and supplies. She has her own makeup line from Paris and is a regular beauty consultant for a Dallas morning show.  
   
 ![how to do make up](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd2ecfd6970b.png)  
   
@@ -86,7 +86,7 @@ Normally, we love her usual all-American girl look with pale porcelain skin and 
    
 against older teen singers, where the total look was important including outfit, hair and makeup,besides her singing and stage presence, because being a singing star today involves the "whole package".  
   
-As an [unschooled student](http://soultravelers3new.local/2014/02/home-school-science-unschool-and-world-school-tips.html "unschool student science "), she needs and wants to learn all aspects of her craft NOW, by doing (while she also keeps up with things like [high SAT scores](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html "high SAT score by Mozart") and AP classes).
+As an [unschooled student](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/home-school-science-unschool-and-world-school-tips.html "unschool student science "), she needs and wants to learn all aspects of her craft NOW, by doing (while she also keeps up with things like [high SAT scores](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html "high SAT score by Mozart") and AP classes).
 
   ![teen getting professional makeup for pop star look](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd2ed008970b.png)
 
@@ -101,7 +101,7 @@ We had no idea what she looked like with make-up on and were truthfully quite su
   
 ![beautiful natural make up brushes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de9d2c2970d.png)  
   
-Mozart is a visual [artist](http://soultravelers3new.local/2010/02/kids-art-creativity-travel-family-friendly-travel-education-homeschool-roadschool-.html "art and travel") too so loved the [artistic](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html "artistic perks of travel") aspects, thus she plans to do some vlogs on [youtube](http://www.youtube.com/user/soultravelers3 "youtube soultravelers3 Mozart") later about make-up, after she learns more from [Terri](https://www.facebook.com/MakeupTrainingAcademy?filter=1 "terri tomlinson make up dallas"). Even the natural brushes were beautiful!  
+Mozart is a visual [artist](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/02/kids-art-creativity-travel-family-friendly-travel-education-homeschool-roadschool-.html "art and travel") too so loved the [artistic](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/kid-friendly-travel-perks.html "artistic perks of travel") aspects, thus she plans to do some vlogs on [youtube](http://www.youtube.com/user/soultravelers3 "youtube soultravelers3 Mozart") later about make-up, after she learns more from [Terri](https://www.facebook.com/MakeupTrainingAcademy?filter=1 "terri tomlinson make up dallas"). Even the natural brushes were beautiful!  
   
 ![terri tomlinson doing make up on Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de9d2db970d.png)  
   
@@ -143,22 +143,3 @@ Have you ever gotten makeup done by a pro? What do you think about cosmetics?
 
 Related articles
 
-[![](http://i.zemanta.com/255447587_80_80.jpg)](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)[Mozart - Beautiful Teen Singer, Songwriter, Musician](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)
-
-[![](http://i.zemanta.com/273206581_80_80.jpg)](http://soultravelers3new.local/2014/05/how-and-why-take-your-kids-to-europe.html)[How and Why Take Your Kids to Europe](http://soultravelers3new.local/2014/05/how-and-why-take-your-kids-to-europe.html)
-
-[![](http://i.zemanta.com/276672350_80_80.jpg)](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html)[Wings! Mozart Rocks Little Mix and Looks/Sings Like a Pop Star!](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html)
-
-[![](http://i.zemanta.com/264138071_80_80.jpg)](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)[Bora Bora Dream Vacation on a Low Budget](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)
-
-[![](http://i.zemanta.com/277908180_80_80.jpg)](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)[Top 10 Summer Vacations for Family Travel](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)
-
-[![](http://i.zemanta.com/91218951_80_80.jpg)](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)[Advice to College Grads From a World Traveler](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)
-
-[![](http://i.zemanta.com/280595458_80_80.jpg)](http://soultravelers3new.local/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html)[Mozart Sings "Everything We Are "- (Original Song) Supporting Environment](http://soultravelers3new.local/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html)
-
-[![](http://i.zemanta.com/94084671_80_80.jpg)](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)[Why Learn Mandarin in Tropical Asia - Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)
-
-[![](http://i.zemanta.com/101284346_80_80.jpg)](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)[Travelling/ Traveling Around Europe in a Campervan](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)
-
-[![](http://i.zemanta.com/281968163_80_80.jpg)](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)[Demi Lovato, Dianna De La Garza, Singing and Mozart's SAT Score!](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)

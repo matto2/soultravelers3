@@ -28,7 +28,7 @@ to make and perfect at home or
 
 <!--more-->   ![How to make kefir - goats milk or coconut](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7cae970b.jpg)
 
- Kefir is considered a super food by many and it is super easy to make and perfect at home or to take with you as you [travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy food and travel") for [better health](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "how to get better health") and to protect your immune system. Kefir is a fermented drink/food that began centuries ago in the Caucasus Mountains where the people were known to live extremely long, healthy lives.  
+ Kefir is considered a super food by many and it is super easy to make and perfect at home or to take with you as you [travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/healthy-food-and-travel.html "healthy food and travel") for [better health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "how to get better health") and to protect your immune system. Kefir is a fermented drink/food that began centuries ago in the Caucasus Mountains where the people were known to live extremely long, healthy lives.  
   
 **WHY DRINK KEFIR - BENEFITS**  
   
@@ -56,7 +56,7 @@ Raw milk is best, but you can use cow, goat, sheep, camel, donkey, horse, coconu
   
 I would shy away from the kind you have to buy over and over, save money and get the best quality. Contact [Dom in Austrailia](http://users.sa.chariot.net.au/~dna/kefirpage.html "Dom's kefir ")  ( perhaps the world's best expert on kefir) or the [Kefir Lady Exchange](http://health.groups.yahoo.com/group/Good_Kefir_Grains/ "kefir lady exchange") ( recommended by [WAPF](http://www.westonaprice.org/ "weston price foundation")).   
   
-I got mine through [Kefir Baby](http://enzymo.wordpress.com/category/kefir/ "Kefir Baby where to get kefir grains in Asia") here in KL, [Malaysia](http://soultravelers3new.local/2012/07/typical-malaysia-local-style.html "Malaysia")...she sent it through the mail and held my hand via email through my first attempts at making kefir last year.  
+I got mine through [Kefir Baby](http://enzymo.wordpress.com/category/kefir/ "Kefir Baby where to get kefir grains in Asia") here in KL, [Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/typical-malaysia-local-style.html "Malaysia")...she sent it through the mail and held my hand via email through my first attempts at making kefir last year.  
   
 **WHERE TO BUY KEFIR AND WHAT KIND**  
   
@@ -67,7 +67,7 @@ If you must buy it, I've read that good commercial products include Redwood Hill
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)![goats milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a7e35970b-150x150-1.jpg)  
   
   
-This is the goat milk that I use to make my kefir. Sadly it is pasteurized as I have not found a good, safe  source yet for raw goat milk here in [Penang](http://soultravelers3new.local/2012/05/penang-at-night.html "Penang"), but thankfully, the kefir makes it much healthier by all it adds to the milk. Also they deliver it fresh to my door twice a week, so that is handy.
+This is the goat milk that I use to make my kefir. Sadly it is pasteurized as I have not found a good, safe  source yet for raw goat milk here in [Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/05/penang-at-night.html "Penang"), but thankfully, the kefir makes it much healthier by all it adds to the milk. Also they deliver it fresh to my door twice a week, so that is handy.
 
 ![fresh coconut milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017743658492970d.jpg)  
   
@@ -86,7 +86,7 @@ This is how one knows the kefir is "done". Remember the childhood song about,"cu
   
 We want both parts, so the first things to do when it is done is just stir with a wooden spoon. I am not sure why but one is not suppose to use metal with kefir and kefir products.  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)[![using a strainer to make kefir](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330167688a8120970b-150x150.jpg "using a strainer to make kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a8120970b-150x150.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761588de6d970c-300x225-1.jpg)[![using a strainer to make kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330167688a8120970b-150x150.jpg "using a strainer to make kefir")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167688a8120970b-150x150.jpg)  
   
   
 Then you pour the "ripe" kefir through the strainer into another clean jar.  
@@ -137,8 +137,8 @@ Dr. Cambell-McBride ( M.D. Neurosugeon and Pediatrician with a Masters degree in
   
 **QUESTIONS ABOUT KEFIR?**  
   
-I have long known the benefits of Kefir and used store bought, organic goat milk kefir for Mozart when she was a toddler, but I didn't take it real seriously until lately because of my [travel health](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") issues. I used it on and off last year, but have gotten a lot more into it this year and feel it is really helping rebuild my gut and immune system as well as my families.  
+I have long known the benefits of Kefir and used store bought, organic goat milk kefir for Mozart when she was a toddler, but I didn't take it real seriously until lately because of my [travel health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") issues. I used it on and off last year, but have gotten a lot more into it this year and feel it is really helping rebuild my gut and immune system as well as my families.  
   
-We find it a great, cheap and easy addition to add to our [healthy travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "health and travel") lifestyle and it is even easier for you to do at home. Takes me about 5 minutes a day to make both the coconut and goat milk kefir. I only bought a very few mason jars to use for lacto-fermenting many things and my bone broths, so I collect and use jars that we buy things in like honey and organic peanut butter. I used the mason jars for these photos, but usually just use the other jars on a daily basis. We use up what we make so it doesn't stay in the refrigerator long.  
+We find it a great, cheap and easy addition to add to our [healthy travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/healthy-food-and-travel.html "health and travel") lifestyle and it is even easier for you to do at home. Takes me about 5 minutes a day to make both the coconut and goat milk kefir. I only bought a very few mason jars to use for lacto-fermenting many things and my bone broths, so I collect and use jars that we buy things in like honey and organic peanut butter. I used the mason jars for these photos, but usually just use the other jars on a daily basis. We use up what we make so it doesn't stay in the refrigerator long.  
   
 Any questions or comments? Read Dom's kefir site for anything you might want to know about kefir.

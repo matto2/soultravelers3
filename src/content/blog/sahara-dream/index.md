@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
-[![Img_2636](http://soultravelers3new.local/images/2008/08/30/img_2636.png "Img_2636")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2636.png) Sahara Dream  
+[![Img_2636](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/30/img_2636.png "Img_2636")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_2636.png) Sahara Dream  
 August 30, 2008  
   
 We had a very profound, spiritual experience in  
@@ -17,7 +17,7 @@ there and the awe inspiring, simple beauty.
 
 We had a very profound, spiritual experience in the Sahara thanks to the loving people we met there and the awe inspiring, simple beauty.
 
-This is our video of our experience, read more about it [here](http://soultravelers3new.local/2007/04/les-nomades-sah.html), [here](http://soultravelers3new.local/2007/04/sahara-violin-c.html) and [here](http://soultravelers3new.local/2007/04/nomad-berber-li.html). Or click on Morocco for our many posts on this topic.
+This is our video of our experience, read more about it [here](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/les-nomades-sah.html), [here](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/sahara-violin-c.html) and [here](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/nomad-berber-li.html). Or click on Morocco for our many posts on this topic.
 
 Please subscribe to our [Youtube channel](http://www.youtube.com/user/soultravelers3) to see our videos first. We post all of our videos on Youtube first until we have time to get them on our website.
 

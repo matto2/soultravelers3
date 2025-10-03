@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
-[![Img_4069](http://soultravelers3new.local/images/2008/12/16/img_4069.jpg "Img_4069")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4069.jpg)Santa's Coming! Gift Ideas!  
+[![Img_4069](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_4069.jpg "Img_4069")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4069.jpg)Santa's Coming! Gift Ideas!  
 December 17, 2008
 
 Yikes! Christmas is a week a way and if  
@@ -18,17 +18,17 @@ shopping yet! No worries, there is plenty of
 
 Yikes! Christmas is a week a way and if you are like us, you have not even started shopping yet! No worries, there is plenty of time if you do it online. No matter what holiday you are celebrating, we have lots of good suggestions!
 
-If you have not looked at our shops, please do click on [that link](http://soultravelers3new.local/shop.html) and you will see we have lots of great choices right here of both Soultravelers3 items as well as most  fabulous national brands in almost every category. We have done [lots of reviews](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/book_reviews/index.html) of books & products that we have used.
+If you have not looked at our shops, please do click on [that link](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/shop.html) and you will see we have lots of great choices right here of both Soultravelers3 items as well as most  fabulous national brands in almost every category. We have done [lots of reviews](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/book_reviews/index.html) of books & products that we have used.
 
 If you ever want to do ANY shopping with Amazon.com, please begin your shopping from our website. Just follow [this link](http://www.amazon.com/exec/obidos/redirect?tag=soultravelers-20&path=subst/home/home.html) before you put any items in your shopping cart.
 
 That way, we get a percentage of the sale as commission, while the price of whatever you purchase remains the same to you. Isn't that a wonderful win-win opportunity? Almost as sweet as all the little Santas climbing the sugar cube houses in our village!
 
-[![Img_4056_2](http://soultravelers3new.local/images/2008/12/16/img_4056_2.jpg "Img_4056_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4056_2.jpg)
+[![Img_4056_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_4056_2.jpg "Img_4056_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_4056_2.jpg)
 
 If you know anyone who might enjoy our photography from around the world, check out our [ImageKind store](http://www.imagekind.com/MemberProfile.aspx?MID=066bd5b5-b070-4fb3-b417-c3039b5801f7) where you can get fabulous, one-of-a-kind cards, prints and canvases starting as low as $5.95. We also have some fun things  at [Cafepress](http://www.cafepress.com/soultravelers3) including one of our Soultravelers3 "Heaven on Earth" logo T-shirts for as low as $11.69!
 
-[![Img_0008](http://soultravelers3new.local/images/2008/12/16/img_0008.jpg "Img_0008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_0008.jpg)
+[![Img_0008](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_0008.jpg "Img_0008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_0008.jpg)
 
 Are toys on your list? Do you have a munchkin like us?
 
@@ -47,6 +47,6 @@ If you are looking for a way to give, this is a special opportunity and some awe
 
 The award winning non-profit that we work with [Reach The World](http://www.reachtheworld.org/AboutUs/SupportUs.htm) is another possibility if you are looking for a tax deductible worthy cause donation. Don't forget to mention Soultravelers3 when you donate there. We really fell in love with the kids that we met in NYC that are participating and were touched by how much the schools cared as well as the integrity of everyone involved.
 
-[![Img_0019](http://soultravelers3new.local/images/2008/12/16/img_0019.jpg "Img_0019")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_0019.jpg)
+[![Img_0019](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/16/img_0019.jpg "Img_0019")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/16/img_0019.jpg)
 
 This Friday is the last day of school here in Spain until January 7th, so we have the cute shepherdess outfit ("pastora") that Mozart will wear then with the other kids and during many Christmas festivities here. Her class has been practicing Silent Night in Spanish for when they sing for our village at the town hall. I thought I would end this post with the video we took of our first Christmas concert here when Mozart was six. it is  the season for such things and there is just something about kids singing that makes one smile!

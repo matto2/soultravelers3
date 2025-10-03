@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4921](http://soultravelers3new.local/images/2008/04/20/img_4921.png "Img_4921")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4921.png) Food! Myths & Realities  
+ [![Img_4921](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_4921.png "Img_4921")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4921.png) Food! Myths & Realities  
 December 12, 2006
 
 There is an abundance of great, fresh,  
@@ -15,7 +15,7 @@ because there are farms all around our
 
 <!--more-->
 
-[![Img_4921_2](http://soultravelers3new.local/images/2008/04/20/img_4921_2.png "Img_4921_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4921_2.png)
+[![Img_4921_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_4921_2.png "Img_4921_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4921_2.png)
 
 There is an abundance of great, fresh, cheap food here which makes sense because there are farms all around our village and lots of seafood from the nearby Mediterranean. But before I came, some people told me that I would not find fresh veggies in Spain which seemed quite odd and made me want to bring some organic lettuce seeds from California with me.
 
@@ -32,12 +32,12 @@ of their own and from other European countries, so lots of new things to try.
 
 Spaniards do love ham and I hear it is spectacular here in its many forms but alas we do not eat pork so will not be able to enjoy that. Nevertheless we enjoy seeing all the ham in stores and watching them cut it like today at the restaurant. We do most of our cooking at home, but do like to splurge from time on the local restaurants. Today was a holiday so they were packed. One thing great about living in a tourist town is how many wonderful restaurants there are right here in the village. Their big meal is early in the day, around two-ish which works really well for us. We have been very impressed with the food, service and prices.
 
-[![Img_4923](http://soultravelers3new.local/images/2008/04/20/img_4923.png "Img_4923")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4923.png)
+[![Img_4923](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_4923.png "Img_4923")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4923.png)
 
-[![Img_4873](http://soultravelers3new.local/images/2008/04/20/img_4873.png "Img_4873")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4873.png)
+[![Img_4873](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_4873.png "Img_4873")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4873.png)
 
-[![Img_4922](http://soultravelers3new.local/images/2008/04/20/img_4922.png "Img_4922")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4922.png)
+[![Img_4922](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_4922.png "Img_4922")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_4922.png)
 
-[![Img_5121](http://soultravelers3new.local/images/2008/04/20/img_5121.png "Img_5121")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5121.png)
+[![Img_5121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5121.png "Img_5121")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5121.png)
 
-[![Img_5124](http://soultravelers3new.local/images/2008/04/20/img_5124.png "Img_5124")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5124.png)
+[![Img_5124](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5124.png "Img_5124")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5124.png)

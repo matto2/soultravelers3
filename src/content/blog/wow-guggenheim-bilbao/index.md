@@ -41,7 +41,7 @@ The large pieces  interact with the building and landscape in a whimsical way t
 
 ![IMG_4124](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705af0f5970c.jpg) 
 
-[![IMG_4137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705af383970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330115705af383970c-150x150.jpg) 
+[![IMG_4137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705af383970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330115705af383970c-150x150.jpg) 
 
 ![IMG_4163](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705af45d970c.jpg)
 
@@ -53,13 +53,13 @@ It is one of those places that you really just need to experience yourself, but 
 
 ![IMG_3972](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157090294c970c.jpg)
 
-[![IMG_4022](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157150320e970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301157150320e970b-300x225.jpg)
+[![IMG_4022](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157150320e970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301157150320e970b-300x225.jpg)
 
 ![IMG_4104](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571855c86970b.jpg)
 
 ![IMG_4046](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115705afac1970c.jpg) 
 
-[![IMG_4120](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115715033c6970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330115715033c6970b-300x225.jpg) 
+[![IMG_4120](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115715033c6970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330115715033c6970b-300x225.jpg) 
 
 ![IMG_4239](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571503573970b.jpg)
 

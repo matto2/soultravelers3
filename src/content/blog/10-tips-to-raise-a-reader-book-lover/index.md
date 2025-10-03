@@ -26,9 +26,9 @@ to read like yours does". As a
 <!--more--> ![Tips on raising a reader and book lover like our young girl in London bookstore](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3815ed97970b.jpg)  
   
   
-Are you raising a reader and [book lover](http://soultravelers3new.local/2007/02/book-bonanza.html#more "raising a book lover")? "Wow, I wish my kid loved to read like yours does". As a  [world schooling](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world schooling"), [travel family](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel family") , we hear this CONSTANTLY from parents, as our 12 year old daughter,  Mozart, loves to read and always has a [book](http://soultravelers3new.local/books_family_travel/ "family travel books") in her hands to devour ( often in [3 different languages](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html "multilingual reading")).  
+Are you raising a reader and [book lover](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/book-bonanza.html#more "raising a book lover")? "Wow, I wish my kid loved to read like yours does". As a  [world schooling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "world schooling"), [travel family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "travel family") , we hear this CONSTANTLY from parents, as our 12 year old daughter,  Mozart, loves to read and always has a [book](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/books_family_travel/ "family travel books") in her hands to devour ( often in [3 different languages](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/multilingual-learning-reading-in-3-languages.html "multilingual reading")).  
   
-This is not an accident. Readers are not born, they are raised. Literacy is one of the best predictors of a child's future and being mostly [unplugged](http://soultravelers3new.local/2012/06/unplugged-todays-best-luxury-.html "unplugged best education") is one of the big keys. Mozart gets more excited by libraries and book stores than candy shops as we travel the world.  
+This is not an accident. Readers are not born, they are raised. Literacy is one of the best predictors of a child's future and being mostly [unplugged](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/unplugged-todays-best-luxury-.html "unplugged best education") is one of the big keys. Mozart gets more excited by libraries and book stores than candy shops as we travel the world.  
   
 “Learning is not to be found on a printout, it’s not on call at the touch of the finger. Learning is acquired mainly from books, and most readily from great books.” -  David McCullough  ( Pulitzer Prize winner)  
   
@@ -51,9 +51,9 @@ rarely and narrowly." - Scholastic
 ![Fun with books around the world - we bought ton of Lindgreen in Sweden - Mozart's clay creation of admiration](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4245f897970c.jpg)  
   
   
-That great discussion got me to finally start this series on raising a reader that I have been planning to do for a while. [Books](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "books and travel for kids") are the key to our [homeschooling](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel") or [roadschool](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "roadschool on the road of life long term travel") [travel education](http://soultravelers3new.local/2012/03/home-school-kids-travel.html "homeschool travel education tips") methods of being a [RTW digital nomad family](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "RTW digital nomad family tips") on the move.  
+That great discussion got me to finally start this series on raising a reader that I have been planning to do for a while. [Books](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/minimalist-living-family-travel-lifestyle-books.html "books and travel for kids") are the key to our [homeschooling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel") or [roadschool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "roadschool on the road of life long term travel") [travel education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/home-school-kids-travel.html "homeschool travel education tips") methods of being a [RTW digital nomad family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "RTW digital nomad family tips") on the move.  
   
-Mozart taught herself to read at two, was tested at a third grade level at barely three and was reading Harry Potter at 4, but you don't have to be a [gifted learner](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "gifted learner and travel") to be a book lover and MUCH of it has to do with how the parents support reading and learning.  
+Mozart taught herself to read at two, was tested at a third grade level at barely three and was reading Harry Potter at 4, but you don't have to be a [gifted learner](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "gifted learner and travel") to be a book lover and MUCH of it has to do with how the parents support reading and learning.  
   
 ![Baby reading books in English, Spanish and Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee9bac01b970d.jpg)  
   
@@ -74,7 +74,7 @@ Yes, babies love books! The love of books is contagious passed from parent to ch
   
 **2) HAVE LOTS OF BOOKS EVERY WHERE**  
   
-Our house was filled with quality books and we went to the [library](http://soultravelers3new.local/2009/10/family-travel-photo-finland-books-library-travel-with-kids-homeschool.html "library and kids") and book stores several times a week starting from birth. Even as a [travel family,](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel family") we've managed to have a ton of books and still spend lots of time in libraries and book stores every week.  
+Our house was filled with quality books and we went to the [library](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/family-travel-photo-finland-books-library-travel-with-kids-homeschool.html "library and kids") and book stores several times a week starting from birth. Even as a [travel family,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "travel family") we've managed to have a ton of books and still spend lots of time in libraries and book stores every week.  
   
 Books in the bathroom, books in the kitchen, books in every room to grab and peruse. Books in the camper van, books on a bus, books in a purse always, books in knapsack, books for plane rides. Books are like gold, you always want one around to temp you.Great books are [good for the brain](http://www.telegraph.co.uk/science/science-news/9797617/Shakespeare-and-Wordsworth-boost-the-brain-new-research-reveals.html "books good for brain")!  
   
@@ -113,22 +113,3 @@ Oh, sooo much more to write on this topic, but I see I am running out of time an
 
 Related articles
 
-[![](http://i.zemanta.com/146409563_80_80.jpg)](http://soultravelers3new.local/2013/02/china-travel-20-interviews-soultravelers3-part-2.html)[China Travel 2.0 Interviews Soultravelers3 Part 2](http://soultravelers3new.local/2013/02/china-travel-20-interviews-soultravelers3-part-2.html)
-
-[![](http://i.zemanta.com/149612895_80_80.jpg)](http://soultravelers3new.local/2013/03/being-different-its-a-good-thing.html)[Being Different - It's a GOOD Thing!](http://soultravelers3new.local/2013/03/being-different-its-a-good-thing.html)
-
-[![](http://i.zemanta.com/146676524_80_80.jpg)](http://soultravelers3new.local/2013/02/winter-camping-in-europe.html)[Winter Camping in Europe](http://soultravelers3new.local/2013/02/winter-camping-in-europe.html)
-
-[![](http://i.zemanta.com/147811338_80_80.jpg)](http://soultravelers3new.local/2013/02/eating-in-paris.html)[Eating in Paris](http://soultravelers3new.local/2013/02/eating-in-paris.html)
-
-[![](http://i.zemanta.com/154280453_80_80.jpg)](http://soultravelers3new.local/2013/03/granadas-alhambra.html)[Granada's Alhambra](http://soultravelers3new.local/2013/03/granadas-alhambra.html)
-
-[![](http://i.zemanta.com/151690941_80_80.jpg)](http://soultravelers3new.local/2013/03/best-places-to-visit-ancient-roman-and-greek-ruins.html)[Top 15 Ancient Roman and Greek Ruins](http://soultravelers3new.local/2013/03/best-places-to-visit-ancient-roman-and-greek-ruins.html)
-
-[![](http://i.zemanta.com/143144879_80_80.jpg)](http://soultravelers3new.local/2013/02/only-place-in-europe-to-swim-with-dolphins-portugal.html)[Only Place in Europe to Swim with Dolphins? Portugal!](http://soultravelers3new.local/2013/02/only-place-in-europe-to-swim-with-dolphins-portugal.html)
-
-[![](http://i.zemanta.com/148698346_80_80.jpg)](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html)[Escaping Winter in Tropical Asia!](http://soultravelers3new.local/2013/02/escaping-winter-in-tropical-asia.html)
-
-[![](http://i.zemanta.com/141410675_80_80.jpg)](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)[Learning Mandarin in Beijing, China - Best School](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)
-
-[![](http://i.zemanta.com/152306180_80_80.jpg)](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html)[Mandarin TED Talk? American Kid's Inspiring Chinese Speech!](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html)

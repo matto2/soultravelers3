@@ -22,7 +22,7 @@ do our extended international travel as
 
 Recently we were featured on  Dell's Digital Nomad site discussing how we do our extended international travel as a family, with a focus on meeting educational  and social needs. I am going to re-post it here for our readers who did not get to see it.
 
-For those new, you might also want to look at our most popular post on [how to do extended travel](http://soultravelers3new.local/2008/06/how-to-do-exten.html) as well as our interviews with [Mixergy,com](http://blog.mixergy.com/nomad-family/) and [Gogalvanting](http://www.galavanting.tv/interviews/2009/2/6/an-open-ended-around-the-world-journey-with-soultravelers3.html) Notable Travelers Series. You might also want to read this article on [how to travel the world for free](http://thetravelersnotebook.com/tag/travel-the-world-for-free/) and more on digital nomad living [here](http://blogs.computerworld.com/recession_woes_why_not_become_a_digital_nomad#comment-135861).
+For those new, you might also want to look at our most popular post on [how to do extended travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html) as well as our interviews with [Mixergy,com](http://blog.mixergy.com/nomad-family/) and [Gogalvanting](http://www.galavanting.tv/interviews/2009/2/6/an-open-ended-around-the-world-journey-with-soultravelers3.html) Notable Travelers Series. You might also want to read this article on [how to travel the world for free](http://thetravelersnotebook.com/tag/travel-the-world-for-free/) and more on digital nomad living [here](http://blogs.computerworld.com/recession_woes_why_not_become_a_digital_nomad#comment-135861).
 
 We are a very ordinary family and we are into our third year of an open-ended world tour, living well and traveling to four continents, 29 countries and over 75,000 miles while living on $25K a year! Today, one can live and school anywhere in the world and all you need is a laptop (or three in our case). We have found that it is easier, cheaper and more rewarding than most people realize, so we want everyone to know that.
 
@@ -48,10 +48,9 @@ I never imagined that a middle-aged mom like me with mobility challenges could d
 
 If you have ever dreamed about extended travel with your family, I am here to be a witness to let you know that it can be done and extraordinary things can happen to very ordinary people. The hardest part is making that choice, the rest is easy!
 
-Oh, and one hazard of this world digital nomad life is you some times end up with bad haircuts, so sorry we don’t look our best in the video. ![;)](http://www.digitalnomads.com/wp-includes/images/smilies/icon_wink.gif)
+Oh, and one hazard of this world digital nomad life is you some times end up with bad haircuts, so sorry we don’t look our best in the video. 😉
 
-One learns to be ever flexible on the road and little things like colds and bad haircuts,thus they can’t stop us from getting the message out![  
-](http://www.reachtheworld.org/)
+One learns to be ever flexible on the road and little things like colds and bad haircuts,thus they can’t stop us from getting the message out
 
 <script type="text/javascript">fastswfembed("http://www.youtube.com/v/L1AspeNfcGE&hl=en&fs=1",425,344,'1332-0');</script>
 

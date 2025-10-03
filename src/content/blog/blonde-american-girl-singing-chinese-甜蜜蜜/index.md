@@ -35,14 +35,14 @@ girl sing or speak Chinese, so Mozart
 <!--more-->  
 ![Mozart - Blonde American Girl Singing Chinese!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0793f628970d.png)  
   
-In [Asia](http://soultravelers3new.local/asia/ "Asia travel") or the USA, people seem shocked to see a blonde girl sing or [speak Chinese](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in Mandarin"), so [Mozart](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "mozart beautiful teen singer, songwriter trilingual ") is used to that by now. She is grateful to be a [bridge between cultures](http://soultravelers3new.local/2012/12/china-bridge-summer-palace.html "Mozart is bridge between two cultures China and America"). Her [Youtube fans](https://www.youtube.com/user/soultravelers3 "Soultravelers3 youtube") have been requesting that [she sing in Mandarin](https://www.youtube.com/user/soultravelers3 "Teen singer Mozart singing in Mandarin"), so here it is:  
+In [Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/asia/ "Asia travel") or the USA, people seem shocked to see a blonde girl sing or [speak Chinese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/fluent-mandarin.html "fluent in Mandarin"), so [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "mozart beautiful teen singer, songwriter trilingual ") is used to that by now. She is grateful to be a [bridge between cultures](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/china-bridge-summer-palace.html "Mozart is bridge between two cultures China and America"). Her [Youtube fans](https://www.youtube.com/user/soultravelers3 "Soultravelers3 youtube") have been requesting that [she sing in Mandarin](https://www.youtube.com/user/soultravelers3 "Teen singer Mozart singing in Mandarin"), so here it is:  
   
 
 <iframe allowfullscreen frameborder="0" height="360" src="//www.youtube.com/embed/xegoGuIZA7g?list=UUcMwuQFsEJfOct29ZTa0v8w" width="640"></iframe>
 
   
   
-It was a thrill for her that her very first paid singing gig was in Asia, when she was twelve, singing in [Mandarin](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "Mozart's Mandarin ted talk") at a big traditional Chinese wedding.  
+It was a thrill for her that her very first paid singing gig was in Asia, when she was twelve, singing in [Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "Mozart's Mandarin ted talk") at a big traditional Chinese wedding.  
   
 ![Blonde American Girl Singing in Mandarin at a Chinese wedding in Asia ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d078a9c4970c.png)  
   
@@ -97,22 +97,3 @@ If you're in Dallas, don't miss her on Friday, October 10th at the [Opening Bell
 
 Related articles
 
-[![](http://i.zemanta.com/101284346_80_80.jpg)](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)[Travelling/ Traveling Around Europe in a Campervan](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)
-
-[![](http://i.zemanta.com/201763828_80_80.jpg)](http://soultravelers3new.local/2013/09/best-places-to-visit-in-europe.html)[Best Places to Visit in Europe](http://soultravelers3new.local/2013/09/best-places-to-visit-in-europe.html)
-
-[![](http://i.zemanta.com/94084671_80_80.jpg)](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)[Why Learn Mandarin in Tropical Asia - Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/261912623_80_80.jpg)](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)[World as my Middle School - The Atlantic & Soultravelers3](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)
-
-[![](http://i.zemanta.com/239455677_80_80.jpg)](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)[Mozart Meeting Soultravelers3 Blog Readers Around the World](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)
-
-[![](http://i.zemanta.com/121621268_80_80.jpg)](http://soultravelers3new.local/2012/10/halloween-jack-o-lantern-fun.html)[Halloween Jack-O' - Lantern Fun!](http://soultravelers3new.local/2012/10/halloween-jack-o-lantern-fun.html)
-
-[![](http://i.zemanta.com/264138071_80_80.jpg)](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)[Bora Bora Dream Vacation on a Low Budget](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)
-
-[![](http://i.zemanta.com/277908180_80_80.jpg)](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)[Top 10 Summer Vacations for Family Travel](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)
-
-[![](http://i.zemanta.com/243671903_80_80.jpg)](http://soultravelers3new.local/2014/01/winter-road-trip-americas-southwest-.html)[Winter Road Trip - America's Southwest](http://soultravelers3new.local/2014/01/winter-road-trip-americas-southwest-.html)

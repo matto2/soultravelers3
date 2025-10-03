@@ -33,20 +33,20 @@ the top places in the USA to watch
 ![Mozart enjoying 4th of July Fireworks! Kaboom! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd2ba66c970b.png)  
   
   
-Pssst,do you want to know a secret? [Addison Texas](http://www.miamiherald.com/2014/07/03/4216917/5-things-to-know-the-fireworks.html "addison texas fireworks") is rated as one of the [top places in the USA](http://en.wikipedia.org/wiki/Kaboom_Town "top places to see fireworks on july 4th") to watch fireworks on the Fourth of July and we had the best view in town from our room at the [Hawthorn Suites Hotel.](http://soultravelers3new.local/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "hawthorn suites hotel addiston- best in Dallas for extended stay")  
+Pssst,do you want to know a secret? [Addison Texas](http://www.miamiherald.com/2014/07/03/4216917/5-things-to-know-the-fireworks.html "addison texas fireworks") is rated as one of the [top places in the USA](http://en.wikipedia.org/wiki/Kaboom_Town "top places to see fireworks on july 4th") to watch fireworks on the Fourth of July and we had the best view in town from our room at the [Hawthorn Suites Hotel.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "hawthorn suites hotel addiston- best in Dallas for extended stay")  
   
 ![fireworks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd2ba6d1970b.png)  
   
   
-Since we've been [traveing the world](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "how to travel the world ") for over [8 years straight](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "kid traveling the world for 8 years straight"), we haven't been in America on July 4th in almost 9 years, so what a delightful surprise to be in this gem on this day.  
+Since we've been [traveing the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "how to travel the world ") for over [8 years straight](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "kid traveling the world for 8 years straight"), we haven't been in America on July 4th in almost 9 years, so what a delightful surprise to be in this gem on this day.  
   
 ![fireworks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511db46bd970c.png)  
   
-We've seen fireworks all over the world like [Spain](http://soultravelers3new.local/2008/04/most-magical-mu.html "magical march spain festival"), [Australia](http://soultravelers3new.local/2014/03/celebrating-13th-birthday-in-healthy-ways-at-four-seasons-hotel-sydney.html "australia travel"), [France](http://soultravelers3new.local/2010/07/colliore-france-on-bastille-day-family-travel-pyrennees-catalonia-beautiful-village-on-the-med-sea.html "france travel "), China, [Malaysia](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "chinese new year in Georgetown, malaysia") and more, but never saw a display like this.  
+We've seen fireworks all over the world like [Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/most-magical-mu.html "magical march spain festival"), [Australia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/celebrating-13th-birthday-in-healthy-ways-at-four-seasons-hotel-sydney.html "australia travel"), [France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/colliore-france-on-bastille-day-family-travel-pyrennees-catalonia-beautiful-village-on-the-med-sea.html "france travel "), China, [Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "chinese new year in Georgetown, malaysia") and more, but never saw a display like this.  
   
 ![travel teen Mozart singing with guitar](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de6a138970d.png)  
   
-It was fun for our all-American girl, [Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "mozart trilingual speaker"), to get decked out in her red, white and blue and enjoy this holiday in her home country. She [sang some songs](http://soultravelers3new.local/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html "singer mozart"), ate some BBQ and headed for the pool.  
+It was fun for our all-American girl, [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "mozart trilingual speaker"), to get decked out in her red, white and blue and enjoy this holiday in her home country. She [sang some songs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/mozart-sings-everything-we-are-original-song-supporting-environment.html "singer mozart"), ate some BBQ and headed for the pool.  
   
 ![Travel teen and singer Mozart sunning by the pool in new bikini ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73de6a12e970d.png)  
   
@@ -62,7 +62,7 @@ and she even met some new friends!
   
 ![Mozart swimming with friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd2ba705970b.png)  
   
-There were lots of activies for kids like carnival rides and face painting, but we are comfy in our [long stay hotel](http://soultravelers3new.local/2014/05/hawthorn-suites-by-wyndham-addison-galleria-.html "hawthorn suites by wyndam addison galleria"), so mostly hung out at ["home](http://www.hawthorn.com/hotels/texas/addison/hawthorn-suites-by-wyndham-addison-galleria/hotel-overview "extended stay hotel dallas")" as a family.  
+There were lots of activies for kids like carnival rides and face painting, but we are comfy in our [long stay hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/05/hawthorn-suites-by-wyndham-addison-galleria-.html "hawthorn suites by wyndam addison galleria"), so mostly hung out at ["home](http://www.hawthorn.com/hotels/texas/addison/hawthorn-suites-by-wyndham-addison-galleria/hotel-overview "extended stay hotel dallas")" as a family.  
   
 ![travel teen and singer Mozart is an all-American  girl ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd2ba713970b.png)  
   
@@ -93,7 +93,7 @@ It's been a very intense first half of 2014 for us....
   
 ![beautiful fireworks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511db47cc970c.png)  
   
-as we shifted gears quickly to follow new [teen Mozart's passion for singing](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "teen traveler and singer Mozart"), which led us to Dallas.  
+as we shifted gears quickly to follow new [teen Mozart's passion for singing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "teen traveler and singer Mozart"), which led us to Dallas.  
   
 ![beautiful fireworks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dc453da970d.pngfd2ba804970b-pi)  
   
@@ -108,28 +108,9 @@ celebrating the 238th birthday of this great nation, from this most perfect vant
   
 and then taking time to cuddle and watch a movie in bed, was a great reminder that we are ALWAYS in the perfect place.  
   
-I hope your [4th of July weekend](http://soultravelers3new.local/2013/07/best-freedom-quotes.html "freedom quotes for july 4th ") rocks and brings great blessings to you and yours! ( Whether you are the USA celebrating or elsewhere).  
+I hope your [4th of July weekend](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/best-freedom-quotes.html "freedom quotes for july 4th ") rocks and brings great blessings to you and yours! ( Whether you are the USA celebrating or elsewhere).  
   
 Isn't life grand?
 
 Related articles
 
-[![](http://i.zemanta.com/265735629_80_80.jpg)](http://soultravelers3new.local/2014/04/winter-melts-into-spring.html)[Winter Melts into Spring](http://soultravelers3new.local/2014/04/winter-melts-into-spring.html)
-
-[![](http://i.zemanta.com/264138071_80_80.jpg)](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)[Bora Bora Dream Vacation on a Low Budget](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)
-
-[![](http://i.zemanta.com/246454689_80_80.jpg)](http://soultravelers3new.local/2014/02/omg-snow-in-dallas.html)[OMG! Snow in Dallas!!](http://soultravelers3new.local/2014/02/omg-snow-in-dallas.html)
-
-[![](http://i.zemanta.com/261038051_80_80.jpg)](http://soultravelers3new.local/2014/03/13-year-old-mozart-sings-time-after-time.html)[13 Year Old Mozart Sings Time After Time](http://soultravelers3new.local/2014/03/13-year-old-mozart-sings-time-after-time.html)
-
-[![](http://i.zemanta.com/253943088_80_80.jpg)](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)[Homeschool Family European Tour](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)
-
-[![](http://i.zemanta.com/191008312_80_80.jpg)](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html)[Healing Journey and Blessings](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/101284346_80_80.jpg)](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)[Travelling/ Traveling Around Europe in a Campervan](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)
-
-[![](http://i.zemanta.com/94084671_80_80.jpg)](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)[Why Learn Mandarin in Tropical Asia - Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)
-
-[![](http://i.zemanta.com/261912623_80_80.jpg)](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)[World as my Middle School - The Atlantic & Soultravelers3](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)

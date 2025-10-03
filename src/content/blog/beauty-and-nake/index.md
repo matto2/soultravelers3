@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
- [![Img_0322](http://soultravelers3new.local/images/2008/06/22/img_0322.jpg "Img_0322")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0322.jpg) Beauty & Nakedness  
+ [![Img_0322](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0322.jpg "Img_0322")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0322.jpg) Beauty & Nakedness  
 June 23, 2008
 
 We wanted to skip the over-built  part of  
@@ -15,7 +15,7 @@ as we avoid the similar over built up parts
 
 <!--more-->
 
-[![Img_0322_2](http://soultravelers3new.local/images/2008/06/22/img_0322_2.jpg "Img_0322_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0322_2.jpg)
+[![Img_0322_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/22/img_0322_2.jpg "Img_0322_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/22/img_0322_2.jpg)
 
 We wanted to skip the over-built  part of  the Algarve as it is not our cup of tea, just as  we avoid the similar over built up parts of the Costa del Sol.  Both of these areas are havens for northern Europeans who love sun and sea holidays to bake in the sun, so these areas are filled with condos, time shares and high rises, thus have long lost authenticity. To avoid this,  we stopped first in the far eastern part and then headed to the far western part of the Algarve and just skipped the very congested middle.
 
@@ -27,22 +27,22 @@ We found it a little humorous, since it was a huge campground with about 4 campe
 
 Still, it was a very beautiful location and they put a lot of work into the grounds. Lots of beautiful flowers and wild flowers and every tree had been masterfully pruned. It had a very special energy and was worth getting naked for. DaVinci couldn't stop talking about the beauty, I was in photographers heaven and Mozart thought the family nudity outside was just the cat's meow.  I am afraid we will just have to post pictures from our pre-naked time there before we got our "naked-only naturists" warning.
 
-[![Img_0509](http://soultravelers3new.local/images/2008/06/23/img_0509.jpg "Img_0509")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0509.jpg)
+[![Img_0509](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0509.jpg "Img_0509")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0509.jpg)
 
-[![Img_0290](http://soultravelers3new.local/images/2008/06/23/img_0290.jpg "Img_0290")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0290.jpg)
+[![Img_0290](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0290.jpg "Img_0290")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0290.jpg)
 
-[![Img_0557](http://soultravelers3new.local/images/2008/06/23/img_0557.jpg "Img_0557")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0557.jpg)
+[![Img_0557](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0557.jpg "Img_0557")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0557.jpg)
 
-[![Img_0481_2](http://soultravelers3new.local/images/2008/06/23/img_0481_2.jpg "Img_0481_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0481_2.jpg)
+[![Img_0481_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0481_2.jpg "Img_0481_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0481_2.jpg)
 
-[![Img_0407](http://soultravelers3new.local/images/2008/06/23/img_0407.jpg "Img_0407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0407.jpg)
+[![Img_0407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0407.jpg "Img_0407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0407.jpg)
 
-[![Img_0598](http://soultravelers3new.local/images/2008/06/23/img_0598.jpg "Img_0598")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0598.jpg)
+[![Img_0598](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0598.jpg "Img_0598")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0598.jpg)
 
-[![Img_0452](http://soultravelers3new.local/images/2008/06/23/img_0452.jpg "Img_0452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0452.jpg)
+[![Img_0452](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0452.jpg "Img_0452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0452.jpg)
 
-[![Img_0600](http://soultravelers3new.local/images/2008/06/23/img_0600.jpg "Img_0600")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0600.jpg)
+[![Img_0600](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0600.jpg "Img_0600")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0600.jpg)
 
-[![Img_0576_2](http://soultravelers3new.local/images/2008/06/23/img_0576_2.jpg "Img_0576_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0576_2.jpg)
+[![Img_0576_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0576_2.jpg "Img_0576_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0576_2.jpg)
 
-[![Img_0611](http://soultravelers3new.local/images/2008/06/23/img_0611.jpg "Img_0611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0611.jpg)
+[![Img_0611](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/23/img_0611.jpg "Img_0611")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/06/23/img_0611.jpg)

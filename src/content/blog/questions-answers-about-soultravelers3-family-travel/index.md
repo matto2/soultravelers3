@@ -14,11 +14,11 @@ travel look like?"
 
 <!--more-->
 
-[![IMG_7437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157207f285970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301157207f285970b-150x150.jpg)
+[![IMG_7437](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157207f285970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301157207f285970b-150x150.jpg)
 
 "How do you travel the world and what exactly does extended family travel look like?"
 
-We get so many questions via our [blog,](http://soultravelers3new.local/contact-us.html) email, [Twitter,](http://twitter.com/soultravelers3) [Youtube](http://www.youtube.com/user/soultravelers3) and [Facebook,](http://www.facebook.com/pages/Soultravelers3com-Around-the-World-Family-Travel-Education-Adventure/185105005187) that I have a hard time keeping up with them, so I've decided to add them as a post from time to time. That way I  can easily link back to them if they come up again. I still haven't finished our FAQ's so perhaps this will be a way to do that as well. I will also being doing a well documented diary of a typical week in our life, so keep an eye out for that here and on [The Professional Hobo](http://theprofessionalhobo.com/).
+We get so many questions via our [blog,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/contact-us.html) email, [Twitter,](http://twitter.com/soultravelers3) [Youtube](http://www.youtube.com/user/soultravelers3) and [Facebook,](http://www.facebook.com/pages/Soultravelers3com-Around-the-World-Family-Travel-Education-Adventure/185105005187) that I have a hard time keeping up with them, so I've decided to add them as a post from time to time. That way I  can easily link back to them if they come up again. I still haven't finished our FAQ's so perhaps this will be a way to do that as well. I will also being doing a well documented diary of a typical week in our life, so keep an eye out for that here and on [The Professional Hobo](http://theprofessionalhobo.com/).
 
 Here are some recent questions (in bold)   from a single mom with a 5 and 7 year old that discovered our website though Twitter (and our answers):
 
@@ -32,7 +32,7 @@ I don't really, but I think it will really depend on the individual. It is a bit
 
 In some ways it may be easier and in some instances it may be harder. I think one would need to gear the travel to how and where it would work for all of you. If you travel by camping in Europe during high season, most places [have free child care and fun activities for the kids.](http://www.askamum.co.uk/Family/Search-Results/Holidays/Family-friendly-camping-holiday-Norcenni-Girasole-Club-Figline-Italy-/) We have found campsites very safe in Europe. There are many women who travel alone or with another woman.
 
-There are other single moms who have done world travel with kids on their own. I was quite impressed to read about a mom with 5 kids who did the trip on her own ( from [the book " One Year Off"](http://soultravelers3new.local/books_rtw_travel/page/2/) and it was the mother of the wife in that family who was inspired by her own travels as a child with her mom and wanted to pass it on to her kids). I was in touch with a mom who did 8 months around the world with 2 kids on her own ( husband stayed home) but do not have that website now.
+There are other single moms who have done world travel with kids on their own. I was quite impressed to read about a mom with 5 kids who did the trip on her own ( from [the book " One Year Off"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/books_rtw_travel/page/2/) and it was the mother of the wife in that family who was inspired by her own travels as a child with her mom and wanted to pass it on to her kids). I was in touch with a mom who did 8 months around the world with 2 kids on her own ( husband stayed home) but do not have that website now.
 
 There is a discussion on [Bootsnall about single moms and traveling](http://boards.bootsnall.com/one-parent-families-t40842.html) that you might want to check out.
 
@@ -44,7 +44,7 @@ We find that having a good reader helps a lot on our travels because Mozart can 
 
 **2\. My children are immersed in the American culture, even though I homeschool them, and I’m concerned about culture shock – any thoughts?**
 
-In my experience, young kids don't seem to get "culture shock". It all just seems like normal life to them. Even when [we were deep into the Sahara,](http://soultravelers3new.local/2007/04/sahara-violin-c.html) I can't say Mozart had any culture shock. She quickly adapted to a mud hut, nomad tent and playing in the Sahara dunes and oasis like it had always been part of her life.
+In my experience, young kids don't seem to get "culture shock". It all just seems like normal life to them. Even when [we were deep into the Sahara,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/sahara-violin-c.html) I can't say Mozart had any culture shock. She quickly adapted to a mud hut, nomad tent and playing in the Sahara dunes and oasis like it had always been part of her life.
 
 We did ( while preparing) and do take time to educate Mozart about the places she visits, even more so if it will be a big change (like Morocco). One of the best parts about family travel is just doing ordinary things in extra ordinary places. Kids will enjoy playing where ever they are.
 
@@ -64,7 +64,7 @@ We knew we would spend lots of time in Spain, so we worked on our Spanish before
 
 We have learned languages as we have gone and our Spanish continues to grow, even Mozart's. I think it is an excellent idea to learn before and during travel. In Europe, one really gets to see the advantage of having more than one language and that lesson alone is fantastic for kids. Mozart has much more respect for Spanish now that she has experienced it as the dominant language. I have known people who have become basically  fluent in Spanish in immersed environments in 5 weeks. If you put your kids in a local school, they will pick it up quickly.
 
-[![IMG_6030](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030c125970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301157030c125970c.jpg)
+[![IMG_6030](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030c125970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301157030c125970c.jpg)
 
   
 **4\. Did you meet a lot of people who spoke English?**
@@ -79,7 +79,7 @@ It is not just the speaking, it is also understanding the answers to simple ques
 
 **5\. I’m concerned about the children having opportunities to play and connect with other children – I didn’t see many photos of Ms Mozart with other children – was/is she ok with that?**
 
-I'm surprised that you did not see Mozart playing with other children as she connects to children and people of every age as we travel. She is a very social child and has benefited greatly by this travel lifestyle as far as friends are concerned. I don't always put pictures [of the kids](http://soultravelers3new.local/2006/09/simple-pleasure.html) unless [I get permission](http://soultravelers3new.local/2006/10/irish-girls-inv.html#more) from the parents. Here is [a video with a friend she met in France](http://www.youtube.com/watch?v=6jYiqGE2VjQ&feature=channel_page) and they had a blast together, or tthe [ones she met in Morocco](http://www.youtube.com/watch?v=IrrAFDt9W_U&feature=channel_page) or a [group of kids she played with in Portugal.](http://soultravelers3new.local/2008/07/workyoutube-pla.html)
+I'm surprised that you did not see Mozart playing with other children as she connects to children and people of every age as we travel. She is a very social child and has benefited greatly by this travel lifestyle as far as friends are concerned. I don't always put pictures [of the kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/simple-pleasure.html) unless [I get permission](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/irish-girls-inv.html#more) from the parents. Here is [a video with a friend she met in France](http://www.youtube.com/watch?v=6jYiqGE2VjQ&feature=channel_page) and they had a blast together, or tthe [ones she met in Morocco](http://www.youtube.com/watch?v=IrrAFDt9W_U&feature=channel_page) or a [group of kids she played with in Portugal.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/workyoutube-pla.html)
 
 One of the [great things about campsites is families](http://www.transitionsabroad.com/publications/magazine/0411/motor_homing_in_europe.shtml) tend to use them a lot, so perfect for making friends from all over Europe! She usually finds a friend within seconds of arriving and has gotten very good at making friends instantly. I think that will serve her for the rest of her life. She prefers it if they speak one of her languages, but she also plays with kids that she shares no language in common with. Many pictures on this page are different kids that she has met and played with recently in Barcelona from the UK, Spain and Ireland.
 
@@ -89,17 +89,17 @@ _“It is never too late to build family foundations,” says Dr. Nicholas Levy,
 
 _“Adaptation and accommodation are probably the most valuable lessons that we can teach our children,” Levy says._
 
-Once in a while, we don't run into kids, but she is fine just hanging out with my husband and I, or she often meets adults that interest her. We meet a lot of young backpacker types and they often enjoy her, especially the young girls or couples. Playing Uno card games for hours with a young couple from Austria at a beach in Croatia, playing backgammon and quizzing each other on Greek myths with other passengers on a gulet sailboat in Turkey, having long talks with a teacher from New Zealand in Samos, Greece...all come to mind off the top of my head. She even became such good friends this way with one of [Japan's beautiful movie starts](http://soultravelers3new.local/2007/09/mozarts-film-de.html) and a film crew that they added her to their film!
+Once in a while, we don't run into kids, but she is fine just hanging out with my husband and I, or she often meets adults that interest her. We meet a lot of young backpacker types and they often enjoy her, especially the young girls or couples. Playing Uno card games for hours with a young couple from Austria at a beach in Croatia, playing backgammon and quizzing each other on Greek myths with other passengers on a gulet sailboat in Turkey, having long talks with a teacher from New Zealand in Samos, Greece...all come to mind off the top of my head. She even became such good friends this way with one of [Japan's beautiful movie starts](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/09/mozarts-film-de.html) and a film crew that they added her to their film!
 
 I agree [with many experts](http://www.naturalchild.org/guest/john_gatto.html), that  it is very valuable for kids to have some alone time in life and she is good at occupying herself with creative projects or books, which I think is a primary life lesson that few kids get today.
 
 Also don't forget that we have spent the last three winters in the same  tiny 15th century village where she goes to the local school for five months. 99% of [the kids are Spanish](http://www.youtube.com/watch?v=xIoXlRXIRgk&feature=channel_page), but a [few are expats that speak English](http://www.youtube.com/watch?v=iStDimptpOU&feature=channel_page) as one of their languages, so she gets to immerse in several European cultures through that as well as Spanish. She also takes classes like [flamenco](http://www.youtube.com/watch?v=lIjySVDkCj0&feature=channel), ceramics, violin there, goes horseback riding, plays sports, has play dates and sleepovers. She also maintains her relationships with family and friends at home via the internet and webcams.
 
-[![IMG_6035](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030ce0f970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301157030ce0f970c.jpg)
+[![IMG_6035](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030ce0f970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301157030ce0f970c.jpg)
 
 **6\. Is there anywhere on your blog where you talk more in detail about the finances involved?**
 
-DaVinci feels like it is a private matter, thus we just leave it to what we spend ( as that is quite easy to track). We do talk about what we [spend on food](http://soultravelers3new.local/2008/09/how-to-eat-heal.html) and [housing](http://soultravelers3new.local/2008/06/how-to-do-exten.html) in greater detail and those are the main expenses.
+DaVinci feels like it is a private matter, thus we just leave it to what we spend ( as that is quite easy to track). We do talk about what we [spend on food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/how-to-eat-heal.html) and [housing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html) in greater detail and those are the main expenses.
 
 We also mostly got out of the dollar in 2005 which has been beneficial for us. We have used two off shore banks  and a bank in the US that allows many currencies.Thus we were never hurt when the euro or pound was very high and the dollar very low.
 
@@ -130,7 +130,7 @@ Here are a few questions from pals on Twitter:
 
 [@mashley9](http://twitter.com/mashley9 "Mary Ashley Burton") **What is your RV like?**
 
-This is a [picture of it](http://soultravelers3new.local/2006/08/our-new-camper.html#more) when we first picked it up in Amsterdam, one recent one where it sits all winter [across from our winter home](http://twitpic.com/4m7ub) in Spain and I here is one taken [this week in Barcelona.](http://twitpic.com/74sqr)
+This is a [picture of it](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/08/our-new-camper.html#more) when we first picked it up in Amsterdam, one recent one where it sits all winter [across from our winter home](http://twitpic.com/4m7ub) in Spain and I here is one taken [this week in Barcelona.](http://twitpic.com/74sqr)
 
  It has a double bed in front over the front seats. In the middle there is a table with two couches on one side and a "kitchen" on the other with two large windows on either side. The kitchen consists of a 2 burner gas stove, normal size sink, small counter, refrigerator and lots of cabinets above and below. Behind that area is a bathroom with a sink and shower. Across from the bathroom is a door and steps that lead to the outside world. Behind them lies the two bunk beds with two windows. There is also a window by the double bed and curtains that close off the double bed and driving area for privacy. There is a "large" closet for clothes (seen in the first picture link).
 
@@ -148,11 +148,11 @@ We usually ask young people in their teens or twenties if we are having a hard t
 
 My tip- be flexible and use a VPN.
 
-[![IMG_5775](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030f905970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301157030f905970c-150x150.jpg)
+[![IMG_5775](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157030f905970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301157030f905970c-150x150.jpg)
 
 **[@GuyNGirlTravels](http://twitter.com/GuyNGirlTravels "Guy and Girl Travels")** **We have a question 4 your blog! Has your family ever been recognized at any of the places you've been?**
 
- Yes! Surprisingly, both times were people we knew from online communities who put 2 and 2 together and figured it out. The first time was on a roof top in the [middle of the ancient  medina in Fez](http://soultravelers3new.local/2007/03/dar-seffarine.html) and shocked us! It turned out he knew us from [Fordor's travel forum.](http://www.fodors.com/community/)
+ Yes! Surprisingly, both times were people we knew from online communities who put 2 and 2 together and figured it out. The first time was on a roof top in the [middle of the ancient  medina in Fez](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/dar-seffarine.html) and shocked us! It turned out he knew us from [Fordor's travel forum.](http://www.fodors.com/community/)
 
 The second time, we randomly asked a stranger to take our picture in the crowded Piazzale Michelangelo and after talking a bit, something triggered her to realize she knew us from Slow Talk.
 
@@ -189,7 +189,7 @@ s "Piotr Godek")**  **where are you heading next? :)**
 
 Italy I'm thinking now, but who knows for sure. Before that we will do some exploring the hidden areas of the Costa Brava and a little of France and Andorra I think. I just read about an interesting gem in the Pyrenees that sounds so tempting too.
 
-Portugal, Barcelona area, Minorca, Sardinia, Corsica, Italy, Switzerland, Poland, Hungry, Romania, possibly Bulgaria and [Paris](http://soultravelers3new.local/2006/09/paris-bois-de-b.html) are all on our list this year, along with Egypt, Jordan & Jerusalem in the fall. We will play it by ear and see how many get seen. Vilinus too maybe.
+Portugal, Barcelona area, Minorca, Sardinia, Corsica, Italy, Switzerland, Poland, Hungry, Romania, possibly Bulgaria and [Paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/paris-bois-de-b.html) are all on our list this year, along with Egypt, Jordan & Jerusalem in the fall. We will play it by ear and see how many get seen. Vilinus too maybe.
 
 We were staying on track until we got to Barcelona. Now, due to the tourist time crunch on us,  I'm thinking we will have to try and pick up Sardinia and Corsica in the fall on the way back. I may cut some things out this year because our main goal is to go slow and really enjoy ourselves.
 

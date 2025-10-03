@@ -23,9 +23,9 @@ paradise on this July 4th, I
 
 <!--more--> ![Beautiful island and freedom quotes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301910413d8a9970c.jpg)  
   
-As I looked out my [kitchen](http://soultravelers3new.local/2013/05/omg-an-oven-in-asia.html "kitchen in Asia") window at this beautiful [tropical island paradise](http://soultravelers3new.local/2013/01/tropical-island-paradise.html "tropical island paradise") on this July 4th, I couldn't help but think about [freedom](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "Early retirement and perpetual travel") and how our [nomadic travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "nomadic travel lifestyle") has allowed us so much of that quality.  
+As I looked out my [kitchen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/05/omg-an-oven-in-asia.html "kitchen in Asia") window at this beautiful [tropical island paradise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/tropical-island-paradise.html "tropical island paradise") on this July 4th, I couldn't help but think about [freedom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "Early retirement and perpetual travel") and how our [nomadic travel lifestyle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "nomadic travel lifestyle") has allowed us so much of that quality.  
   
-I wish all my friends and family in the USA a fun day of BBQ's and fireworks and parades and most of all more love. The same to my Canadian friends celebrating Canada Day this week. No matter where you are I send you more [love, peace and happiness](http://soultravelers3new.local/2012/10/world-peace-love-and-happiness.html "love, peace and happiness"). Let us ponder and create more freedom together.  
+I wish all my friends and family in the USA a fun day of BBQ's and fireworks and parades and most of all more love. The same to my Canadian friends celebrating Canada Day this week. No matter where you are I send you more [love, peace and happiness](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/world-peace-love-and-happiness.html "love, peace and happiness"). Let us ponder and create more freedom together.  
   
 ![fireworks and freedom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330192abdd8e33970d.jpg)  
   
@@ -68,22 +68,3 @@ Do you have a favorite quote about freedom?
 
 Related articles
 
-[![](http://i.zemanta.com/97268419_80_80.jpg)](http://soultravelers3new.local/2012/06/nomadic-lifestyle-with-children-.html)[Nomadic Lifestyle With Children](http://soultravelers3new.local/2012/06/nomadic-lifestyle-with-children-.html)
-
-[![](http://i.zemanta.com/91218951_80_80.jpg)](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)[Advice to College Grads From a World Traveler](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)
-
-[![](http://i.zemanta.com/100812762_80_80.jpg)](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)[How To Make Kefir Easy - Goats Milk or Coconut Milk](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/168450990_80_80.jpg)](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)[Learning Spanish in Spain](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/94084671_80_80.jpg)](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)[Why Learn Mandarin in Tropical Asia - Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)
-
-[![](http://i.zemanta.com/174499943_80_80.jpg)](http://soultravelers3new.local/2013/06/best-tips-camping-paris.html)[Best Tips Camping Paris](http://soultravelers3new.local/2013/06/best-tips-camping-paris.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/92363554_80_80.jpg)](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)[Bora Bora - Heaven on a Cheap Budget!](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)

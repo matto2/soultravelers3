@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4293](http://soultravelers3new.local/images/2008/04/23/img_4293.png "Img_4293")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4293.png) First Day of School in Spain  
+ [![Img_4293](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4293.png "Img_4293")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4293.png) First Day of School in Spain  
 November 5, 2006
 
 Yesterday, we went over to the school and  
@@ -15,7 +15,7 @@ that made her very excited to get to school
 
 <!--more-->
 
-[![Img_4293_2](http://soultravelers3new.local/images/2008/04/23/img_4293_2.png "Img_4293_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4293_2.png)
+[![Img_4293_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4293_2.png "Img_4293_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4293_2.png)
 
 Yesterday, we went over to the school and Mozart met her teacher and saw her class and that made her very excited to get to school on her first day. She is the 25th child in the class and there were lots of girls and about five of the girls are from various countries outside of Spain. There is even another blond girl in her class (from Sweden I think altho she is a Spanish speaker) so she does not stand out at all even tho  
 she is the only American. In some ways I wish they were all Spanish because some of them are English speaking so they will speak that together, but on the other hand,it makes it a little easier for Mozart to have some kids in the same boat as she is in and not always having to use her second language. She also made friends quickly with all Spanish speaking native Spaniard kids so that made me happy.
@@ -65,20 +65,20 @@ I am glad to be back in our go to bed early, wake up early routine. That gives u
 
 Mozart adjusted just as quickly to this school as she has to the two schools she attended in the U.S. She actually much prefers home school, but she is a very social  extrovert so enjoys being around a bunch of kids too. They have lots of days off and we will take some on our own, so this should be a nice compromise for now and allow her Spanish to get very strong. It is so important for her to be in a place where her second language is dominant so she can understand how crucial it is to speak and read in it. We are glad and relieved that it is working out so well.
 
-[![Img_4100](http://soultravelers3new.local/images/2008/04/23/img_4100.png "Img_4100")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4100.png)
+[![Img_4100](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4100.png "Img_4100")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4100.png)
 
-[![Img_4275](http://soultravelers3new.local/images/2008/04/23/img_4275.png "Img_4275")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4275.png)
+[![Img_4275](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4275.png "Img_4275")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4275.png)
 
-[![Img_4277](http://soultravelers3new.local/images/2008/04/23/img_4277.png "Img_4277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4277.png)
+[![Img_4277](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4277.png "Img_4277")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4277.png)
 
-[![Img_4286](http://soultravelers3new.local/images/2008/04/23/img_4286.png "Img_4286")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4286.png)
+[![Img_4286](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4286.png "Img_4286")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4286.png)
 
-[![Img_4287](http://soultravelers3new.local/images/2008/04/23/img_4287.png "Img_4287")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4287.png)
+[![Img_4287](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4287.png "Img_4287")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4287.png)
 
-[![Img_4288](http://soultravelers3new.local/images/2008/04/23/img_4288.png "Img_4288")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4288.png)
+[![Img_4288](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4288.png "Img_4288")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4288.png)
 
-[![Img_4290](http://soultravelers3new.local/images/2008/04/23/img_4290.png "Img_4290")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4290.png)
+[![Img_4290](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4290.png "Img_4290")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4290.png)
 
-[![Img_4285](http://soultravelers3new.local/images/2008/04/23/img_4285.png "Img_4285")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4285.png)
+[![Img_4285](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4285.png "Img_4285")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4285.png)
 
-[![Img_4278](http://soultravelers3new.local/images/2008/04/23/img_4278.png "Img_4278")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4278.png)
+[![Img_4278](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4278.png "Img_4278")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4278.png)

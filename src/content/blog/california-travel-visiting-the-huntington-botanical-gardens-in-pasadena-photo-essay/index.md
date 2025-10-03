@@ -31,11 +31,11 @@ Botanical Gardens when you visit Los Angeles.
   
 ![Visiting the Huntington  Botanical Gardens - beautiful flowers ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8dfec50970b.png)  
   
-If you love beauty and nature, don't miss the [Huntington Library, Art Collections and Botanical Gardens](http://www.huntington.org "huntington gardens") when you [visit Los Angeles](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html "visiting los angeles without a car"). It is gorgeous all year long, but we especially [love it in spring](http://soultravelers3new.local/2012/03/spring-fever-flowers-in-bloom.html "spring flowers"), so were happy to explore again recently when [Mozart](http://soultravelers3new.local/2016/04/mozart-wins-best-actress-award-.html "Mozart Dee ") had one of her WriteGirl workshops there.   
+If you love beauty and nature, don't miss the [Huntington Library, Art Collections and Botanical Gardens](http://www.huntington.org "huntington gardens") when you [visit Los Angeles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/08/travel-to-la-without-a-car-.html "visiting los angeles without a car"). It is gorgeous all year long, but we especially [love it in spring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/spring-fever-flowers-in-bloom.html "spring flowers"), so were happy to explore again recently when [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/04/mozart-wins-best-actress-award-.html "Mozart Dee ") had one of her WriteGirl workshops there.   
   
 ![Visiting the Huntington Botanical Gardens in Pasadena](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb098e6bc0970d.png)  
   
-With [California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California best destinations")'s wonderful, year round sunny weather, there is never a bad time to go, but there is just something about [flowers blooming out in spring](http://soultravelers3new.local/2014/03/15-stunning-flower-photos-to-spread-springs-joy.html "spring flowers") that excites.   
+With [California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/top-10-california-destinations.html "California best destinations")'s wonderful, year round sunny weather, there is never a bad time to go, but there is just something about [flowers blooming out in spring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/15-stunning-flower-photos-to-spread-springs-joy.html "spring flowers") that excites.   
   
 ![Visiting the Huntington Botanical Gardens ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb098e6bcd970d.png)  
   
@@ -82,8 +82,3 @@ This is definitely a place you do not want to miss and we can't wait to go back 
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/338454533_80_80.jpg)](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)[B.madebybebe Gives Teen Singer Mozart Glamour Makeup & Hair!](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)

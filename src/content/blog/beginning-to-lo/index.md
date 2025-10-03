@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4956](http://soultravelers3new.local/images/2008/04/22/img_4956.png "Img_4956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4956.png) Beginning to look like Xmas  
+ [![Img_4956](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4956.png "Img_4956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4956.png) Beginning to look like Xmas  
 December 8, 2006
 
 Mozart just did this quickly on a post-it but  
@@ -15,7 +15,7 @@ on top and lots of presents under the tree
 
 <!--more-->
 
-[![Img_4956_2](http://soultravelers3new.local/images/2008/04/22/img_4956_2.png "Img_4956_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4956_2.png)
+[![Img_4956_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4956_2.png "Img_4956_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4956_2.png)
 
 Mozart just did this quickly on a post-it but I thought it was cute with its little angel on top and lots of presents under the tree and I found it interesting that she wrote Feliz Navidad instead of Merry Christmas. She is very excited about her first Xmas in Spain. Well, she is always excited about xmas like most kids.
 
@@ -32,24 +32,24 @@ I often flew down to the Caribbean or California to escape it. I guess I am one 
 
 I am wondering what our memories of our first xmas in Spain will be like and how we will romanticize them in years to come. I suppose with an  overly enthusiastic child  who loves Christmas it can  be nothing but fun. I haven’t even started my shopping yet, but there seems to be plenty here to choose from, not much different than home. We have not been to it yet, but we hear there is a ToysRus near the closest airport. We have the oven working now, so looks like we can even have those pumpkin pies with that Xmas dinner and maybe make some cookies or home made fudge for our friends here. Grandma has already sent her package out so we will soon have it under our tree. Sounds like a promising one!
 
-[![Img_4855](http://soultravelers3new.local/images/2008/04/22/img_4855.png "Img_4855")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4855.png)
+[![Img_4855](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4855.png "Img_4855")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4855.png)
 
-[![Img_5034](http://soultravelers3new.local/images/2008/04/22/img_5034.png "Img_5034")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5034.png)
+[![Img_5034](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5034.png "Img_5034")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5034.png)
 
-[![Img_5002](http://soultravelers3new.local/images/2008/04/22/img_5002.png "Img_5002")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5002.png)
+[![Img_5002](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5002.png "Img_5002")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5002.png)
 
-[![Img_5085](http://soultravelers3new.local/images/2008/04/22/img_5085.png "Img_5085")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5085.png)
+[![Img_5085](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5085.png "Img_5085")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5085.png)
 
-[![Img_5082](http://soultravelers3new.local/images/2008/04/22/img_5082.png "Img_5082")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5082.png)
+[![Img_5082](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5082.png "Img_5082")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5082.png)
 
-[![Img_5023](http://soultravelers3new.local/images/2008/04/22/img_5023.png "Img_5023")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5023.png)
+[![Img_5023](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5023.png "Img_5023")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5023.png)
 
-[![Img_5008](http://soultravelers3new.local/images/2008/04/22/img_5008.png "Img_5008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5008.png)
+[![Img_5008](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5008.png "Img_5008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5008.png)
 
-[![Img_5053](http://soultravelers3new.local/images/2008/04/22/img_5053.png "Img_5053")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5053.png)
+[![Img_5053](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5053.png "Img_5053")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5053.png)
 
-[![Img_5071](http://soultravelers3new.local/images/2008/04/22/img_5071.png "Img_5071")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5071.png)
+[![Img_5071](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5071.png "Img_5071")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5071.png)
 
-[![Img_5070](http://soultravelers3new.local/images/2008/04/22/img_5070.png "Img_5070")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5070.png)
+[![Img_5070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5070.png "Img_5070")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5070.png)
 
-[![Img_5059](http://soultravelers3new.local/images/2008/04/22/img_5059.png "Img_5059")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5059.png)
+[![Img_5059](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_5059.png "Img_5059")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_5059.png)

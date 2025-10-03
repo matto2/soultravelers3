@@ -17,7 +17,7 @@ especially with a young child, but it was an
 
 One does not tend to think of pilgrimages to Santiago de Compostela as "family travel", especially with a young child, but it was an extraordinary way to experience it together that I can highly recommend. Seeing things through a child's eyes opened my heart in ways that I would have missed if we did it alone.
 
-Check out our post on this topic [here.](http://soultravelers3new.local/2008/08/santiago-de-com.html#more)
+Check out our post on this topic [here.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/santiago-de-com.html#more)
 
 Please subscribe to our  [Soultravelers3 Youtube Channel](http://www.youtube.com/user/soultravelers3) to be the first to see our videos as we put them up there until we have time to add them to our blog and website.  
   

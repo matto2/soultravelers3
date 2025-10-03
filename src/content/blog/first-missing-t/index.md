@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2264](http://soultravelers3new.local/images/2008/04/27/img_2264.png "Img_2264")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2264.png) First missing tooth!  
+ [![Img_2264](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2264.png "Img_2264")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2264.png) First missing tooth!  
 October 6, 2006
 
 “Mommy, I lost my tooth!” Ms. Mozart was  
@@ -15,7 +15,7 @@ us up at four thirty in the morning
 
 <!--more-->
 
-[![Img_2264_2](http://soultravelers3new.local/images/2008/04/27/img_2264_2.png "Img_2264_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2264_2.png)
+[![Img_2264_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2264_2.png "Img_2264_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2264_2.png)
 
 “Mommy, I lost my tooth!” Ms. Mozart was beside herself with excitement as she woke us up at four thirty in the morning to announce that her loose bottom tooth had fallen out and “it did not hurt at all”! She had come out of a deep sleep and did her usual habit these past few days of swirling her tongue against that loose tooth or wriggling it with her fingers...and low and behold, it was no longer there. 
 

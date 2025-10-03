@@ -33,7 +33,7 @@ It is absolutely a stunning production from each hand made, over-sized scapula t
 
 ![IMG_4584](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29bb61970c.jpg)
 
-This is our third Easter in Spain and I am still enthralled  by how they celebrate it here in Andalusia. It gives me thrills, touches my heart deeply, mystifies me and makes me weep. During the first spring on our world tour, we went to [Semana Santa](http://www.exploreseville.com/events/semana-santa.htm) (Holy Week) [in Seville which has become world a famous event](http://soultravelers3new.local/2007/03/semana-santa-in.html) because they [celebrate it so elaborately](http://en.wikipedia.org/wiki/Holy_Week_in_Seville). Every year, over  a million people flock to Seville to witness one of the best and [most renown celebrations](http://www.thinkspain.com/news-spain/12910/semana-santa-explained-what-goes-on-beneath-those-strange-pointy-hoods) in the world. NOBODY does Easter, better than the Andalusians!
+This is our third Easter in Spain and I am still enthralled  by how they celebrate it here in Andalusia. It gives me thrills, touches my heart deeply, mystifies me and makes me weep. During the first spring on our world tour, we went to [Semana Santa](http://www.exploreseville.com/events/semana-santa.htm) (Holy Week) [in Seville which has become world a famous event](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/semana-santa-in.html) because they [celebrate it so elaborately](http://en.wikipedia.org/wiki/Holy_Week_in_Seville). Every year, over  a million people flock to Seville to witness one of the best and [most renown celebrations](http://www.thinkspain.com/news-spain/12910/semana-santa-explained-what-goes-on-beneath-those-strange-pointy-hoods) in the world. NOBODY does Easter, better than the Andalusians!
 
 ![IMG_4491](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29a2bf970c.jpg)
 
@@ -42,7 +42,7 @@ This is our third Easter in Spain and I am still enthralled  by how they celebr
 
 The [history of Semana Santa in Andalusia](http://www.andalucia.com/festival/easter/history.htm) is [very rich](http://www.enforex.com/culture/semana-santa.html) and has been [going on](http://www.lonelyplanet.com/spain/seville) since the [16th century](http://semanasantaonline.com/). This is a  [wonderful book](http://www.amazon.com/Ritual-Golden-Age-Spain-Susan-Webster/dp/0691048193) if you are interested in learning more. I am going to add it to my list of books on Spain, but just haven't had time to update all the new ones I have found yet.
 
-Like so many festivals here and like every funeral, always they walk down the main narrow street in the oldest part of town.There seems to be a power in this community builder and ritualistic pagentry. It always starts at the church and the large plaza there (which interestingly, is right next to the [street called Inquisidor!](http://soultravelers3new.local/2007/02/a-thought-provo.html#more) ).
+Like so many festivals here and like every funeral, always they walk down the main narrow street in the oldest part of town.There seems to be a power in this community builder and ritualistic pagentry. It always starts at the church and the large plaza there (which interestingly, is right next to the [street called Inquisidor!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/a-thought-provo.html#more) ).
 
 From the church at one end, they walk as a group slowly, snaking their way through ancient narrow cobbled streets, all the way down, across and up to the area across town where there is a cemetery and meeting hall (in the newest part of town). People watch from their balconies and along the side of the entire route, many throw petals of bright red flowers. I have become very fond of processions.
 
@@ -77,7 +77,7 @@ The little girl in the mantilla is one that has stayed over night in our home, t
 
 ![IMG_4506](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29a5c2970c.jpg) 
 
-[![IMG_4508](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29a694970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301156f29a694970c-1024x766.jpg) 
+[![IMG_4508](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29a694970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301156f29a694970c-1024x766.jpg) 
 
 ![IMG_4507](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570202df2970b.jpg)
 
@@ -85,7 +85,7 @@ The matronly woman proudly  carrying the beautiful hand made banner is our frie
 
 ![IMG_4534](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29b591970c.jpg) 
 
-[![IMG_4561](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29b5ea970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301156f29b5ea970c-150x150.jpg) 
+[![IMG_4561](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156f29b5ea970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301156f29b5ea970c-150x150.jpg) 
 
 ![IMG_4497](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570202fad970b.jpg)
 
@@ -101,7 +101,7 @@ Many of the Semana Santa celebrations happen at night so are hard to capture, bu
 
 We also got some great video that we will get up on our [Soultravelers3 Youtube Channel](http://www.youtube.com/user/soultravelers3) (don't forget to subscribe to us there and in our RSS feed so that you will be the first to see it!). We are starting to feel the transition energy here as we have already started our packing up process (a little each day) as we prepare to get back on the road again, but we have some more videos coming soon!
 
-I posted this quote [some time ago](http://soultravelers3new.local/2008/04/carnival-espana.html), when I was moved by another festival in our village, but it still speaks to me and explains the Andalusia resident's values well:
+I posted this quote [some time ago](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/carnival-espana.html), when I was moved by another festival in our village, but it still speaks to me and explains the Andalusia resident's values well:
 
 “Spain in general and Andalusia in particular teaches us  
 that you can have no real communal life unless  

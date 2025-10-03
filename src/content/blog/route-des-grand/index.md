@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2440](http://soultravelers3new.local/images/2008/04/27/img_2440.png "Img_2440")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2440.png) Route des Grands Crus!  
+ [![Img_2440](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2440.png "Img_2440")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2440.png) Route des Grands Crus!  
 October 9, 2006
 
 Ooooh, we are looooving Burgundy and  
@@ -15,7 +15,7 @@ the famous Route des Grands Crus on
 
 <!--more-->
 
-[![Img_2440_2](http://soultravelers3new.local/images/2008/04/27/img_2440_2.png "Img_2440_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2440_2.png)
+[![Img_2440_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2440_2.png "Img_2440_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2440_2.png)
 
 Ooooh, we are looooving Burgundy and we had one of our best days yet following the famous Route des Grands Crus on undulating small roads thru scarlet & golden colored, vine covered country side and beautiful quaint ancient towns. Sometimes it was like being in a sea of perfectly manicured, endless rows of Pinot Noir as far as the eye could see. Since we started our own small Pinot Noir vineyard from scratch in the French style, it was really exciting for all three of us to see so much of it and be where the story all began. DaVinci said more than once,“This is for me”.
 
@@ -51,20 +51,20 @@ The only minus on this perfect day is we were having such a sterling time that w
 to find a second choice. And even that turned out perfect as we just went down the rode to Meursault and woke up to amazing, expansive vineyard views and having the whole campsite to ourselves. There was only one other camper when we got there and they were from Belgium on their way home from Spain where  
 they said the weather was much warmer. They left very early. After breakfast with this fabulous,timeless vineyard view, we will mosey our way back to Beaune and explore that famous wine town.
 
-[![Img_2512](http://soultravelers3new.local/images/2008/04/27/img_2512.png "Img_2512")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2512.png)
+[![Img_2512](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2512.png "Img_2512")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2512.png)
 
-[![Img_2320](http://soultravelers3new.local/images/2008/04/27/img_2320.png "Img_2320")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2320.png)
+[![Img_2320](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2320.png "Img_2320")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2320.png)
 
-[![Img_2341](http://soultravelers3new.local/images/2008/04/27/img_2341.png "Img_2341")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2341.png)
+[![Img_2341](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2341.png "Img_2341")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2341.png)
 
-[![Img_2346](http://soultravelers3new.local/images/2008/04/27/img_2346.png "Img_2346")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2346.png)
+[![Img_2346](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2346.png "Img_2346")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2346.png)
 
-[![Img_2362](http://soultravelers3new.local/images/2008/04/27/img_2362.png "Img_2362")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2362.png)
+[![Img_2362](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2362.png "Img_2362")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2362.png)
 
-[![Img_2369](http://soultravelers3new.local/images/2008/04/27/img_2369.png "Img_2369")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2369.png)
+[![Img_2369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2369.png "Img_2369")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2369.png)
 
-[![Img_2378](http://soultravelers3new.local/images/2008/04/27/img_2378.png "Img_2378")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2378.png)
+[![Img_2378](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2378.png "Img_2378")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2378.png)
 
-[![Img_2446](http://soultravelers3new.local/images/2008/04/27/img_2446.png "Img_2446")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2446.png)
+[![Img_2446](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2446.png "Img_2446")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2446.png)
 
-[![Img_2452](http://soultravelers3new.local/images/2008/04/27/img_2452.png "Img_2452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2452.png)
+[![Img_2452](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2452.png "Img_2452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2452.png)

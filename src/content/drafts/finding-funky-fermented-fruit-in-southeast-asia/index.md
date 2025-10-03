@@ -5,7 +5,7 @@ draft: true
 ---
 
   
-[![IMG_5421](https://soultravelers3.typepad.com/.a/6a00e5502a95078833017d3c73bd31970c-200wi "IMG_5421")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017d3c73bd31970c-pi)  
+[![IMG_5421](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c73bd31970c.jpg "IMG_5421")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c73bd31970c.jpg-pi)  
   
   
   
@@ -15,4 +15,4 @@ draft: true
   
   
 
-<!--more--> [![IMG_5421](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017d3c73bdcc970c-800wi "IMG_5421")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017d3c73bdcc970c-pi)
+<!--more--> [![IMG_5421](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c73bdcc970c.jpg "IMG_5421")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c73bdcc970c.jpg-pi)

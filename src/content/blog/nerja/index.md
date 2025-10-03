@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_0134](http://soultravelers3new.local/images/2008/04/14/img_0134.png "Img_0134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0134.png) Nerja  
+ [![Img_0134](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0134.png "Img_0134")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0134.png) Nerja  
 March 14, 2007
 
 We headed east to see the Nerja prehistoric  
@@ -15,7 +15,7 @@ Europe which is a spectacular viewing point.
 
 <!--more-->
 
-[![Img_0134_2](http://soultravelers3new.local/images/2008/04/14/img_0134_2.png "Img_0134_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0134_2.png)
+[![Img_0134_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0134_2.png "Img_0134_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0134_2.png)
 
 We headed east to see the Nerja prehistoric caves and the Balcon de Europa/Balcony of Europe which is a spectacular viewing point. The caves are Spain’s third most visited tourist site after the Prado in Madrid and the Alhambra Palace in Granada. Nerja was once a small fishing village, but is now a popular tourist destination with a population of over 12,000 and a large mostly British expat community.
 
@@ -27,20 +27,20 @@ We knew we probably wanted to have lunch on the beach, so we drove into the old 
 
 There were carriage rides, street performers and music added to the warm sunny day and joyful atmosphere. It has narrow, winding streets and white washed houses and unlike many other high rise coastal areas, it has maintained its quaint Spanish character. We enjoyed just walking around and taking it all in.
 
-[![Img_0190](http://soultravelers3new.local/images/2008/04/14/img_0190.png "Img_0190")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0190.png)
+[![Img_0190](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0190.png "Img_0190")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0190.png)
 
-[![Img_0169](http://soultravelers3new.local/images/2008/04/14/img_0169.png "Img_0169")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0169.png)
+[![Img_0169](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0169.png "Img_0169")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0169.png)
 
-[![Img_0097](http://soultravelers3new.local/images/2008/04/14/img_0097.png "Img_0097")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0097.png)
+[![Img_0097](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0097.png "Img_0097")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0097.png)
 
-[![Img_0113](http://soultravelers3new.local/images/2008/04/14/img_0113.png "Img_0113")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0113.png)
+[![Img_0113](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0113.png "Img_0113")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0113.png)
 
-[![Img_0128](http://soultravelers3new.local/images/2008/04/14/img_0128.png "Img_0128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0128.png)
+[![Img_0128](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0128.png "Img_0128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0128.png)
 
-[![Img_0139](http://soultravelers3new.local/images/2008/04/14/img_0139.png "Img_0139")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0139.png)
+[![Img_0139](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0139.png "Img_0139")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0139.png)
 
-[![Img_0121](http://soultravelers3new.local/images/2008/04/14/img_0121.png "Img_0121")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0121.png)
+[![Img_0121](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0121.png "Img_0121")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0121.png)
 
-[![Img_0172](http://soultravelers3new.local/images/2008/04/14/img_0172.png "Img_0172")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0172.png)
+[![Img_0172](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0172.png "Img_0172")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0172.png)
 
-[![Img_0203](http://soultravelers3new.local/images/2008/04/14/img_0203.png "Img_0203")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0203.png)
+[![Img_0203](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0203.png "Img_0203")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0203.png)

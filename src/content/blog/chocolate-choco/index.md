@@ -6,7 +6,7 @@ categories:
   - "blog"
 ---
 
- [![Img_0771](http://soultravelers3new.local/images/2008/04/30/img_0771.png "Img_0771")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0771.png) Chocolate, chocolate, chocolate  
+ [![Img_0771](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0771.png "Img_0771")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0771.png) Chocolate, chocolate, chocolate  
 September 18, 2006
 
 This is where some serious “Mmmmmms”  
@@ -15,7 +15,7 @@ chocolate connoisseurs and I could do quite
 
 <!--more-->
 
-[![Img_0771_2](http://soultravelers3new.local/images/2008/04/30/img_0771_2.png "Img_0771_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0771_2.png)
+[![Img_0771_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0771_2.png "Img_0771_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0771_2.png)
 
 This is where some serious “Mmmmmms” come in. The people of Brugge are serious chocolate connoisseurs and I could do quite a few entries just on chocolate shops and pictures of everything from violins to swans made out of multiple types of chocolates.
 
@@ -28,26 +28,26 @@ DaVinci asked three different sets of native Brugge people (including the two si
 
 But we did enjoy chocolate from every chocolate shop we stopped at. A  little here, a little there, they are all melt in your mouth goooood.
 
-[![Img_0683](http://soultravelers3new.local/images/2008/04/30/img_0683.png "Img_0683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0683.png)
+[![Img_0683](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0683.png "Img_0683")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0683.png)
 
-[![Img_0687](http://soultravelers3new.local/images/2008/04/30/img_0687.png "Img_0687")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0687.png)
+[![Img_0687](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0687.png "Img_0687")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0687.png)
 
-[![Img_0689](http://soultravelers3new.local/images/2008/04/30/img_0689.png "Img_0689")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0689.png)
+[![Img_0689](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0689.png "Img_0689")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0689.png)
 
-[![Img_0691](http://soultravelers3new.local/images/2008/04/30/img_0691.png "Img_0691")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0691.png)
+[![Img_0691](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0691.png "Img_0691")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0691.png)
 
-[![Img_0692](http://soultravelers3new.local/images/2008/04/30/img_0692.png "Img_0692")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0692.png)
+[![Img_0692](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0692.png "Img_0692")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0692.png)
 
-[![Img_0693](http://soultravelers3new.local/images/2008/04/30/img_0693.png "Img_0693")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0693.png)
+[![Img_0693](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0693.png "Img_0693")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0693.png)
 
-[![Img_0762](http://soultravelers3new.local/images/2008/04/30/img_0762.png "Img_0762")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0762.png)
+[![Img_0762](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0762.png "Img_0762")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0762.png)
 
-[![Img_0763](http://soultravelers3new.local/images/2008/04/30/img_0763.png "Img_0763")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0763.png)
+[![Img_0763](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0763.png "Img_0763")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0763.png)
 
-[![Img_0764](http://soultravelers3new.local/images/2008/04/30/img_0764.png "Img_0764")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0764.png)
+[![Img_0764](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0764.png "Img_0764")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0764.png)
 
-[![Img_0775](http://soultravelers3new.local/images/2008/04/30/img_0775.png "Img_0775")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0775.png)
+[![Img_0775](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0775.png "Img_0775")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0775.png)
 
-[![Img_0964](http://soultravelers3new.local/images/2008/04/30/img_0964.png "Img_0964")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0964.png)
+[![Img_0964](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0964.png "Img_0964")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0964.png)
 
-[![Img_0965](http://soultravelers3new.local/images/2008/04/30/img_0965.png "Img_0965")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0965.png)
+[![Img_0965](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0965.png "Img_0965")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0965.png)

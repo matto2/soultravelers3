@@ -32,28 +32,28 @@ chocolate covered strawberries recipe
 ![Yum! How -to Recipe for Chocolate Strawberries - Paleo/ Vegetarian](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ee7a970b.png)  
   
   
-Looking for a [delish, healthy treat](http://soultravelers3new.local/2012/07/healthy-snacks-for-kids.html "healthy snacks for kids")? Paleos and Vegetarians will love this chocolate covered strawberry [recipe](http://soultravelers3new.local/recipes/ "healthy recipes")!  
+Looking for a [delish, healthy treat](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/healthy-snacks-for-kids.html "healthy snacks for kids")? Paleos and Vegetarians will love this chocolate covered strawberry [recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/recipes/ "healthy recipes")!  
   
 **EASY HEALTHY RECIPES**  
   
-Like all my super [healthy dessert recipes](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html "healthy fast chocolate ice cream recipe paleo no machine"), I keep things simple (like [chocolate cake](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html "best paleo chocolate cake recipe"), [banana bread](http://soultravelers3new.local/2013/08/healthy-banana-bread-recipe-paleogapsgluten-free.html "banana bread healthy recipe paleo GAPS grain-free"), [clafouti](http://soultravelers3new.local/2013/07/yum-super-healthy-dessert-recipe-paleo-mango-clafouti.html "healthy clafouti paleo dessert"), [ice cream with out machine](http://soultravelers3new.local/2013/05/easy-healthy-homemade-ice-cream-no-machine-.html#more "healthy ice cream no machine") etc.), because who has the time for complicated when easy and fast can do it?  
+Like all my super [healthy dessert recipes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html "healthy fast chocolate ice cream recipe paleo no machine"), I keep things simple (like [chocolate cake](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html "best paleo chocolate cake recipe"), [banana bread](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/08/healthy-banana-bread-recipe-paleogapsgluten-free.html "banana bread healthy recipe paleo GAPS grain-free"), [clafouti](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/yum-super-healthy-dessert-recipe-paleo-mango-clafouti.html "healthy clafouti paleo dessert"), [ice cream with out machine](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/05/easy-healthy-homemade-ice-cream-no-machine-.html#more "healthy ice cream no machine") etc.), because who has the time for complicated when easy and fast can do it?  
   
 **REAL FOOD HEALS**  
   
-Don't miss our [healthy chips](http://soultravelers3new.local/2013/06/yummy-healthy-chips-recipe.html "healthy chips recipe paleo and vegan"), [paleo pizza](http://soultravelers3new.local/2013/07/best-paleo-pizza-recipe.html "paleo pizza"),healthy [soda pop](http://soultravelers3new.local/2012/09/how-to-make-healthy-soda-pop-even-a-kid-can-do-it-.html "healthy soda pop recipe"), [popsicles](http://soultravelers3new.local/2012/08/how-to-make-healthy-popsicles-.html "healthy popcicle recipe"),  [kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make goats milk or coconut kefir"), [bone broth](http://soultravelers3new.local/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth recipe"), DIY c[heese](http://soultravelers3new.local/2013/02/how-to-make-diy-goat-cheese-with-kefir.html "how to make cheese"), [mayonnaise](http://soultravelers3new.local/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html "DIY mayonnaise recipe"), lacto-fermented [salsa](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "lacto fermented salsa"), [DIY shampoo](http://soultravelers3new.local/2012/09/how-to-make-diy-homemade-shampoo-and-creme-rinse-easy-cheap-healthy.html "DIY shampoo and cream rinse") and [deodorant](http://soultravelers3new.local/2012/09/how-to-make-diy-homemade-deodorant-easy-cheap-healthy.html "DIY homemade deodorant") recipes also.  
+Don't miss our [healthy chips](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/yummy-healthy-chips-recipe.html "healthy chips recipe paleo and vegan"), [paleo pizza](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/best-paleo-pizza-recipe.html "paleo pizza"),healthy [soda pop](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-healthy-soda-pop-even-a-kid-can-do-it-.html "healthy soda pop recipe"), [popsicles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/how-to-make-healthy-popsicles-.html "healthy popcicle recipe"),  [kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make goats milk or coconut kefir"), [bone broth](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth recipe"), DIY c[heese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/how-to-make-diy-goat-cheese-with-kefir.html "how to make cheese"), [mayonnaise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html "DIY mayonnaise recipe"), lacto-fermented [salsa](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "lacto fermented salsa"), [DIY shampoo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-diy-homemade-shampoo-and-creme-rinse-easy-cheap-healthy.html "DIY shampoo and cream rinse") and [deodorant](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-diy-homemade-deodorant-easy-cheap-healthy.html "DIY homemade deodorant") recipes also.  
   
 **HEALTHY TREATS**  
   
-Since we have been not eating ANY grains, legumes, processed food or sugar, with our organic veggie - based WAPF/GAPS/Paleo style diet on our [prevent and cure cavities](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html "prevent and cure cavities naturally") health kick, I am always looking for healthy, easy treats for us.  
+Since we have been not eating ANY grains, legumes, processed food or sugar, with our organic veggie - based WAPF/GAPS/Paleo style diet on our [prevent and cure cavities](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/curing-gum-disease-and-cavities-naturally.html "prevent and cure cavities naturally") health kick, I am always looking for healthy, easy treats for us.  
   
   
 ![organic strawberries - Best Chocolate dippled Strawberries - Paleo/ Vegetarian recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a14f970c.png)  
   
 **TRAVEL AND EASY HEALTHY FOOD**  
   
-Our [travel lifestyle](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "Our travel lifestyle") adds to our [healing journey](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html "healing journey") challenge as I have to find the very specific types of [organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "health, organic raw foods and travel")s and highest nutrient ingredients that we can eat in constantly changing  new places and  keep it on a tight budget.  
+Our [travel lifestyle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "Our travel lifestyle") adds to our [healing journey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/healing-journey-and-blessings.html "healing journey") challenge as I have to find the very specific types of [organic food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "health, organic raw foods and travel")s and highest nutrient ingredients that we can eat in constantly changing  new places and  keep it on a tight budget.  
   
-Cheap [healthy food and travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy food and travel") IS a challenge, but it can be done even [travel with Paleo/Grain-free/GAPS/WAPF healthy eating](http://soultravelers3new.local/2014/01/travel-and-paleoprimal-grain-free-gapswapf-healthy-eating.html "travel with paleo/grain-free/GAPS/WAPF healthy eating") on the move.  
+Cheap [healthy food and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/healthy-food-and-travel.html "healthy food and travel") IS a challenge, but it can be done even [travel with Paleo/Grain-free/GAPS/WAPF healthy eating](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/01/travel-and-paleoprimal-grain-free-gapswapf-healthy-eating.html "travel with paleo/grain-free/GAPS/WAPF healthy eating") on the move.  
   
   
 ![recipe ingredients for paleo chocolate dipped strawberries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6eed1970b.png)  
@@ -64,7 +64,7 @@ One of my pet peeves is how hard it is to decipher if something is REALLY health
   
 **FOOD CHAIN AND AVOIDING INDUSTRIAL CONVENTIONAL FOODS**  
   
-What goes into your food ( pesticides, GMO etc) or animal products you eat ( [raw eggs](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html "raw eggs"), [raw milk](http://soultravelers3new.local/2013/04/raw-milk-fast-and-cure.html "raw milk"), grass-fed beef, pastured butter etc) makes a huge difference in one's long term health. Read this  [FR EE book](http://journeytoforever.org/farm_library/price/pricetoc.html "weston price free book - Nutrition and physical degeneration") if you want to learn more and see photos that prove it.  
+What goes into your food ( pesticides, GMO etc) or animal products you eat ( [raw eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/raw-eggs-healthy-or-not.html "raw eggs"), [raw milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/04/raw-milk-fast-and-cure.html "raw milk"), grass-fed beef, pastured butter etc) makes a huge difference in one's long term health. Read this  [FR EE book](http://journeytoforever.org/farm_library/price/pricetoc.html "weston price free book - Nutrition and physical degeneration") if you want to learn more and see photos that prove it.  
   
 **EAT REAL FOOD**  
   
@@ -75,7 +75,7 @@ What goes into your food ( pesticides, GMO etc) or animal products you eat ( [ra
   
 **YUM!**  **SWEET AND HEALTHY**  
   
-Let's get back to the chocolate goodness! This is a fun and easy project for the whole family. We did this for Valentine's Day and my birthday here in our [short stay hotel in Dallas](http://soultravelers3new.local/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "SHORT STAY HOTEL DALLAS - HAWTHORN SUITES").  
+Let's get back to the chocolate goodness! This is a fun and easy project for the whole family. We did this for Valentine's Day and my birthday here in our [short stay hotel in Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "SHORT STAY HOTEL DALLAS - HAWTHORN SUITES").  
   
   
 ![Healthy chocolate dipped strawberry recipe paleo or vegetarian NOM!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51186a1cb970c.png)  
@@ -84,7 +84,7 @@ Let's get back to the chocolate goodness! This is a fun and easy project for the
   
 We got some delicious, organic strawberries on sale.  
   
-Remember that [Best Chocolate Paleo Cake Recipe](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html "BEST CHOCOLATE CAKE PALEO GRAIN-FREE RECIPE")? I just used that easy and VERY quick recipe for the chocolate part to dip the strawberries.  ( Not the cake, just the frosting)  
+Remember that [Best Chocolate Paleo Cake Recipe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html "BEST CHOCOLATE CAKE PALEO GRAIN-FREE RECIPE")? I just used that easy and VERY quick recipe for the chocolate part to dip the strawberries.  ( Not the cake, just the frosting)  
   
 ![Healthy parlo chocolate dipped organic strawberry foodporn](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcd6ef60970b.png)  
   
@@ -140,7 +140,7 @@ Another even quicker variation is just put the chocolate into cups and do indivi
   
 **FINDING BEST FARMERS FOR FOOD**  
   
-That is my ice cream in the white bowl next to it in the fridge, these days I am making it with [raw milk](http://soultravelers3new.local/2013/04/raw-milk-fast-and-cure.html "RAW MILK") instead of coconut milk because the coconut milk is so much fresher and cheaper in Asia.  
+That is my ice cream in the white bowl next to it in the fridge, these days I am making it with [raw milk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/04/raw-milk-fast-and-cure.html "RAW MILK") instead of coconut milk because the coconut milk is so much fresher and cheaper in Asia.  
   
 As usual, we have met some great sustainable farmers here who are very concientious about the food they raise and grow. You can see my whole pastured chickens and grass fed beef in the freezer.  
   
@@ -159,22 +159,3 @@ Who is in the mood for a chocolate covered strawberry?
 
 Related articles
 
-[![](http://i.zemanta.com/242410534_80_80.jpg)](http://soultravelers3new.local/2014/01/gluten-free-yummy-chocolate-cake.html)[Gluten-Free Yummy Chocolate Cake](http://soultravelers3new.local/2014/01/gluten-free-yummy-chocolate-cake.html)
-
-[![](http://i.zemanta.com/188106839_80_80.jpg)](http://soultravelers3new.local/2013/07/yum-super-healthy-dessert-recipe-paleo-mango-clafouti.html)[Yum! Super Healthy Dessert Recipe - Paleo Mango Clafouti](http://soultravelers3new.local/2013/07/yum-super-healthy-dessert-recipe-paleo-mango-clafouti.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/196276182_80_80.jpg)](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html)[Healthy Chocolate Ice Cream Recipe - No Machine!](http://soultravelers3new.local/2013/08/best-healthy-chocolate-ice-cream-recipe-no-machine.html)
-
-[![](http://i.zemanta.com/100812762_80_80.jpg)](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)[How To Make Kefir Easy - Goats Milk or Coconut Milk](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html)
-
-[![](http://i.zemanta.com/177278820_80_80.jpg)](http://soultravelers3new.local/2013/06/-father-daughter-relationships.html)[Father - Daughter Relationships](http://soultravelers3new.local/2013/06/-father-daughter-relationships.html)
-
-[![](http://i.zemanta.com/92363554_80_80.jpg)](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)[Bora Bora - Heaven on a Cheap Budget!](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/253943088_80_80.jpg)](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)[Homeschool Family European Tour](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)
-
-[![](http://i.zemanta.com/184236160_80_80.jpg)](http://soultravelers3new.local/2013/07/best-paleo-pizza-recipe.html)[Best Paleo Pizza Recipe](http://soultravelers3new.local/2013/07/best-paleo-pizza-recipe.html)

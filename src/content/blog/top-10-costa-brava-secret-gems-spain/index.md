@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![IMG_6402](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571cc842a970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a95078833011571cc842a970b-300x225.jpg) 10 Best Costa Brava Secret Gems!  
+ [![IMG_6402](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571cc842a970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a95078833011571cc842a970b-300x225.jpg) 10 Best Costa Brava Secret Gems!  
 July 7, 2009
 
 The best way to experience the beauty of  
@@ -25,7 +25,7 @@ It is not that these places are so hard to find, but most visitors don't look as
 
 ![IMG_6869](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011570d7c107970c.jpg)
 
-We have enjoyed some of [Costa Brava](http://soultravelers3new.local/2006/10/espana-costa-br.html) before ( including [Dali's amazing museum](http://soultravelers3new.local/2006/10/dali-musee-hot.html)), but rented a small car this fourth of July week, to dig deeper for beauty and unique experiences. We were not disappointed!
+We have enjoyed some of [Costa Brava](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/espana-costa-br.html) before ( including [Dali's amazing museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/dali-musee-hot.html)), but rented a small car this fourth of July week, to dig deeper for beauty and unique experiences. We were not disappointed!
 
 Our motor home is too heavy to get into some of these tiny spots that we were interested in seeing and we prefer skipping curvy, hilly roads in it, if at all possible. We carry a lot more in our RV than most (lots of  books, can goods and full digital piano weigh us down) so vertiginous  mountain roads are not our favorite, although we did see some RV's in some of the places we went to. We could have done many in our RV, but the 30-euro-a-day little rent-a-car granted us more leeway.
 

@@ -4,7 +4,7 @@ date: 2012-09-19
 draft: true
 ---
 
-[![33833273](https://soultravelers3.typepad.com/.a/6a00e5502a95078833017744db9fac970d-200wi "33833273")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017744db9fac970d-pi)How to Raise a Reader  
+[![33833273](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744db9fac970d.jpg "33833273")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017744db9fac970d.jpg-pi)How to Raise a Reader  
 and Book Lover  
   
   
@@ -16,7 +16,7 @@ and Book Lover
   
   
 
-<!--more--> [![33833273](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c31fdf50b970b-800wi "33833273")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c31fdf50b970b-pi)  
+<!--more--> [![33833273](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31fdf50b970b.jpg "33833273")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c31fdf50b970b.jpg-pi)  
   
 Does how you raise your child have an impact on raising a reader or book lover for life? Absolutely and studies show there are many things you can do to raise a reader with a passion for reading and books. We never expected our gifted child to teach herself to read at two, but we were encouraging multilingual language acquisition and reading even in the womb ( where it all starts).  
   

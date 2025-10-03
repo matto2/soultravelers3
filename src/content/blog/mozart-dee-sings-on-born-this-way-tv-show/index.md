@@ -39,10 +39,10 @@ on the Emmy-winning A&E TV show
 <!--more-->  
   
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09d77a34970d-150x150-1.png)![mozart Dee Sings on "Born This Way" TV Show at Le PeTiT CiRqUe ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c93459dd970b.png)[  
-](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09d77a34970d-150x150-1.png)[Singer-songwriter & actress Mozart Dee](http://soultravelers3new.local/2017/05/16-year-old-mozart-dees-ted-talk-keynote-speech-in-ukteen-actress-songwriter-singer-mozart-dee-was-asked-to-do-a-ted-talk.html "Mozart Dee teen singer-songwriter & actress") was thrilled to appear and sing on the Emmy-winning [A&E TV show "Born This Way"](http://www.aetv.com/shows/born-this-way) filmed at a spectacular fundraising event at the amazing [Le Petit Cirque](http://www.lestudiola.com) in Los Angeles!  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09d77a34970d-150x150-1.png)[Singer-songwriter & actress Mozart Dee](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/05/16-year-old-mozart-dees-ted-talk-keynote-speech-in-ukteen-actress-songwriter-singer-mozart-dee-was-asked-to-do-a-ted-talk.html "Mozart Dee teen singer-songwriter & actress") was thrilled to appear and sing on the Emmy-winning [A&E TV show "Born This Way"](http://www.aetv.com/shows/born-this-way) filmed at a spectacular fundraising event at the amazing [Le Petit Cirque](http://www.lestudiola.com) in Los Angeles!  
   
 ![Mozart Dee singing on TV show "Born This Way"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09d77a20970d.png)  
-[Teen prodigy Mozart](http://soultravelers3new.local/2016/04/mozart-wins-best-actress-award-.html "Mozart Dee teen prodigy trilingual singer") worked in the recording studio with multi- grammy winning producers Charlie Midnight (James Brown, Hilary Duff) and Jan Fairchild (Mos Def, Gwen Stefani) who created the inspiring featured song "United We Stand For Love" that she sang with Nation XO on the show.   
+[Teen prodigy Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/04/mozart-wins-best-actress-award-.html "Mozart Dee teen prodigy trilingual singer") worked in the recording studio with multi- grammy winning producers Charlie Midnight (James Brown, Hilary Duff) and Jan Fairchild (Mos Def, Gwen Stefani) who created the inspiring featured song "United We Stand For Love" that she sang with Nation XO on the show.   
   
 ![Mozart Dee Sings on "Born This Way" TV Show! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c93458bb970b.png)  
 The show was also a sold-out fundraiser to help LeapsnBoundz and spread the message of inclusion. Susanna Midnight and Nathalie Yves Gaulthier teamed together to create entertainment that inspires and changes the world.   
@@ -78,8 +78,3 @@ Truly an exhilarating "inclusive" night full of love and inspiration for all inv
 
 Related articles
 
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)

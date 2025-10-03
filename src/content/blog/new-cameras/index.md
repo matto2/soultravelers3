@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
- [![Img_0690](http://soultravelers3new.local/images/2008/07/21/img_0690.jpg "Img_0690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0690.jpg) New Cameras  
+ [![Img_0690](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0690.jpg "Img_0690")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0690.jpg) New Cameras  
 July 17, 2008
 
 As many of you know, I managed to  
@@ -15,7 +15,7 @@ just bought for the trip... only three days
 
 <!--more-->
 
-[![Img_0690_2](http://soultravelers3new.local/images/2008/07/21/img_0690_2.jpg "Img_0690_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0690_2.jpg)
+[![Img_0690_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0690_2.jpg "Img_0690_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0690_2.jpg)
 
 As many of you know, I managed to break our good camera... that we had just bought for the trip... only three days into our journey. I have been making due with our video  camera that is not really meant to be our solo camera, but frugal travelers that we are, we did not want to buy another one right away as long as we had something. It has done a great job, but almost two years later, it was time to indulge in a real camera again.
 
@@ -31,8 +31,8 @@ The only bad news with this is we tend to take too many pictures and now we have
 
   Some times life on the road is two steps forward and one step back as we teach ourselves as we go. We decided to add a hard drive and burner to our collection of geek gadgets while in Portugal ( where prices are cheaper) to hopefully help out with all the high res pictures and videos that are now clogging up our laptop memories. We love the pictures, but it has added more work and we are still adjusting to the new system that we are forming. The photography and video adds a lot of fun, purpose, and a creative outlet for all of us, so it is worth the effort. It is exciting that some of you have already noticed the difference!
 
-[![Img_0043](http://soultravelers3new.local/images/2008/07/21/img_0043.jpg "Img_0043")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0043.jpg)
+[![Img_0043](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0043.jpg "Img_0043")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0043.jpg)
 
-[![Img_0558](http://soultravelers3new.local/images/2008/07/21/img_0558.jpg "Img_0558")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0558.jpg)
+[![Img_0558](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0558.jpg "Img_0558")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0558.jpg)
 
-[![Img_0886](http://soultravelers3new.local/images/2008/07/21/img_0886.jpg "Img_0886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0886.jpg)
+[![Img_0886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/21/img_0886.jpg "Img_0886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/21/img_0886.jpg)

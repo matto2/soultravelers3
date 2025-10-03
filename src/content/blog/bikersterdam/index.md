@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0385](http://soultravelers3new.local/images/2008/05/07/img_0385.png "Img_0385")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0385.png) Bikersterdam  
+ [![Img_0385](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0385.png "Img_0385")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0385.png) Bikersterdam  
 August 26, 2006
 
 We finally made it to Amsterdam!  
@@ -15,7 +15,7 @@ bikes that she said they should call it “Bikesterdam”
 
 <!--more-->
 
-[![Img_0385_2](http://soultravelers3new.local/images/2008/05/07/img_0385_2.png "Img_0385_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0385_2.png)
+[![Img_0385_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0385_2.png "Img_0385_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0385_2.png)
 
 We finally made it to Amsterdam! Ms. Mozart was so blown away by all the bikes that she said they should call it “Bikesterdam” instead of Amsterdam. She is sooo enjoying the whole adventure that is has been reassuring that we are doing the right thing. The now reality is hitting her and she is understanding more profoundly exactly what we have been talking about for so long. She said,“Boy,this IS fun!” and has been making up songs about her world tour and living in an RV.
 
@@ -30,16 +30,16 @@ The sun started to shine a little when we arrived at Frederic’s shop ,and he 
 
 It was very charming and an actual boat (some houseboats are not boats, but floating little square houses and others like ours are boats remodeled to live in). Ms. Mozart squealed with delight as she entered it, thought the pink chair was a princess chair made just for her and decided that we should move here permanently. We were enchanted by the ducks and unique birds, boats and kayakers floating by, endless colorful unique bicycles (with multi kids, balloons etc) going over the bridge and the entire ambiance. We strolled a bit around this lovely part of the city ,played at a park, picked up some delicious sandwiches to eat in our new abode, enjoyed the night lights, wrote a quick note home with pics on the free wifi that was available and were rocked to sleep by the gentle sway of the waves. Yes, indeedy, this was the best way to start our world tour and we are happy as clams and ever grinning cheshire cats!
 
-[![Img_0430](http://soultravelers3new.local/images/2008/05/07/img_0430.png "Img_0430")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0430.png)
+[![Img_0430](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0430.png "Img_0430")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0430.png)
 
-[![Stf_0370](http://soultravelers3new.local/images/2008/05/07/stf_0370.png "Stf_0370")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/stf_0370.png)
+[![Stf_0370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/stf_0370.png "Stf_0370")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/stf_0370.png)
 
-[![Sta_0358](http://soultravelers3new.local/images/2008/05/07/sta_0358.png "Sta_0358")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/sta_0358.png)
+[![Sta_0358](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/sta_0358.png "Sta_0358")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/sta_0358.png)
 
-[![Img_0388](http://soultravelers3new.local/images/2008/05/07/img_0388.png "Img_0388")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0388.png)
+[![Img_0388](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0388.png "Img_0388")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0388.png)
 
-[![Std_0368](http://soultravelers3new.local/images/2008/05/07/std_0368.png "Std_0368")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/std_0368.png)
+[![Std_0368](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/std_0368.png "Std_0368")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/std_0368.png)
 
-[![Img_0377](http://soultravelers3new.local/images/2008/05/07/img_0377.png "Img_0377")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0377.png)
+[![Img_0377](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0377.png "Img_0377")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0377.png)
 
-[![Img_0435](http://soultravelers3new.local/images/2008/05/07/img_0435.png "Img_0435")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0435.png)
+[![Img_0435](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0435.png "Img_0435")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0435.png)

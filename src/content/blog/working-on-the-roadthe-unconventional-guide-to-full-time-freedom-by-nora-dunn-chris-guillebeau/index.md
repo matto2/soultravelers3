@@ -36,13 +36,13 @@ to travel the world on a low budget?
 ![Working on the Road:The Unconventional Guide to  Full-Time Freedom by Nora Dunn & Chris Guillebeau](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c763f3cc970b.png)  
   
   
-Who wants more [freedom](http://soultravelers3new.local/2013/07/best-freedom-quotes.html "best freedom quotes")? Who likes to [travel](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "family travel around the world")? Want to know how to [travel the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "travel the world") on a low budget? Then don't miss our long-time colleagues Nora Dunn and Chris Guillebeau's latest book - "[Working on the Road:The Unconventional Guide to Full-Time Freedom](<A%20HREF="http://unconventionalguides.com/cmd.php?Clk=5407823" > Working on the Road</A> "working on the road")".
+Who wants more [freedom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/best-freedom-quotes.html "best freedom quotes")? Who likes to [travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "family travel around the world")? Want to know how to [travel the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "travel the world") on a low budget? Then don't miss our long-time colleagues Nora Dunn and Chris Guillebeau's latest book - "[Working on the Road:The Unconventional Guide to Full-Time Freedom](<A%20HREF="http://unconventionalguides.com/cmd.php?Clk=5407823" > Working on the Road</A> "working on the road")".
 
   
 [**THE UNCONVENTIONAL GUIDE TO FULL-TIME FREEDOM**](http://unconventionalguides.com/cmd.php?af=1619997 "unconventional guide")  
   
 
-We're featured in this cool guide and give all our financial details on how and what we spend as we [travel the world](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retire and travel the world"). As I have said many times about [traveling cheap](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html "top travel tip for long term travel"), I think it’s very important to understand that [long term travel](http://soultravelers3new.local/2008/06/how-to-do-exten.html "long term travel ") is not as expensive as most believe. We find it much cheaper than a conventional life.   
+We're featured in this cool guide and give all our financial details on how and what we spend as we [travel the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retire and travel the world"). As I have said many times about [traveling cheap](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/top-travel-tip-for-long-term-travel.html "top travel tip for long term travel"), I think it’s very important to understand that [long term travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html "long term travel ") is not as expensive as most believe. We find it much cheaper than a conventional life.   
   
 [This book](<A%20HREF="http://unconventionalguides.com/cmd.php?Clk=5407823" > Working on the Road</A> "working on the road") shows how ANY one can do it easily if you want to and how to tweak it for YOUR life and needs.
 
@@ -109,10 +109,3 @@ _This post contains affiliate links.So if you purchase it through our links you 
 
 Related articles
 
-[![](http://i.zemanta.com/329065180_80_80.jpg)](http://soultravelers3new.local/2015/02/snow-and-ice-closes-dallas-down.html)[Snow and Ice Closes Dallas Down!](http://soultravelers3new.local/2015/02/snow-and-ice-closes-dallas-down.html)
-
-[![](http://i.zemanta.com/329726319_80_80.jpg)](http://soultravelers3new.local/2015/03/challenges-of-parenting-a-muscially-talented-child.html)[Challenges of Parenting a Musically Talented Child](http://soultravelers3new.local/2015/03/challenges-of-parenting-a-muscially-talented-child.html)
-
-[![](http://i.zemanta.com/330279127_80_80.jpg)](http://soultravelers3new.local/2015/03/stunning-sunrise-photo.html)[Stunning Sunrise Photo](http://soultravelers3new.local/2015/03/stunning-sunrise-photo.html)
-
-[![](http://i.zemanta.com/328610945_80_80.jpg)](http://soultravelers3new.local/2015/02/chinese-new-year-in-asia-%E6%98%A5%E8%8A%82.html)[Chinese New Year in Asia 农历新年 春节](http://soultravelers3new.local/2015/02/chinese-new-year-in-asia-%E6%98%A5%E8%8A%82.html)

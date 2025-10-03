@@ -26,7 +26,7 @@ in Jordan and they really
 
 <!--more--> ![baking chocolate chip cookies at Four Seasons Amman Hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f1ca393970b.jpg)
 
-We stayed three nights at the [Four Seasons Amman](http://www.fourseasons.com/amman/ "Four Seasons Amman") in [Jordan](http://soultravelers3new.local/2011/05/jordan-tourismsmartest-.html "jordan travel") and they really spoiled us! Have you ever taken a cooking vacation? How about as a kid? As promised in my short [cooking and travel](http://soultravelers3new.local/2011/06/cooking-at-four-seasons-amman.html#more "cooking and travel")  post, I'll share our [adorable cooking travel video](http://www.youtube.com/watch?v=CsCbJSnAhRs "adorable cooking travel video") and more baking cookies photos below.  
+We stayed three nights at the [Four Seasons Amman](http://www.fourseasons.com/amman/ "Four Seasons Amman") in [Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/jordan-tourismsmartest-.html "jordan travel") and they really spoiled us! Have you ever taken a cooking vacation? How about as a kid? As promised in my short [cooking and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/cooking-at-four-seasons-amman.html#more "cooking and travel")  post, I'll share our [adorable cooking travel video](http://www.youtube.com/watch?v=CsCbJSnAhRs "adorable cooking travel video") and more baking cookies photos below.  
   
 
 <iframe frameborder="0" height="349" src="http://www.youtube.com/embed/CsCbJSnAhRs?rel=0" width="560"></iframe>
@@ -55,7 +55,7 @@ This was a very happy kiddo!
 ![Learning chef's master tricks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833014e891019da970d.jpg)  
   
   
-Nothing like hands on, [experiential learning](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "experiential learning during travel") from an expert, best way to learn.  
+Nothing like hands on, [experiential learning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "experiential learning during travel") from an expert, best way to learn.  
   
 ![cooking giggles at Four Seasons](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301538f1cd6c7970b.jpg)  
   
@@ -98,4 +98,4 @@ Later, they were delivered to our room ( as we were off to High Tea next) and sh
   
 What is your favorite cookie making story? I don't think we will ever bake again without remembering this special treat.  
   
-Our [trip to Jordan](http://soultravelers3new.local/2011/05/jordan-tourismsmartest-.html "trip to jordan") and stay at the Four Seasons was a [sponsored trip](http://www.visitjordan.com/ "jordan tourism"), but our opinion, photos and videos are our own.
+Our [trip to Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/jordan-tourismsmartest-.html "trip to jordan") and stay at the Four Seasons was a [sponsored trip](http://www.visitjordan.com/ "jordan tourism"), but our opinion, photos and videos are our own.

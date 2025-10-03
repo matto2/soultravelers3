@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
-[![Img_0794](http://soultravelers3new.local/images/2008/07/31/img_0794.jpg "Img_0794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/31/img_0794.jpg) Kindness of Strangers  
+[![Img_0794](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/31/img_0794.jpg "Img_0794")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/31/img_0794.jpg) Kindness of Strangers  
 July 31, 2008
 
 One of the great things about being a  
@@ -15,7 +15,7 @@ gets to see the kindness of strangers.
 
 <!--more-->
 
-[![Img_0794_2](http://soultravelers3new.local/images/2008/07/31/img_0794_2.jpg "Img_0794_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/31/img_0794_2.jpg)
+[![Img_0794_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/31/img_0794_2.jpg "Img_0794_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/31/img_0794_2.jpg)
 
 One of the great things about being a traveler is the many opportunities one gets to see the kindness of strangers. It never ceases to amaze me how people from all walks of life, go out of their way to help. We found the people in Portugal very friendly and helpful, although I must admit we have been lucky to find that almost every where we go.
 
@@ -25,7 +25,7 @@ TENNESSEE WILLIAMS, _A Streetcar Named Desire_
 
 What sometimes amazes me is just how far out of their way that people will go to help a stranger. Once we were in a fairly remote part of Portugal and lost. I can not even remember exactly where it was now. Usually our GPS works great and good maps are our backup, but still sometimes we get a little lost and confused as it is easy to take a wrong turn onto small roads that neither maps or GPS seems to be able to see. During one of these times in rural Portugal, a sweet couple, who spoke no English, went out of their way to escort us through a maze of streets until they led us to the freeway.
 
-That made me smile and reminded me of the time that a taxi driver led us around London once when we were lost late at night on a previous trip looking for our hotel. Or the time that [sweet guy in Greece](http://soultravelers3new.local/2007/06/acropolis-parth.html#more), last summer did the same thing as we wandered in the dark after getting off the ferry, which saved us just in the nick of time. All of them went way out of their way to help strangers that they did not know and would never see again and were like gifts from heaven to us. Who knew we had so many guardian angels looking after us?
+That made me smile and reminded me of the time that a taxi driver led us around London once when we were lost late at night on a previous trip looking for our hotel. Or the time that [sweet guy in Greece](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/06/acropolis-parth.html#more), last summer did the same thing as we wandered in the dark after getting off the ferry, which saved us just in the nick of time. All of them went way out of their way to help strangers that they did not know and would never see again and were like gifts from heaven to us. Who knew we had so many guardian angels looking after us?
 
 I hope they can feel our gratitude. Talk about [random acts of kindness](http://en.wikipedia.org/wiki/Random_act_of_kindness), we have been blessed with so many on this journey. So many little things every day. It has given me a different perspective. I have always been an optimist, but I am even more trusting, open and optimistic from our experiences on this journey.
 
@@ -44,6 +44,6 @@ I like this [Transitions Abroad article](http://www.transitionsabroad.com/public
   
 People really do want to help. If we need some information, strangers always seem willing to tell us how to get to somewhere or give us insider tips. I have stumbled and fallen a couple of times and always there are many people who have come to my aid asking if they can help me up. We are always looking for free or cheap [wifi](http://www.wififreespot.com/) and strangers always point us in the right direction. Many times hotels let us sit in their lobbies and use their wifi for hours for free. People in person or online tell us about great places to go or invite us to visit them in their homes!
 
-When ever we have had a problem, from visits to hospitals, ambulance rides, car wreck, dental work, and more..we have received extraordinary kindness and care.  I remember the taxi driver in Rhodes who spoke no English and the great care and concern he had when he took us to the hospital. The ambulance drivers in [Vienna](http://soultravelers3new.local/2007/11/bloody-monday-i.html) were so kind and ended up giving us presents and buying Mozart a treat! All the dentists I have been to have taken such good care of this dental chicken.
+When ever we have had a problem, from visits to hospitals, ambulance rides, car wreck, dental work, and more..we have received extraordinary kindness and care.  I remember the taxi driver in Rhodes who spoke no English and the great care and concern he had when he took us to the hospital. The ambulance drivers in [Vienna](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/11/bloody-monday-i.html) were so kind and ended up giving us presents and buying Mozart a treat! All the dentists I have been to have taken such good care of this dental chicken.
 
 This kind of extended travel  and mobile lifestyle has enriched us in so many ways, not the least of which is to experience the kindness and inner beauty in the ordinary/extraordinary people that we meet every day!

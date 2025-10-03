@@ -33,12 +33,12 @@ easy, super healthy salsa that
 
 <!--more--> ![Delicioius homemade easy fermented salsa made from organic tomatoes and ingredients](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330177443b05e2970d.jpg)  
   
-Do you love salsa? How would you like to make a very easy, super healthy salsa that your whole family will love? I was surprised to learn that salsa is the number one condiment in America. Since we LOVE [Mexican food](http://soultravelers3new.local/2012/07/mexican-food-around-the-world-make-your-own.html "Mexican food around the world") , we eat salsa a lot, often with pastured eggs for breakfast, as a snack or with lunch or dinner, so want the most healthy version.  
+Do you love salsa? How would you like to make a very easy, super healthy salsa that your whole family will love? I was surprised to learn that salsa is the number one condiment in America. Since we LOVE [Mexican food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/mexican-food-around-the-world-make-your-own.html "Mexican food around the world") , we eat salsa a lot, often with pastured eggs for breakfast, as a snack or with lunch or dinner, so want the most healthy version.  
   
   
 **SUPER EASY FERMENTATION RECIPE**  
   
-This is such an easy and delicious recipe, that is even kid proof, so a fabulous way to introduce your family to lacto-fermented probiotic foods and perhaps the best way to get your feet wet if you have yet to try things like [making kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make kefir") or a [fermented chutney](http://soultravelers3new.local/2012/08/how-to-make-healthy-lacto-fermented-mango-papaya-chutney.html "how to make fermented chutney").  
+This is such an easy and delicious recipe, that is even kid proof, so a fabulous way to introduce your family to lacto-fermented probiotic foods and perhaps the best way to get your feet wet if you have yet to try things like [making kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make kefir") or a [fermented chutney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/how-to-make-healthy-lacto-fermented-mango-papaya-chutney.html "how to make fermented chutney").  
   
   
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c33ef4e970c-300x225-1.jpg)![Making homemade salsa- the easy lacto-fermented way](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3b4c2c1970d.jpg)  
@@ -48,9 +48,9 @@ This is such an easy and delicious recipe, that is even kid proof, so a fabulous
   
 **WHY MAKE AND EAT FERMENTED SALSA**  
   
-With today's food and constant assaults to our digestion system ( antibiotics, medicines, chlorinated water, birth control pills etc) we ALL need more probiotics, perhaps even more so for those wanting to combine [health and travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html#more "health  and travel").  
+With today's food and constant assaults to our digestion system ( antibiotics, medicines, chlorinated water, birth control pills etc) we ALL need more probiotics, perhaps even more so for those wanting to combine [health and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/healthy-food-and-travel.html#more "health  and travel").  
   
-Our gut health is essential to ensure overall health and optimal wellness as all disease begins in the gut which makes up 80% of our immune system. A robust immune system is the number one defense system against ALL disease, thus one of our [travel health secrets](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets") now.  
+Our gut health is essential to ensure overall health and optimal wellness as all disease begins in the gut which makes up 80% of our immune system. A robust immune system is the number one defense system against ALL disease, thus one of our [travel health secrets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets") now.  
   
   
   

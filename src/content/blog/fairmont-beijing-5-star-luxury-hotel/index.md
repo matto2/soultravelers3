@@ -25,15 +25,15 @@ has been rated the best hotel in China
   
 It is immediately clear why the 5 star luxurious [Fairmont Beijing Hotel](http://www.fairmont.com/beijing/ "fairmont beijing hotel") has been rated the [best hotel in China](http://www.fairmont.com/beijing/hotelawards/ "best hotel in China") and ranked number one hotel in Beijing by Trip Advisor.  
   
-As we arrived on our recent [trip to China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "trip to china"), we loved it's ideal location in the heart of Beijing's Central Business District since it was very convenient to my daughter's [Mandarin school](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "mandarin school immersion Beijing") as we were there for [language learning](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html "language learning Beijing, best school mandarin").  
+As we arrived on our recent [trip to China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/china-travel-in-the-autumn.html "trip to china"), we loved it's ideal location in the heart of Beijing's Central Business District since it was very convenient to my daughter's [Mandarin school](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/mandarin-immersion-in-china.html "mandarin school immersion Beijing") as we were there for [language learning](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/learning-mandarin-in-beijing-china-best-school.html "language learning Beijing, best school mandarin").  
   
 ![Fairmont Beijing hotel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee804509f970d.jpg)  
   
-This is Beijings diplomatic and commercial district, so filled with high-end office towers, but the unique Chinese gate architecture and golden bronze color makes the Farimont pop out and it's conveniently close to everything including a subway stop. Thus it is an ideal base for a family like ours to [tour Beijing](http://soultravelers3new.local/2013/01/best-things-to-do-in-beijing-china-.html "best of Beijing").  
+This is Beijings diplomatic and commercial district, so filled with high-end office towers, but the unique Chinese gate architecture and golden bronze color makes the Farimont pop out and it's conveniently close to everything including a subway stop. Thus it is an ideal base for a family like ours to [tour Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/best-things-to-do-in-beijing-china-.html "best of Beijing").  
   
 ![family touring Beijing ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8047358970d.jpg)  
   
-Like our stays at [San Francisco Fairmont](http://soultravelers3new.local/2011/01/family-vacation-san-francisco-fairmont-review-family-friendly-best-luxury-hotel-with-kids.html "san francisco fairmont hotel"),  [Singapore Fairmont](http://soultravelers3new.local/2011/03/top-hotel-for-luxury-fairmont-singapore.html "singapore Fairmont hotel") and Fairmont Peace Hotel in Shanghai,( that we will be writing about soon)  we were very impressed by the amazing staff and service.  
+Like our stays at [San Francisco Fairmont](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/family-vacation-san-francisco-fairmont-review-family-friendly-best-luxury-hotel-with-kids.html "san francisco fairmont hotel"),  [Singapore Fairmont](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/03/top-hotel-for-luxury-fairmont-singapore.html "singapore Fairmont hotel") and Fairmont Peace Hotel in Shanghai,( that we will be writing about soon)  we were very impressed by the amazing staff and service.  
   
 The warm colors, serene beauty and sun drenched interior makes one feel immediately at home. Davinci particularly loved the 52-foot-long glass sculpture in the lobby of a fish which represents wealth and prosperity in Chinese symbolism.  
   
@@ -67,9 +67,9 @@ The huge walk in closet is one of my favorite luxuries at Fairmont hotels, since
   
 ![Biking in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d408fc7f6970c.jpg)  
   
-There is definitely some culture shock when arriving in [Beijing](http://soultravelers3new.local/2012/11/life-in-china.html "life in Beijing"), much of it due to the language challenges and just how big this city is, so the "cocoon" of this special nurturing hotel and staff, so helped support us in our adjustment those  early days of our first week in Beijing.  
+There is definitely some culture shock when arriving in [Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/life-in-china.html "life in Beijing"), much of it due to the language challenges and just how big this city is, so the "cocoon" of this special nurturing hotel and staff, so helped support us in our adjustment those  early days of our first week in Beijing.  
   
-Most of our month was in a [homestay](http://soultravelers3new.local/2013/01/best-homestay-living-with-a-family-in-china.html "best homestay in Beijing"), but we are very grateful for this time in extravagant style which helped us get acclimated to a new country.  
+Most of our month was in a [homestay](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/best-homestay-living-with-a-family-in-china.html "best homestay in Beijing"), but we are very grateful for this time in extravagant style which helped us get acclimated to a new country.  
   
   
 ![Fairmont Beijing hotel marble bathroom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee804596f970d.jpg)  
@@ -130,20 +130,3 @@ Everything reminds you that you are in exceptional accommodations meant to pleas
 
 Related articles
 
-[![](http://i.zemanta.com/129646196_80_80.jpg)](http://soultravelers3new.local/2012/12/shanghai-skyline-worlds-best-.html)[Shanghai Skyline - World's Best?](http://soultravelers3new.local/2012/12/shanghai-skyline-worlds-best-.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/141410675_80_80.jpg)](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)[Learning Mandarin in Beijing, China - Best School](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/136588189_80_80.jpg)](http://soultravelers3new.local/2013/01/best-things-to-do-in-beijing-china-.html)[Best Things to Do in Beijing, China](http://soultravelers3new.local/2013/01/best-things-to-do-in-beijing-china-.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/131801621_80_80.jpg)](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html)[The Great Wall of China](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html)
-
-[![](http://i.zemanta.com/133178306_80_80.jpg)](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)[Around-the-World Travel - Best Advice](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)
-
-[![](http://i.zemanta.com/129131608_80_80.jpg)](http://soultravelers3new.local/2012/11/shanghai-with-kids.html)[Shanghai with Kids](http://soultravelers3new.local/2012/11/shanghai-with-kids.html)

@@ -23,7 +23,7 @@ told us to make sure that we saw
   
 Right before we left southern Southern Spain last May, our good friends there told us to make sure that we saw [Finistere](mailto:http://en.wikipedia.org/wiki/Cape_Finisterre) when we were visiting Galicia. During ancient times, people thought it was the end of the earth and many included it in their pilgrimage. One look at it and it is easy to see why some one might assume that it is the end of the earth.
 
-[![Img_2861](http://soultravelers3new.local/images/2008/10/02/img_2861.jpg "Img_2861")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2861.jpg)
+[![Img_2861](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/02/img_2861.jpg "Img_2861")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2861.jpg)
 
 "It was a blue and shiny waste......On all sides there was grandeur and sublimity....Even in the calmest day there was a rumbling and a hollow roar...which fills the heart with uneasy sensations. " Borrow
 
@@ -33,10 +33,10 @@ Right before we left southern Southern Spain last May, our good friends there to
 
 ![Img_2865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2865.jpg)
 
-[![Img_2903](http://soultravelers3new.local/images/2008/10/02/img_2903.jpg "Img_2903")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2903.jpg)
+[![Img_2903](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/02/img_2903.jpg "Img_2903")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2903.jpg)
 
 ![Img_2885_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2885_2.jpg)
 
-[![Img_2862](http://soultravelers3new.local/images/2008/10/02/img_2862.jpg "Img_2862")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2862.jpg)
+[![Img_2862](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/10/02/img_2862.jpg "Img_2862")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2862.jpg)
 
 ![Img_2889](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/10/02/img_2889.jpg)

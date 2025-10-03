@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_1407](http://soultravelers3new.local/images/2008/04/29/img_1407.png "Img_1407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1407.png) Mozart's 6th at Eiffel Tower  
+ [![Img_1407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1407.png "Img_1407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1407.png) Mozart's 6th at Eiffel Tower  
 September 24, 2006
 
 Well,we did not quite make the actual day,  
@@ -15,7 +15,7 @@ to celebrate her sixth birthday in Paris
 
 <!--more-->
 
-[![Img_1407_2](http://soultravelers3new.local/images/2008/04/29/img_1407_2.png "Img_1407_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1407_2.png)
+[![Img_1407_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1407_2.png "Img_1407_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1407_2.png)
 
 Well,we did not quite make the actual day,but we did fulfill our long promise to Mozart to celebrate her sixth birthday in Paris at the Eiffel Tower. Princess Mozart had quite the birthday celebration from ten  
 in the morning until almost midnight soaking in all the joys and beauty of Paris! We picked that special  promise as a way to involve her in the excitement of the world tour by bringing it to a kid level and she has been really looking forward to it for over a year. After all, Eloise, Madeline, Charlotte and Linnea all got to go to Paris and seemed so thrilled about it, why shouldn’t she? She has been beside herself with exuberance and anticipation since we entered France and woke up early on her first morning in Paris with the giddiness of Christmas morning.  
@@ -68,26 +68,26 @@ plus the opportunity to see it lit up. Still the line and crowds were plentiful.
   
 We topped the night off when Mozart and I took a pleasurable ride on the lit up carrousel across the street and she had more popcorn as we explored the nearby bridge, river and quay. We then jumped into a van cab that we caught easily at the corner and Mozart quickly fell asleep as we had a splendid conversation with the amiable cabbie. She woke up in time to walk to the camper and play a little while we got ready for bed. Then we all snuggled up in bed for a much needed rest after a very satisfying day. Happy 6th birthday beloved Ms Mozart....may you remember this heaven sent one for the rest of your life!
 
-[![Img_1254](http://soultravelers3new.local/images/2008/04/29/img_1254.png "Img_1254")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1254.png)
+[![Img_1254](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1254.png "Img_1254")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1254.png)
 
-[![Img_1258](http://soultravelers3new.local/images/2008/04/29/img_1258.png "Img_1258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1258.png)
+[![Img_1258](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1258.png "Img_1258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1258.png)
 
-[![Img_1272](http://soultravelers3new.local/images/2008/04/29/img_1272.png "Img_1272")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1272.png)
+[![Img_1272](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1272.png "Img_1272")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1272.png)
 
-[![Img_1284](http://soultravelers3new.local/images/2008/04/29/img_1284.png "Img_1284")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1284.png)
+[![Img_1284](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1284.png "Img_1284")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1284.png)
 
-[![Img_1352](http://soultravelers3new.local/images/2008/04/29/img_1352.png "Img_1352")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1352.png)
+[![Img_1352](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1352.png "Img_1352")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1352.png)
 
-[![Img_1366](http://soultravelers3new.local/images/2008/04/29/img_1366.png "Img_1366")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1366.png)
+[![Img_1366](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1366.png "Img_1366")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1366.png)
 
-[![Img_1371](http://soultravelers3new.local/images/2008/04/29/img_1371.png "Img_1371")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1371.png)
+[![Img_1371](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1371.png "Img_1371")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1371.png)
 
-[![Img_1341](http://soultravelers3new.local/images/2008/04/29/img_1341.png "Img_1341")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1341.png)
+[![Img_1341](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1341.png "Img_1341")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1341.png)
 
-[![Img_1370](http://soultravelers3new.local/images/2008/04/29/img_1370.png "Img_1370")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1370.png)
+[![Img_1370](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1370.png "Img_1370")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1370.png)
 
-[![Img_1429](http://soultravelers3new.local/images/2008/04/29/img_1429.png "Img_1429")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1429.png)
+[![Img_1429](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1429.png "Img_1429")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1429.png)
 
-[![Img_1428](http://soultravelers3new.local/images/2008/04/29/img_1428.jpg "Img_1428")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1428.jpg)
+[![Img_1428](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1428.jpg "Img_1428")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1428.jpg)
 
-[![Img_1422](http://soultravelers3new.local/images/2008/04/29/img_1422.jpg "Img_1422")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1422.jpg)
+[![Img_1422](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1422.jpg "Img_1422")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1422.jpg)

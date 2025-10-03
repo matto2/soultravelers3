@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_7050](http://soultravelers3new.local/images/2008/04/18/img_7050.png "Img_7050")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7050.png) Comfort Food  
+ [![Img_7050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7050.png "Img_7050")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7050.png) Comfort Food  
 February 14, 2007
 
 There is nothing like fresh bread from  
@@ -15,7 +15,7 @@ soup to bring comfort on a winters day.
 
 <!--more-->
 
-[![Img_7050_2](http://soultravelers3new.local/images/2008/04/18/img_7050_2.png "Img_7050_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7050_2.png)
+[![Img_7050_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7050_2.png "Img_7050_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7050_2.png)
 
 There is nothing like fresh bread from the bread man dipped into home made soup to bring comfort on a winters day. It may be sunny & eternal spring on the terraces and outside, but it gets cold in this house so it feels like eternal winter inside to me. It is warm in the bedroom when we wake up (under loads of covers!) and I enjoy my hot shower, but the long wet hair, self-drying in the cold doesn’t help matters.
 
@@ -29,18 +29,18 @@ We enjoy our dinner ritual; Grace, good food, conversation, working together  a
 
 Like soup and wild flower bouquets, it is a simple and satisfying life here, even with my bundling up.
 
-[![Img_7068](http://soultravelers3new.local/images/2008/04/18/img_7068.png "Img_7068")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7068.png)
+[![Img_7068](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7068.png "Img_7068")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7068.png)
 
-[![Img_7049](http://soultravelers3new.local/images/2008/04/18/img_7049.png "Img_7049")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7049.png)
+[![Img_7049](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7049.png "Img_7049")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7049.png)
 
-[![Img_4092](http://soultravelers3new.local/images/2008/04/18/img_4092.png "Img_4092")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4092.png)
+[![Img_4092](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_4092.png "Img_4092")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4092.png)
 
-[![Img_4093](http://soultravelers3new.local/images/2008/04/18/img_4093.png "Img_4093")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4093.png)
+[![Img_4093](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_4093.png "Img_4093")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4093.png)
 
-[![Img_4944](http://soultravelers3new.local/images/2008/04/18/img_4944.png "Img_4944")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4944.png)
+[![Img_4944](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_4944.png "Img_4944")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4944.png)
 
-[![Img_4945](http://soultravelers3new.local/images/2008/04/18/img_4945.png "Img_4945")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4945.png)
+[![Img_4945](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_4945.png "Img_4945")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4945.png)
 
-[![Img_7057](http://soultravelers3new.local/images/2008/04/18/img_7057.png "Img_7057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7057.png)
+[![Img_7057](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7057.png "Img_7057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7057.png)
 
-[![Img_7070](http://soultravelers3new.local/images/2008/04/18/img_7070.png "Img_7070")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7070.png)
+[![Img_7070](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7070.png "Img_7070")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7070.png)

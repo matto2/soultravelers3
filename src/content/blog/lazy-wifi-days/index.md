@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
-[![Img_3164](http://soultravelers3new.local/images/2008/04/26/img_3164.png "Img_3164")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3164.png) Lazy wifi days in La Sousta  
+[![Img_3164](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3164.png "Img_3164")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3164.png) Lazy wifi days in La Sousta  
 October 17, 2006
 
 For the first time we actually have free  
@@ -15,7 +15,7 @@ to an oasis in a desert.
 
 <!--more-->
 
-[![Img_3164_2](http://soultravelers3new.local/images/2008/04/26/img_3164_2.png "Img_3164_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3164_2.png)
+[![Img_3164_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3164_2.png "Img_3164_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3164_2.png)
 
 For the first time we actually have free wifi from our campsite! Its like coming to an oasis in a desert. It is not exactly normal, it comes and it goes and is sometimes useless, but still it is better than most places that we have been and it is wonderful to be able to surf the web some and catch up. Mozart loves playing the games on cyberchase at PBS kids in between playing outside. This La Sousta campground (next to Pont du Gard ) is also a great place to take a break as it is so quiet and pretty. I bet it is booming in high season, but hardly any one is here now.
 
@@ -35,27 +35,27 @@ Mozart and DaVinci hiked over to Pont du Gard again this afternoon. They were gl
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3149_2.jpg)
 
-[![Img_3149_3](http://soultravelers3new.local/images/2008/04/26/img_3149_3.jpg "Img_3149_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3149_3.jpg)
+[![Img_3149_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3149_3.jpg "Img_3149_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3149_3.jpg)
 
-[![Img_3131](http://soultravelers3new.local/images/2008/04/26/img_3131.jpg "Img_3131")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3131.jpg)
+[![Img_3131](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3131.jpg "Img_3131")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3131.jpg)
 
-[![Img_3161](http://soultravelers3new.local/images/2008/04/26/img_3161.jpg "Img_3161")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3161.jpg)
+[![Img_3161](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3161.jpg "Img_3161")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3161.jpg)
 
-[![Img_2955](http://soultravelers3new.local/images/2008/04/26/img_2955.jpg "Img_2955")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2955.jpg)
+[![Img_2955](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2955.jpg "Img_2955")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2955.jpg)
 
-[![Img_3199](http://soultravelers3new.local/images/2008/04/26/img_3199.jpg "Img_3199")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3199.jpg)
+[![Img_3199](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3199.jpg "Img_3199")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3199.jpg)
 
-[![Img_3210](http://soultravelers3new.local/images/2008/04/26/img_3210.jpg "Img_3210")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3210.jpg)
+[![Img_3210](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3210.jpg "Img_3210")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3210.jpg)
 
-[![Img_3227](http://soultravelers3new.local/images/2008/04/26/img_3227.jpg "Img_3227")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3227.jpg)
+[![Img_3227](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3227.jpg "Img_3227")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3227.jpg)
 
-[![Img_3176](http://soultravelers3new.local/images/2008/04/26/img_3176.jpg "Img_3176")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3176.jpg)
+[![Img_3176](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3176.jpg "Img_3176")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3176.jpg)
 
-[![Img_3173](http://soultravelers3new.local/images/2008/04/26/img_3173.jpg "Img_3173")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3173.jpg)
+[![Img_3173](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3173.jpg "Img_3173")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3173.jpg)
 
-[![Img_3237](http://soultravelers3new.local/images/2008/04/26/img_3237.jpg "Img_3237")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3237.jpg)
+[![Img_3237](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3237.jpg "Img_3237")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3237.jpg)
 
-[![Img_3174](http://soultravelers3new.local/images/2008/04/26/img_3174.jpg "Img_3174")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3174.jpg)
+[![Img_3174](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_3174.jpg "Img_3174")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_3174.jpg)
 
   
 

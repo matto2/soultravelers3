@@ -46,12 +46,12 @@ Family travel in the Camargue in southern France is full of delightful surprises
   
 ![Amazing photo of Camargue, France horses & traditional dress](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f2cb9cb0970b.jpg)  
    
- I've been wanting to get to the [Camargue](http://en.wikipedia.org/wiki/Camargue) for quite some time, even before our [family world trip](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) when I visited Provence and the Cote d'Azure on various trips in the past. When I live and modeled in Milan long ago, I would come to the south of France almost every weekend in good weather, as my boyfriend kept his yacht in Antibes, but some how we never made it to the Camarugue for explorations.
+ I've been wanting to get to the [Camargue](http://en.wikipedia.org/wiki/Camargue) for quite some time, even before our [family world trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) when I visited Provence and the Cote d'Azure on various trips in the past. When I live and modeled in Milan long ago, I would come to the south of France almost every weekend in good weather, as my boyfriend kept his yacht in Antibes, but some how we never made it to the Camarugue for explorations.
 
   
   
 
- We thought about it when we were in [Pont du Gard](http://soultravelers3new.local/2006/10/pont-du-gard.html), nearby [Luberon](http://soultravelers3new.local/2006/10/loving-luberon.html) villages [Gordes](http://soultravelers3new.local/2006/10/going-to-gordes.html) and [Rossoulin](http://soultravelers3new.local/2006/10/roussillon-ochr.html) in 2006, early on in  our  [European road trip](http://soultravelers3new.local/2010/06/grand-tour-europe-iv-family-travel-extended-vacation-road-trip-summer-holiday-abroad.html#tp), but we ran out of time and good weather. We had another chance in 2008 when we spent time in Nice and [Monaco](http://twitpic.com/h5i8) areas, but again we ran out of time. It's not even that far from [Cinque Terre on the Italian Riviera](http://soultravelers3new.local/2009/07/7-best-reasons-to-travel-cinque-terre-italy.html) that we visited last summer, but even with slow travel there are more beautiful places than time to see them all. You can see why our world journey keeps getting extended! The south of France alone, is filled with gems. 
+ We thought about it when we were in [Pont du Gard](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/pont-du-gard.html), nearby [Luberon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/loving-luberon.html) villages [Gordes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/going-to-gordes.html) and [Rossoulin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/roussillon-ochr.html) in 2006, early on in  our  [European road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/grand-tour-europe-iv-family-travel-extended-vacation-road-trip-summer-holiday-abroad.html#tp), but we ran out of time and good weather. We had another chance in 2008 when we spent time in Nice and [Monaco](http://twitpic.com/h5i8) areas, but again we ran out of time. It's not even that far from [Cinque Terre on the Italian Riviera](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/07/7-best-reasons-to-travel-cinque-terre-italy.html) that we visited last summer, but even with slow travel there are more beautiful places than time to see them all. You can see why our world journey keeps getting extended! The south of France alone, is filled with gems. 
 
   
   
@@ -123,7 +123,7 @@ Family travel in the Camargue in southern France is full of delightful surprises
   
   
 
-We are really enjoying our slow travel this summer and it has [not been overly crowded so far](http://soultravelers3new.local/2010/07/how-to-travel-without-crowds-in-high-season-finding-bargains-peace-value-away-from-tourist-areas-tip.html#tp), and most of the tourist we run into are French, with a few German and Dutch folks here and there. The Camargue did not disappoint and lived up to it's reputation as a special place. We'll be back for sure.
+We are really enjoying our slow travel this summer and it has [not been overly crowded so far](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/how-to-travel-without-crowds-in-high-season-finding-bargains-peace-value-away-from-tourist-areas-tip.html#tp), and most of the tourist we run into are French, with a few German and Dutch folks here and there. The Camargue did not disappoint and lived up to it's reputation as a special place. We'll be back for sure.
 
   
   
@@ -141,7 +141,7 @@ We'll try to get a video up soon, but I just had to share these photos with you!
   
   
 
- I had a heck of time getting this post up as I have some kind of glitch going on with my Typepad blogging account that suddenly doesn't allow me to upload any pictures in Firefox, so I've finally found a way around it by using my Safari browser. I'm now at a fabulous new spot in Provence and the wifi is free, but we have challenges also with the VPN on our mac and almost no places to plug in, so I've had to play instead of do work catch up. It's a rough life travel blogging on the move, so will just do what I can and work around all the kinks as time allows. We've had a great time in beautiful Arles, Nimes exploring Roman ruins ,eating delicious French food and canoeing in the river under the [](http://)[](http://)[Pont du Gard](http://soultravelers3new.local/2006/10/roman-holiday-i.html#tp) and will tell those stories as I have time ( and decent internet). 
+ I had a heck of time getting this post up as I have some kind of glitch going on with my Typepad blogging account that suddenly doesn't allow me to upload any pictures in Firefox, so I've finally found a way around it by using my Safari browser. I'm now at a fabulous new spot in Provence and the wifi is free, but we have challenges also with the VPN on our mac and almost no places to plug in, so I've had to play instead of do work catch up. It's a rough life travel blogging on the move, so will just do what I can and work around all the kinks as time allows. We've had a great time in beautiful Arles, Nimes exploring Roman ruins ,eating delicious French food and canoeing in the river under the [](http://)[](http://)[Pont du Gard](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/roman-holiday-i.html#tp) and will tell those stories as I have time ( and decent internet). 
 
   
   

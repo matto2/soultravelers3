@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
- [![Img_1869](http://soultravelers3new.local/images/2008/08/11/img_1869.jpg "Img_1869")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1869.jpg) Crazy Travel Challenges  
+ [![Img_1869](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/11/img_1869.jpg "Img_1869")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1869.jpg) Crazy Travel Challenges  
 August 11, 2008
 
 Travel and the open road is an adventure  
@@ -15,7 +15,7 @@ sometimes the challenges make for the
 
 <!--more-->
 
-[![Img_1869_2](http://soultravelers3new.local/images/2008/08/11/img_1869_2.jpg "Img_1869_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1869_2.jpg)
+[![Img_1869_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/11/img_1869_2.jpg "Img_1869_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1869_2.jpg)
 
 Travel and the open road is an adventure and things do not always go right, but sometimes the challenges make for the biggest laughs and good stories later on. I have a wise friend who says, "If you are going to laugh later, you might as well laugh as it happens" and we do try to keep that in mind when we are in challenging territory, but I can not say we are always successful.
 
@@ -35,7 +35,7 @@ Meanwhile, having had two close adult  relatives that were killed by cars hitti
 
 Nevertheless, DaVinci felt it was the only solution, so he ran back to the machine to see if he could get a ticket, but alas that did not work. DaVinci is very athletic, so I have great confidence in his abilities, but I still did not like it, so I just prayed as that seemed to be the only thing I could do. We believe in the power of prayer and do a lot of praying on this journey which we feel has helped us. A lot of our journey is cushy and even luxurious, but trust me, this is still a big adventure and we are frequently reminded about that and the precipitous edge that we have chosen to live on as a family. I suppose we all live on that precipitous edge, but we just happen to be a little more aware of it with this lifestyle.  Prayer is sometimes all that we have... and faith.
 
-Once again, out of the blue, our prayer is answered. One of those ["kind strangers"](http://soultravelers3new.local/2008/07/kindness-of-str.html#more)  or guardian angels stops , this time a man in a semi truck who speaks no English ( but surmises the problem), goes more than out of his way to try and help us. DaVinci outside amid the traffic (and Mozart and I, inside the RV) try to understand what he is trying to communicate over and over with sign language and foreign words. The truck driver holds up traffic and eventually pulls over and finally, we think we understand that he is saying something about going under the road and where to do that.
+Once again, out of the blue, our prayer is answered. One of those ["kind strangers"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/kindness-of-str.html#more)  or guardian angels stops , this time a man in a semi truck who speaks no English ( but surmises the problem), goes more than out of his way to try and help us. DaVinci outside amid the traffic (and Mozart and I, inside the RV) try to understand what he is trying to communicate over and over with sign language and foreign words. The truck driver holds up traffic and eventually pulls over and finally, we think we understand that he is saying something about going under the road and where to do that.
 
 DaVinci returns to our RV, only to leave once more to find this tunnel. I wait for what feels like forever, while DaVinci locates some stairs and runs through a dark, loud narrow tunnel that runs under the road. We feel a little like we have been transported to the [twilight zone](http://en.wikipedia.org/wiki/The_Twilight_Zone) , but it turns out that there is actually a human in a hidden away office and soon our problem is solved.
 
@@ -43,6 +43,6 @@ DaVinci returns to our RV, only to leave once more to find this tunnel. I wait f
 
 We have endless little challenges like this on an almost daily basis. We get quite comfy once the RV is parked, but every time we move it ( or whatever transportation mode we happen to be taking) into brand new territory or yet another country or continent, we are on a road to and through the unknown and there is always a certain amount of anxiety and frequent challenges to meet and conquer. It is part of what we love about this lifestyle that keeps us on our toes and makes us feel more alive, but it is also a big part of what makes this lifestyle such an adventure into the unknown and just a little bit crazy at times.
 
-[![Img_1900](http://soultravelers3new.local/images/2008/08/11/img_1900.jpg "Img_1900")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1900.jpg)
+[![Img_1900](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/11/img_1900.jpg "Img_1900")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1900.jpg)
 
-[![Img_1901](http://soultravelers3new.local/images/2008/08/11/img_1901.jpg "Img_1901")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1901.jpg)
+[![Img_1901](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/11/img_1901.jpg "Img_1901")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/11/img_1901.jpg)

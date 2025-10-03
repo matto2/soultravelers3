@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_6078](http://soultravelers3new.local/images/2008/04/20/img_6078.png "Img_6078")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6078.png) Santa come! Or Papa Noel?  
+ [![Img_6078](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6078.png "Img_6078")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6078.png) Santa come! Or Papa Noel?  
 January 25, 2007
 
 Talk about over the top excitement, Mozart  
@@ -15,7 +15,7 @@ stairs to the Christmas tree and was shouting
 
 <!--more-->
 
-[![Img_6078_2](http://soultravelers3new.local/images/2008/04/20/img_6078_2.png "Img_6078_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6078_2.png)
+[![Img_6078_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6078_2.png "Img_6078_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6078_2.png)
 
 Talk about over the top excitement, Mozart woke up very early and bounded down the stairs to the Christmas tree and was shouting in amazement. I guess she was a little worried about the stocking as the kids do not get stockings here so that is the first thing she noticed. Or maybe she was a little concerned that  
 Santa would not find her, or maybe it is just the age, but I have never seen her more excited.This way we can share this fun day with family.
@@ -43,24 +43,24 @@ We have dubbed the bottom floor “The Mozart Motel” as she has taken over the
 She got quite a haul from the relatives at home and getting those boxes was lots of fun for her. We even got some xmas cards which was exciting for all of us as getting mail is quite special under our circumstances. She started the morning in her red robe, but when she came across her new outfit and pink hat and scarf from California she had to put that on for a while too. The cover picture does not really look like her  
 (funny how sometimes pics do not look at all like the person) but does capture the excitement of the morning filled with squeals of delight.
 
-[![Img_5806](http://soultravelers3new.local/images/2008/04/20/img_5806.png "Img_5806")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5806.png)
+[![Img_5806](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5806.png "Img_5806")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5806.png)
 
-[![Img_5844](http://soultravelers3new.local/images/2008/04/20/img_5844.png "Img_5844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5844.png)
+[![Img_5844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5844.png "Img_5844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5844.png)
 
-[![Img_6031](http://soultravelers3new.local/images/2008/04/20/img_6031.png "Img_6031")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6031.png)
+[![Img_6031](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6031.png "Img_6031")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6031.png)
 
-[![Img_6057](http://soultravelers3new.local/images/2008/04/20/img_6057.png "Img_6057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6057.png)
+[![Img_6057](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6057.png "Img_6057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6057.png)
 
-[![Img_5943](http://soultravelers3new.local/images/2008/04/20/img_5943.png "Img_5943")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5943.png)
+[![Img_5943](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5943.png "Img_5943")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5943.png)
 
-[![Img_5962](http://soultravelers3new.local/images/2008/04/20/img_5962.png "Img_5962")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5962.png)
+[![Img_5962](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5962.png "Img_5962")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5962.png)
 
-[![Img_6026](http://soultravelers3new.local/images/2008/04/20/img_6026.png "Img_6026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6026.png)
+[![Img_6026](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6026.png "Img_6026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6026.png)
 
-[![Img_5846](http://soultravelers3new.local/images/2008/04/20/img_5846.png "Img_5846")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5846.png)
+[![Img_5846](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5846.png "Img_5846")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5846.png)
 
-[![Img_6093](http://soultravelers3new.local/images/2008/04/20/img_6093.png "Img_6093")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6093.png)
+[![Img_6093](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6093.png "Img_6093")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6093.png)
 
-[![Img_6106](http://soultravelers3new.local/images/2008/04/20/img_6106.png "Img_6106")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6106.png)
+[![Img_6106](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6106.png "Img_6106")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6106.png)
 
-[![Img_6128](http://soultravelers3new.local/images/2008/04/20/img_6128.png "Img_6128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6128.png)
+[![Img_6128](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6128.png "Img_6128")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6128.png)

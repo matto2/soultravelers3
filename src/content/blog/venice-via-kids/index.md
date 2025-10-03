@@ -6,7 +6,7 @@ categories:
   - "videos"
 ---
 
- [![Img_7065](http://soultravelers3new.local/images/2008/08/30/img_7065.png "Img_7065")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_7065.png) Venice Via Kid's Books!  
+ [![Img_7065](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/30/img_7065.png "Img_7065")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/30/img_7065.png) Venice Via Kid's Books!  
 August 29, 2008
 
 We love the idea of making up kids itineraries  
@@ -19,8 +19,8 @@ We love the idea of making up kids itineraries from good children's literature! 
 
 This is our video on the subject that we posted on Youtube and now transferred to our website, for more detail check out the original post here:
 
-[http://soultravelers3new.local/2007/05/kids-lit-itiner.html#more  
-](http://soultravelers3new.local/2007/05/kids-lit-itiner.html#more)
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/05/kids-lit-itiner.html#more  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/05/kids-lit-itiner.html#more)
 
 Or look at our Youtube channel and subscribe to be the first to see our videos:
 

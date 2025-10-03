@@ -32,9 +32,9 @@ child and they just increase when 
 <!--more-->  
 ![Challenges of Parenting a Musically Talented Child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c757349f970b.png)  
   
-There are challenges when you are raising a [musically talented child](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Music talented teen singer/ songwriter/musician") and they just increase when you do it while [traveling around the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "traveling around the world as a family ") and as parents without any musical training. It's truly understandable why she is the first child since Wolfgang Armadeus Mozart to do extensive [world travel with a violin and piano](http://soultravelers3new.local/2014/02/mozart-plays-mozart-and-more-violin-and-piano-performance.html "beautiful teen girl Mozart plays mozart on piano and violin") as it is no easy feat, especially with parents who are not musicians!  
+There are challenges when you are raising a [musically talented child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Music talented teen singer/ songwriter/musician") and they just increase when you do it while [traveling around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "traveling around the world as a family ") and as parents without any musical training. It's truly understandable why she is the first child since Wolfgang Armadeus Mozart to do extensive [world travel with a violin and piano](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/mozart-plays-mozart-and-more-violin-and-piano-performance.html "beautiful teen girl Mozart plays mozart on piano and violin") as it is no easy feat, especially with parents who are not musicians!  
   
-If you look closely at this photo above,  you will see that the stand for her digital [piano](http://soultravelers3new.local/2007/12/pool-play-piano.html "piano playing kid") is actually an ironing board! These are the kind of "work arounds" we have had to come up with, using all of our creativity of solving the problem of supporting [Mozart's musical talents](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "teen Mozart's singer on red carpet at Grammy gala") while traveling on a tight budget.   
+If you look closely at this photo above,  you will see that the stand for her digital [piano](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/12/pool-play-piano.html "piano playing kid") is actually an ironing board! These are the kind of "work arounds" we have had to come up with, using all of our creativity of solving the problem of supporting [Mozart's musical talents](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/teen-mozart-singing-red-carpet-grammys.html "teen Mozart's singer on red carpet at Grammy gala") while traveling on a tight budget.   
   
 
 <iframe allowfullscreen src="https://www.youtube.com/embed/0Ar90wOnWnM" frameborder="0" height="480" width="640"></iframe>
@@ -44,7 +44,7 @@ If you look closely at this photo above,  you will see that the stand for her d
   
 We used an ironing board as a piano stand for her rented digital piano in our first small furnished studio in Dallas!! It works great...just bought a cheap folding chair to sit in. Solved the problem and stayed on budget.   
   
-When she was younger in our [Spain winter rental](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to do a winter rental in spain"), we used free bricks ( like [these books](http://soultravelers3new.local/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist books")) to put the piano on ( sometimes a table) and used a step ladder they had there with a pillow on top as you can see if you look in this video below.  
+When she was younger in our [Spain winter rental](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "how to do a winter rental in spain"), we used free bricks ( like [these books](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/minimalist-living-family-travel-lifestyle-books.html "minimalist books")) to put the piano on ( sometimes a table) and used a step ladder they had there with a pillow on top as you can see if you look in this video below.  
   
   
 
@@ -52,7 +52,7 @@ When she was younger in our [Spain winter rental](http://soultravelers3new.local
 
   
   
-That worked perfect when we were in our rented apartment in the [winter in Spain](http://soultravelers3new.local/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "what is a winter rental in spain like") for four years and gave her a music room to share with friends which she loved to do.   
+That worked perfect when we were in our rented apartment in the [winter in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "what is a winter rental in spain like") for four years and gave her a music room to share with friends which she loved to do.   
   
   
 [![Mozart making music with a friend in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0e07436970c.png "Mozart making music with a friend in Spain")  
@@ -71,7 +71,7 @@ That worked perfect when we were in our rented apartment in the [winter in Spain
   
   
   
-We spent late November through usually the 1st of May in our white village in [Andalusia, Spain](http://soultravelers3new.local/2010/06/family-travel-tips-in-spains-costa-del-sol-countryside-adventures-mediterranean-beaches-photography-.html "family travel tips Costa del Sol") where she went to [school to immerse in Spanish](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html "learning spanish in spain"), then seven months traveling Europe when we [homeschooled on the move.](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel ")   
+We spent late November through usually the 1st of May in our white village in [Andalusia, Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/family-travel-tips-in-spains-costa-del-sol-countryside-adventures-mediterranean-beaches-photography-.html "family travel tips Costa del Sol") where she went to [school to immerse in Spanish](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/05/learning-spanish-in-spain.html "learning spanish in spain"), then seven months traveling Europe when we [homeschooled on the move.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel ")   
   
 ![Travel kid Mozart playing piano in her camper van](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7572ead970b.png)  
   
@@ -83,7 +83,7 @@ When we'd return to Spain every winter, we'd pull the digital piano out and find
   
 ![Pretty Mozart playing at Armadeus hotel in Seville on their piano for her aunt](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0e07517970c.png)  
   
-Sometimes we'd also use pianos at hotels like Mozart above at the [Armadeus hotel in Seville](http://soultravelers3new.local/2008/04/hello-amadeus.html "amadeus hotel in seville spain") with her visiting aunt from California watching or below at a [hotel in Turkey](http://soultravelers3new.local/2007/08/kalehan-kindred.html "best hotel in turkey") where she made friends with the owners son.   
+Sometimes we'd also use pianos at hotels like Mozart above at the [Armadeus hotel in Seville](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/hello-amadeus.html "amadeus hotel in seville spain") with her visiting aunt from California watching or below at a [hotel in Turkey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/08/kalehan-kindred.html "best hotel in turkey") where she made friends with the owners son.   
   
 ![blonde Mozart playing piano practice at hotel in Turkey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7572fc1970b.png)  
   
@@ -120,7 +120,7 @@ The one in Asia was just a cheap Casio because we could get lessons on a good fu
 ![beautiful teen Mozart singing and at piano at 13](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0e10977970c.png)  
   
   
-Mozart has always had [gifts in music from babyhood](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "Travel kid Mozart's music gifts from baby"), but she is gifted in many areas like math, science, art, writing, so we had no idea that she would become so passionate about it in her teens. We just wanted her to have the basics as it was her first love.  
+Mozart has always had [gifts in music from babyhood](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "Travel kid Mozart's music gifts from baby"), but she is gifted in many areas like math, science, art, writing, so we had no idea that she would become so passionate about it in her teens. We just wanted her to have the basics as it was her first love.  
   
 So much has happened so quickly for her since she turned 13, that now we are certainly glad that despite the many challenges, we supported her musical talents even as we traveled the world. I hope that encourages other parents who might also face challenges in this area. 
 
@@ -130,8 +130,3 @@ N 
 
 Related articles
 
-[![](http://i.zemanta.com/325798753_80_80.jpg)](http://soultravelers3new.local/2015/02/do-you-have-the-courage-to-travel-deep-into-the-sahara-.html)[Do You Have the Courage to Travel Deep Into the Sahara?](http://soultravelers3new.local/2015/02/do-you-have-the-courage-to-travel-deep-into-the-sahara-.html)
-
-[![](http://i.zemanta.com/328610945_80_80.jpg)](http://soultravelers3new.local/2015/02/chinese-new-year-in-asia-%E6%98%A5%E8%8A%82.html)[Chinese New Year in Asia 农历新年 春节](http://soultravelers3new.local/2015/02/chinese-new-year-in-asia-%E6%98%A5%E8%8A%82.html)
-
-[![](http://i.zemanta.com/329065180_80_80.jpg)](http://soultravelers3new.local/2015/02/snow-and-ice-closes-dallas-down.html)[Snow and Ice Closes Dallas Down!](http://soultravelers3new.local/2015/02/snow-and-ice-closes-dallas-down.html)

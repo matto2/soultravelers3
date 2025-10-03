@@ -5,7 +5,7 @@ categories:
   - "blog"
 ---
 
-[![Picture_1](http://soultravelers3new.local/images/2008/09/13/picture_1.png "Picture_1")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/13/picture_1.png) Forget About Palin & Obama....Vote for ME!  
+[![Picture_1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/13/picture_1.png "Picture_1")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/13/picture_1.png) Forget About Palin & Obama....Vote for ME!  
 September 12, 2008
 
 The good news is we have been  

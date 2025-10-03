@@ -27,21 +27,21 @@ Tahiti at one of their top
 
 <!--more--> ![gorgeous Tahiti from hammock -tips on low budget French Polynesia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017617757fba970c.jpg)  
   
-Who wouldn't want to hang out on a hammock in gorgeous Tahiti at one of their top hotel resorts? We were very pleased that we managed to have a fantastic time in Tahiti while still staying on our $23 a day per person budget that we have been [traveling the world](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "how to traveling the world") on these last seven years. Still amazed that it was so cheap!  
+Who wouldn't want to hang out on a hammock in gorgeous Tahiti at one of their top hotel resorts? We were very pleased that we managed to have a fantastic time in Tahiti while still staying on our $23 a day per person budget that we have been [traveling the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "how to traveling the world") on these last seven years. Still amazed that it was so cheap!  
   
 The rooms in this resort were way over our budget, but it didn't cost a thing to visit it or the several others we visited while there. Surprisingly, they were all pretty empty when we were there in the fall, so we had the places practically to ourselves. Many of the locals do this for entertainment and we were hanging out with the locals as we did couchsurfing in Moorea, Bora Bora and Papette.  
   
 Lot's of ways to save money on a trip to Tahiti. I've written a few posts on this topic:  
   
-[Bora Bora on Cheap Budget](http://soultravelers3new.local/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "Bora Bora on a cheap budget")  
+[Bora Bora on Cheap Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/11/bora-bora-on-a-cheap-budget-travel-tahiti-moorea-and-french-polynesia.html "Bora Bora on a cheap budget")  
   
-[Family Travel French Polynesia Cheaply](http://soultravelers3new.local/2010/10/family-travel-french-polynesia-cheaply.html "framily travel french polynesia cheaply")  
+[Family Travel French Polynesia Cheaply](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/family-travel-french-polynesia-cheaply.html "framily travel french polynesia cheaply")  
 [  
-Bora Bora - Heaven on a Cheap Budget](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html "bora bora on a cheap budget")  
+Bora Bora - Heaven on a Cheap Budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/bora-bora-heaven-on-a-cheap-budget.html "bora bora on a cheap budget")  
 [  
 Moorea - Cheap and Amazing  
   
-](http://soultravelers3new.local/2011/09/moorea-cheap-and-amazing.html "moorea cheap and amazing")
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/moorea-cheap-and-amazing.html "moorea cheap and amazing")
 
 **TAHITI LODGING OPTIONS**  
   

@@ -4,7 +4,7 @@ date: 2013-10-07
 draft: true
 ---
 
-[![IMG_9973](https://soultravelers3.typepad.com/.a/6a00e5502a95078833019affd388dd970c-200wi "IMG_9973")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833019affd388dd970c-pi)Homeschool Science - Exploring the World  
+[![IMG_9973](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affd388dd970c.jpg "IMG_9973")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affd388dd970c.jpg-pi)Homeschool Science - Exploring the World  
   
   
   
@@ -13,7 +13,7 @@ draft: true
   
   
 
-<!--more--> [![IMG_9973](http://soultravelers3.typepad.com/.a/6a00e5502a95078833019affd38142970b-800wi "IMG_9973")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833019affd38142970b-pi)  
+<!--more--> [![IMG_9973](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affd38142970b.jpg "IMG_9973")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019affd38142970b.jpg-pi)  
   
   
 Our _science_ and nature study _science_\-related field trips other sites, nature centers, and hands-on _science_ opportunities. Also **...** Have you made _travel_ part of your _homeschooling_ experience?  

@@ -27,9 +27,9 @@ the Nympheas in Paris
   
 Detail from Claude Monet's water lily paintings known as the Nympheas in Paris at the Musee de l'Orangerie one of our favorites.  
 [  
-Paris Museums - 3 in a Day](http://soultravelers3new.local/2006/09/3-museums-in-a.html "Paris museums")  
+Paris Museums - 3 in a Day](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/3-museums-in-a.html "Paris museums")  
   
-[Giverny - Monet's Garden](http://soultravelers3new.local/2006/10/giverny-monets.html "Giverny - Monet's garden")  
+[Giverny - Monet's Garden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/giverny-monets.html "Giverny - Monet's garden")  
   
 "It took me time to understand my waterlilies. I had planted them for the pleasure of it; I grew them without ever thinking of painting them." -Claude Monet
 

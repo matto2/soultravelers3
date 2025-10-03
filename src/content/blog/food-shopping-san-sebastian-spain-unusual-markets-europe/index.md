@@ -21,7 +21,7 @@ Yowser! They eat some really strange food in Europe, so food shopping can be ver
 
 ![IMG_4348](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011572369cf9970b.jpg)
 
-Some how these [sights](http://www.weird-food.com/weird-food-mammal.html) always bring back memories of a favorite film ["Babettes Feast"](http://en.wikipedia.org/wiki/Babette%27s_Feast). I love how they display food in Europe and it was fun watching the locals shop. You really do not want to miss the delights of the food markets in [San Sebastian](http://soultravelers3new.local/2009/07/seaside-resort-san-sebastian-spain-donostia.html)...the good, the bad and the ugly. Luckily, most of it falls in the good category.
+Some how these [sights](http://www.weird-food.com/weird-food-mammal.html) always bring back memories of a favorite film ["Babettes Feast"](http://en.wikipedia.org/wiki/Babette%27s_Feast). I love how they display food in Europe and it was fun watching the locals shop. You really do not want to miss the delights of the food markets in [San Sebastian](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/07/seaside-resort-san-sebastian-spain-donostia.html)...the good, the bad and the ugly. Luckily, most of it falls in the good category.
 
 ![IMG_4335](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115714209b4970c.jpg) 
 

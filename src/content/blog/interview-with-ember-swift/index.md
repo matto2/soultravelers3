@@ -25,20 +25,20 @@ musician, writer, song writer, singer
 
 <!--more--> ![Ember Swift](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c35e82b76970b.jpg)  
   
-We were honored to meet up with the amazing and talented musician, writer, song writer, [singer Ember Swift](http://www.emberswift.com/ "ember swift") while [in China](http://soultravelers3new.local/2012/11/china-travel-in-the-autumn.html "China travel"). Ember is an international artist who has released 11 albums, as well as a much-published writer and a [fluent trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html "fluent trilingual ") in [Mandarin](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "learning mandarin in Beijing"), French and English**.** She is the only foreigner to have a hit in Mandarin on Chinese radio.  
+We were honored to meet up with the amazing and talented musician, writer, song writer, [singer Ember Swift](http://www.emberswift.com/ "ember swift") while [in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/china-travel-in-the-autumn.html "China travel"). Ember is an international artist who has released 11 albums, as well as a much-published writer and a [fluent trilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/raising-a-bilingual-child-or-trilingual.html "fluent trilingual ") in [Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/mandarin-immersion-in-china.html "learning mandarin in Beijing"), French and English**.** She is the only foreigner to have a hit in Mandarin on Chinese radio.  
   
 
 <iframe frameborder="0" height="315" src="http://www.youtube.com/embed/jpdUuAp_Nr0?rel=0" width="420"></iframe>
 
-[Swift i](http://www.facebook.com/emberswiftmusic "Ember Swift music")s a Canadian,  married to a successful, creative Chinese Reggea musician and a new mom to adorable baby Echo and they all live in Beijing. Our [daughter is a musician](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "kid playing violin around the world") and budding composer and singer who also never met another Caucasian who was f[luent in Mandarin.](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "fluent in mandarin")  
+[Swift i](http://www.facebook.com/emberswiftmusic "Ember Swift music")s a Canadian,  married to a successful, creative Chinese Reggea musician and a new mom to adorable baby Echo and they all live in Beijing. Our [daughter is a musician](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/kid-playing-violin-around-the-world.html "kid playing violin around the world") and budding composer and singer who also never met another Caucasian who was f[luent in Mandarin.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "fluent in mandarin")  
   
-Funnily, Ember even looks like she could be related to our daughter Mozart and we thought she was a great role model as a creative, [multilingual](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "multilingual - how to raise a kid- languages"), well-traveled person who has used her talents wisely.  
+Funnily, Ember even looks like she could be related to our daughter Mozart and we thought she was a great role model as a creative, [multilingual](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html "multilingual - how to raise a kid- languages"), well-traveled person who has used her talents wisely.  
   
 ![Musician Ember Swift at Four Seasons Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee78be2ac970d.jpg)  
   
-I love the synchronicity of [our travel life](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family travel around the world")! Just before we left for our [China trip](http://soultravelers3new.local/2012/12/china-travel-peking-opera.html "china trip"), it happened that my cousin from Michigan (who is a lawyer who just happens to be  working this year in Bangkok), sent me a link about Ember on Facebook,  since we have things in common and she had seen Swift touring "live" several times over the years and was a fan.  
+I love the synchronicity of [our travel life](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "family travel around the world")! Just before we left for our [China trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/china-travel-peking-opera.html "china trip"), it happened that my cousin from Michigan (who is a lawyer who just happens to be  working this year in Bangkok), sent me a link about Ember on Facebook,  since we have things in common and she had seen Swift touring "live" several times over the years and was a fan.  
   
-I emailed Ember on a whim then and she was gracious enough to meet with us at the fantastic new [Four Seasons in Beijing](http://soultravelers3new.local/2013/01/four-seasons-hotel-beijing-review-awesome-luxury.html "four seasons beijing") soon after we arrived. It was one of those destined-to-be meetings and we fell in love with both her and Echo. They felt like family and we know we will be seeing more of them.  
+I emailed Ember on a whim then and she was gracious enough to meet with us at the fantastic new [Four Seasons in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/four-seasons-hotel-beijing-review-awesome-luxury.html "four seasons beijing") soon after we arrived. It was one of those destined-to-be meetings and we fell in love with both her and Echo. They felt like family and we know we will be seeing more of them.  
   
 ![ Four Seasons Beijing yummy treats at the Executive Club](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d401787a3970c.jpg)  
   
@@ -133,22 +133,3 @@ What you’re doing with your daughter is totally admirable and impressive. She 
 
 Related articles
 
-[![](http://i.zemanta.com/127801907_80_80.jpg)](http://soultravelers3new.local/2012/11/learning-mandarin-in-china-kids-tv-.html)[Learning Mandarin in China - Kids TV](http://soultravelers3new.local/2012/11/learning-mandarin-in-china-kids-tv-.html)
-
-[![](http://i.zemanta.com/136588189_80_80.jpg)](http://soultravelers3new.local/2013/01/best-things-to-do-in-beijing-china-.html)[Best Things to Do in Beijing, China](http://soultravelers3new.local/2013/01/best-things-to-do-in-beijing-china-.html)
-
-[![](http://i.zemanta.com/136332847_80_80.jpg)](http://soultravelers3new.local/2013/01/multilingual-dreams.html)[Multilingual Dreams](http://soultravelers3new.local/2013/01/multilingual-dreams.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/126145245_80_80.jpg)](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html)[Mandarin Immersion in China](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html)
-
-[![](http://i.zemanta.com/138225478_80_80.jpg)](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html)[World School - Education at it's Best](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html)
-
-[![](http://i.zemanta.com/131801621_80_80.jpg)](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html)[The Great Wall of China](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html)
-
-[![](http://i.zemanta.com/129469672_80_80.jpg)](http://soultravelers3new.local/2012/12/china-bridge-summer-palace.html)[China Bridge, Summer Palace](http://soultravelers3new.local/2012/12/china-bridge-summer-palace.html)

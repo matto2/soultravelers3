@@ -32,25 +32,25 @@ patch with her mom yesterday
 
 <!--more--> ![Pumpkins, Candy Apples, Halloween Family Fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3766cfa200c.png)  
   
-Watching this child at a pumpkin patch with her mom yesterday and all the others, reminded me of all the fun Halloween and fall festivals we've experienced [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "family travel around the world"). Here are a few:  
+Watching this child at a pumpkin patch with her mom yesterday and all the others, reminded me of all the fun Halloween and fall festivals we've experienced [around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/around-the-world-family-travel/ "family travel around the world"). Here are a few:  
   
-[HALLOWEEN AROUND THE WORLD](http://soultravelers3new.local/2011/10/halloween-around-the-world.html "HALLOWEEN AROUND THE WORLD")  
+[HALLOWEEN AROUND THE WORLD](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/halloween-around-the-world.html "HALLOWEEN AROUND THE WORLD")  
   
-[BEST HALLOWEEN EUROPE OR USA?](http://soultravelers3new.local/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "halloween in Europe and USA")  
+[BEST HALLOWEEN EUROPE OR USA?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "halloween in Europe and USA")  
   
-[HALLOWEEN CALIFORNIA BEACH STYLE](http://soultravelers3new.local/2011/10/enchanting-halloween-california-style-1.html "HALLOWEEN IN CALIFORNIA")  
-[](http://soultravelers3new.local/2011/10/enchanting-halloween-california-style-1.html "HALLOWEEN IN CALIFORNIA")  
-[WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS](http://soultravelers3new.local/2012/10/worlds-best-halloween-celebrations-spooky-trips.html "WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS")  
+[HALLOWEEN CALIFORNIA BEACH STYLE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/enchanting-halloween-california-style-1.html "HALLOWEEN IN CALIFORNIA")  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/enchanting-halloween-california-style-1.html "HALLOWEEN IN CALIFORNIA")  
+[WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/worlds-best-halloween-celebrations-spooky-trips.html "WORLD'S BEST HALLOWEEN CELEBRATIONS - SPOOKY TRIPS")  
   
-[HALLOWEEN IN BORA BORA](http://soultravelers3new.local/2010/10/happy-halloween-traveling-around-the-world-celebrations-for-kids.html "HALLOWEEN IN BORA BORA")  
+[HALLOWEEN IN BORA BORA](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/happy-halloween-traveling-around-the-world-celebrations-for-kids.html "HALLOWEEN IN BORA BORA")  
 [  
 HALLOWEEN JACK -O'-LANTERN FUN  
   
-](http://soultravelers3new.local/2012/10/halloween-jack-o-lantern-fun.html " HALLOWEEN JACK -O'-LANTERN FUN")[HAPPY HALLOWEEN! DIY CUTE CHEAP, LAST MINUTE COSTUMES!](http://soultravelers3new.local/2015/10/happy-halloween-diy-cute-cheap-costume.html "DIY CUTE CHEAP COSTUMES FOR HALLOWEEN LAST MINUTE ")  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/halloween-jack-o-lantern-fun.html " HALLOWEEN JACK -O'-LANTERN FUN")[HAPPY HALLOWEEN! DIY CUTE CHEAP, LAST MINUTE COSTUMES!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/10/happy-halloween-diy-cute-cheap-costume.html "DIY CUTE CHEAP COSTUMES FOR HALLOWEEN LAST MINUTE ")  
   
-[TEEN ACTRESS MOZART STARS IN HALLOWEEN COMMERCIAL FOR KMART](http://soultravelers3new.local/2016/10/teen-mozart-stars-in-a-funny-zombie-halloween-commercial-for-kmart-.html "TEEN ACTRESS MOZART STARS IN COMMERCIAL FOR KMART ") ![Heavenly Reyna ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3766d1c200c.png)
+[TEEN ACTRESS MOZART STARS IN HALLOWEEN COMMERCIAL FOR KMART](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/10/teen-mozart-stars-in-a-funny-zombie-halloween-commercial-for-kmart-.html "TEEN ACTRESS MOZART STARS IN COMMERCIAL FOR KMART ") ![Heavenly Reyna ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3766d1c200c.png)
 
- Fall is  great time for adventures with kids. [Mozart](http://soultravelers3new.local/2018/10/-mozart-dee-smashes-the-patriarchy-in-girl-power-song-push-you-harder.html#more) is one of the big kids this year. Normally, she'd be a junior in high school now, but since she skipped ahead and [graduated with honors at 14 and started college](https://www.youtube.com/watch?v=A-Ll5fCeVws "Mozart Dee graduates high school at 14 and starts college ") part time and acting/singing/songwriting full-time, she walks a unique path of bridging the adult world and teen world at the same time.   
+ Fall is  great time for adventures with kids. [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2018/10/-mozart-dee-smashes-the-patriarchy-in-girl-power-song-push-you-harder.html#more) is one of the big kids this year. Normally, she'd be a junior in high school now, but since she skipped ahead and [graduated with honors at 14 and started college](https://www.youtube.com/watch?v=A-Ll5fCeVws "Mozart Dee graduates high school at 14 and starts college ") part time and acting/singing/songwriting full-time, she walks a unique path of bridging the adult world and teen world at the same time.   
   
 ![Pumpkins, Candy Apples, Halloween Family Fun!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad39c8e8d200d.png)  
 Being at the pumpkin patch reminded us that every age is a good time to be a kid and enjoy celebrating the seasons together.   

@@ -27,15 +27,15 @@ eating raw, pastured eggs daily
 
 <!--more--> ![raw eggs from pastured hens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c36665b2b970b.jpg)  
   
-If you told me 2 years ago that we would be eating raw, pastured eggs daily ( we 60 year old [retirees](http://soultravelers3new.local/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retirees and travel"), our 12 year old child and my 85 year old mother), I never would have believed it, or the [health benefits.](http://articles.mercola.com/sites/articles/archive/2011/09/02/why-does-this-commonly-vilified-food-actually-prevent-heart-disease-and-cancer.aspx "health benefits raw eggs") But learning to [travel while sick](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "travel while sick") on my [health journey](http://soultravelers3new.local/health-and-travel/ "health journey"), I've learned a lot about [raw organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "raw organic food and travel") and what works for us.  
+If you told me 2 years ago that we would be eating raw, pastured eggs daily ( we 60 year old [retirees](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/early-retirement-perpetual-travel-radical-early-retirement-with-kids-rtw-family-travel-multiyear.html "retirees and travel"), our 12 year old child and my 85 year old mother), I never would have believed it, or the [health benefits.](http://articles.mercola.com/sites/articles/archive/2011/09/02/why-does-this-commonly-vilified-food-actually-prevent-heart-disease-and-cancer.aspx "health benefits raw eggs") But learning to [travel while sick](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "travel while sick") on my [health journey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/health-and-travel/ "health journey"), I've learned a lot about [raw organic food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "raw organic food and travel") and what works for us.  
   
-Are raw eggs healthy? Like most things, that depends on who you listen to, what eggs and how deep you research. I certainly bought into the status quo on this one and never looked deeper until [a doctor](http://www.candidaplan.com/ "Dr, Jeff McCombs") suggested that I eat raw egg yolks to help my mysterious illness. I must admit, I was a bit stunned and afraid at the thought of it..and even more so about doing it in [tropical Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical Asia") in a developing country.  
+Are raw eggs healthy? Like most things, that depends on who you listen to, what eggs and how deep you research. I certainly bought into the status quo on this one and never looked deeper until [a doctor](http://www.candidaplan.com/ "Dr, Jeff McCombs") suggested that I eat raw egg yolks to help my mysterious illness. I must admit, I was a bit stunned and afraid at the thought of it..and even more so about doing it in [tropical Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical Asia") in a developing country.  
   
   
 ![sunny side up eggs from pastured eggs - note the orange yolks](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d4094204d970c.jpg)  
   
   
-Now that we have been eating healthy, raw, pastured eggs from small farms in Asia for over a year ( and almost 6 months of organic pastured raw eggs in [California](http://soultravelers3new.local/2012/02/beautiful-capitola-californias-oldest-beach.html "capitola, California") before that) I have much more confidence and see it's benefits in healing. I was totally debilitated, sick and in pain, before I began eating them and almost 100% healed now thanks to a few important diet changes like this.  
+Now that we have been eating healthy, raw, pastured eggs from small farms in Asia for over a year ( and almost 6 months of organic pastured raw eggs in [California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/02/beautiful-capitola-californias-oldest-beach.html "capitola, California") before that) I have much more confidence and see it's benefits in healing. I was totally debilitated, sick and in pain, before I began eating them and almost 100% healed now thanks to a few important diet changes like this.  
   
 **DOCTORS AND HEALTH PROFESIONALS WHO EAT RAW EGGS**  
   
@@ -88,7 +88,7 @@ Interestingly, Vonderplanitz documents a case in his book about  an almost dyin
 ![smoothie made with raw eggs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c366bd37c970b.jpg)  
   
 **HEALTH BENEFITS OF RAW EGGS** - **A SUPERFOOD!**  
- There are reasons why atheletes and bodybuilders, just like that Rocky movie scene, like to eat raw eggs. I've learned to eat them like that, but prefer them in a raw milk eggnog or [raw milk kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "raw milk kefir") smoothie like I give to my family. I also love poached or soft boiled ( best ways to cook them if you must) and my husband likes sunny side up with liquid yokes for more nutrition as heating kills some of the advantages.  
+ There are reasons why atheletes and bodybuilders, just like that Rocky movie scene, like to eat raw eggs. I've learned to eat them like that, but prefer them in a raw milk eggnog or [raw milk kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "raw milk kefir") smoothie like I give to my family. I also love poached or soft boiled ( best ways to cook them if you must) and my husband likes sunny side up with liquid yokes for more nutrition as heating kills some of the advantages.  
   
 Eggs  provide you with:  
   
@@ -118,7 +118,7 @@ For those who have bought into the [Cholesterol myths](http://www.ravnskov.nu/ch
   
   ![soaking raw eggs in a bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee808b73b970d.jpg)  
   
-We get 50 eggs one or two times a week from the farmers market here ( gathered from small farms of free range organic eggs..or so they say as I haven't been to them yet) or from the [organic stores in Penang](http://soultravelers3new.local/2012/08/where-to-buy-organic-food-in-penang.html "organic food stores  in Penang"). We eat most of them raw daily in smoothies that combine things like organic raw milk or coconut  kefir, tumeric, organic prunes, organic raw unheated honey, banana, organic cinnamon and organic goji berries to the eggs. LOTS of antioxidants!  
+We get 50 eggs one or two times a week from the farmers market here ( gathered from small farms of free range organic eggs..or so they say as I haven't been to them yet) or from the [organic stores in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/where-to-buy-organic-food-in-penang.html "organic food stores  in Penang"). We eat most of them raw daily in smoothies that combine things like organic raw milk or coconut  kefir, tumeric, organic prunes, organic raw unheated honey, banana, organic cinnamon and organic goji berries to the eggs. LOTS of antioxidants!  
   
 ![eggs in asia come in 10's not dozen and we recycle/reuse containers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8107929970d.jpg)  
   
@@ -138,22 +138,3 @@ Each person, must decide on their own diets and risks, but for us, this seems to
 
 Related articles
 
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/141156810_80_80.jpg)](http://soultravelers3new.local/2013/01/travel-to-spain-kids-tips.html)[Travel to Spain - Kids Tips](http://soultravelers3new.local/2013/01/travel-to-spain-kids-tips.html)
-
-[![](http://i.zemanta.com/133178306_80_80.jpg)](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)[Around-the-World Travel - Best Advice](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)
-
-[![](http://i.zemanta.com/134800869_80_80.jpg)](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)[Around-the-World Family Travel](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)
-
-[![](http://i.zemanta.com/134635768_80_80.jpg)](http://soultravelers3new.local/2012/12/grocery-shopping-in-china.html)[Grocery Shopping in China](http://soultravelers3new.local/2012/12/grocery-shopping-in-china.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/138225478_80_80.jpg)](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html)[World School - Education at it's Best](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html)
-
-[![](http://i.zemanta.com/128106693_80_80.jpg)](http://soultravelers3new.local/2012/11/yowser-acupuncture-torture-in-china.html)[Yowser! Acupuncture Torture in China!](http://soultravelers3new.local/2012/11/yowser-acupuncture-torture-in-china.html)
-
-[![](http://i.zemanta.com/133604097_80_80.jpg)](http://soultravelers3new.local/2012/12/happiness-and-gratitude-.html)[Happiness and Gratitude](http://soultravelers3new.local/2012/12/happiness-and-gratitude-.html)

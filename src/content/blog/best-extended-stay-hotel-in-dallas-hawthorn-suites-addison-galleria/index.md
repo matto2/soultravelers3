@@ -28,7 +28,7 @@ looking to stay for a few months or
 <!--more-->  
 ![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77adc970b.png)  
   
-Are you looking for the best [extended stay](http://soultravelers3new.local/2008/06/how-to-do-exten.html "extended stay travel") hotel for Dallas? If you are looking to stay for a few months or a few days; whether you are a family on vacation, a business traveler, relocating, or looking for a couples romantic getaway, you can't beat [Hawthorn Suites by Wyndham at Addison Galleria](http://www.hawthorn.com/hotels/texas/addison/hawthorn-suites-by-wyndham-addison-galleria/hotel-overview "Hawthorn Suites Addison Galleria, Dallas, Texas") with all the comforts of home!  
+Are you looking for the best [extended stay](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html "extended stay travel") hotel for Dallas? If you are looking to stay for a few months or a few days; whether you are a family on vacation, a business traveler, relocating, or looking for a couples romantic getaway, you can't beat [Hawthorn Suites by Wyndham at Addison Galleria](http://www.hawthorn.com/hotels/texas/addison/hawthorn-suites-by-wyndham-addison-galleria/hotel-overview "Hawthorn Suites Addison Galleria, Dallas, Texas") with all the comforts of home!  
   
 **TRIP ADVISOR CERTIFICATE OF EXCELLENCE AWARD**  
   
@@ -78,14 +78,14 @@ Don't feel like cooking? They have a free evening Reception Monday through Thurs
 ![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77b95970b.png)  
   
   
-It is a "home" not a "hotel" as we like to choose places that we WANT to live. [Life on the road](http://soultravelers3new.local/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "life on the road of a traveling family") needs to be about pleasure, coziness, luxury, healing, and ease, with all the comforts of home...more about LIFE than the road, to give us a place to replenish, stick to routines, "cocoon" in, as we explore the new.  
+It is a "home" not a "hotel" as we like to choose places that we WANT to live. [Life on the road](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/what-our-nomadic-travel-lifestyle-looks-like-family-fun.html "life on the road of a traveling family") needs to be about pleasure, coziness, luxury, healing, and ease, with all the comforts of home...more about LIFE than the road, to give us a place to replenish, stick to routines, "cocoon" in, as we explore the new.  
   
   
 ![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba0970b.png)  
   
 **WE ARE EXPERTS ON EXTENDED STAY TRAVEL**  
   
-As an [8-plus-year](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "kid traveling world 8 years")\-non-stop [world traveling family](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "round the world traveling family"), we are probably the  "poster child" for extended stay or affordable long-stay acommodations and have done it extensively around the world from [Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "how to winter in southeast Asia cheaply") to [Spain](http://soultravelers3new.local/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "winter in spain"), but we found it quite challenging to find what we needed in Dallas.  
+As an [8-plus-year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "kid traveling world 8 years")\-non-stop [world traveling family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "round the world traveling family"), we are probably the  "poster child" for extended stay or affordable long-stay acommodations and have done it extensively around the world from [Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "how to winter in southeast Asia cheaply") to [Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/11/lifestyle-design-a-winter-in-spain-extendedtravel-digitalnomad-miniretirement-4hww-travel.html "winter in spain"), but we found it quite challenging to find what we needed in Dallas.  
   
   
 ![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77ba7970b.png)  
@@ -99,7 +99,7 @@ We haven't seen the other [Hawthorn Suites](http://www.hawthorn.com/hotels/desti
   
 **BEST SERVICE**  
   
-After [arriving in Dallas at the Four Seasons](http://soultravelers3new.local/2014/02/dallas-luxury-resort-arriving-to-big-d-in-style.html "arrival to dallas four seasons"), we knew we needed to find the perfect place to base here and from the very first call from there to this place, (answered by a  kind, patient and helpful voice on the other end), I had a good feeling about it and that just grew as we arrived and settled in. I called them because I liked the reviews I read on Tripadvisor.  
+After [arriving in Dallas at the Four Seasons](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/dallas-luxury-resort-arriving-to-big-d-in-style.html "arrival to dallas four seasons"), we knew we needed to find the perfect place to base here and from the very first call from there to this place, (answered by a  kind, patient and helpful voice on the other end), I had a good feeling about it and that just grew as we arrived and settled in. I called them because I liked the reviews I read on Tripadvisor.  
    
   
   
@@ -116,7 +116,7 @@ We are experienced business people, boomers and traveling family with discrimina
   
 **BEAUTIFUL SUNSET FROM OUR ROOM**  
   
-This is the sunset out our window and it gives me much pleasure to be bathed in these colors as I prepare dinner for my family. I seem to have an unconscious knack for finding places around the world with divine [sunrises](http://soultravelers3new.local/2012/07/sunrise-sunset.html "sunrise photo and quote") and [sunsets](http://soultravelers3new.local/2012/10/sweet-sunset.html "sunsets and inspiration")  
+This is the sunset out our window and it gives me much pleasure to be bathed in these colors as I prepare dinner for my family. I seem to have an unconscious knack for finding places around the world with divine [sunrises](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/sunrise-sunset.html "sunrise photo and quote") and [sunsets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/sweet-sunset.html "sunsets and inspiration")  
   
   
 ![best extended stay hotel Dallas Hawthorn Suites by Wyndham Addison Galleria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcc77bf4970b.png)  
@@ -194,22 +194,3 @@ Best of all the charming, helpful staff makes this a 5-star experience! Thank yo
 
 Related articles
 
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/243671903_80_80.jpg)](http://soultravelers3new.local/2014/01/winter-road-trip-americas-southwest-.html)[Winter Road Trip - America's Southwest](http://soultravelers3new.local/2014/01/winter-road-trip-americas-southwest-.html)
-
-[![](http://i.zemanta.com/172468718_80_80.jpg)](http://soultravelers3new.local/2013/05/train-travel-in-europe-with-kids.html)[Train Travel in Europe with Kids](http://soultravelers3new.local/2013/05/train-travel-in-europe-with-kids.html)
-
-[![](http://i.zemanta.com/201763828_80_80.jpg)](http://soultravelers3new.local/2013/09/best-places-to-visit-in-europe.html)[Best Places to Visit in Europe](http://soultravelers3new.local/2013/09/best-places-to-visit-in-europe.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/noimg_63_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/101284346_80_80.jpg)](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)[Travelling/ Traveling Around Europe in a Campervan](http://soultravelers3new.local/2012/07/travelling-traveling-around-europe-in-a-campervan.html)
-
-[![](http://i.zemanta.com/92363554_80_80.jpg)](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)[Bora Bora - Heaven on a Cheap Budget!](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/215357708_80_80.jpg)](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html)[Best Chocolate Cake Recipe Ever and it's Paleo Healthy Grain Free](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html)

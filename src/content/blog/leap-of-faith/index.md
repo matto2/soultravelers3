@@ -6,7 +6,7 @@ categories:
   - "blog"
 ---
 
- [![Leap_of_faith_2](http://soultravelers3new.local/images/2008/05/08/leap_of_faith_2.png "Leap_of_faith_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/leap_of_faith_2.png) Leap of Faith  
+ [![Leap_of_faith_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/leap_of_faith_2.png "Leap_of_faith_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/leap_of_faith_2.png) Leap of Faith  
 August 20, 2006
 
 Some people talk about a pattern of seven  
@@ -15,7 +15,7 @@ packed away so many things or given away
 
 <!--more-->
 
-[![Leap_of_faith_3](http://soultravelers3new.local/images/2008/05/08/leap_of_faith_3.png "Leap_of_faith_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/leap_of_faith_3.png)
+[![Leap_of_faith_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/leap_of_faith_3.png "Leap_of_faith_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/leap_of_faith_3.png)
 
 Some people talk about a pattern of seven years when they discuss change. I have packed away so many things or given away or sold them that I can not verify it right now and I can not remember exactly how long we lived in our last home, but I think it was about seven years. I think they say its the average time a person owns a home, but we would never have guessed we would be leaving this quickly. They also say that a home is always a work in progress and when you finally finish it, its time to move. I am not sure if we fit into any of these thoughts perfectly tho they have been running in my brain for a while now and do seem to reflect much of our experience. One last old saying goes, “a child changes everything” and indeed it does or certainly has for us. The reality of a child once they are here is much different than the imaginary child that one plans for. Their personalities, strengths and weaknesses impact. Who knew that two introverts who love life in retreat mode would have such an extrovert who needs lots of novel stimulation? Life has interesting twists and turns. Our plan is to take this opportunity now for greater freedom and connection and just precious time together, while we are young enough to enjoy it. Let’s see all those places we want to see or see again before we die! It’s been quite a leap of faith.  
   
@@ -44,16 +44,16 @@ We knew we needed to start with Europe first on this adventure as we love it .Of
   
 So the blog starts with the house and home story because this is where it all began. A fantasy trip to Europe led to us to finding our home and influenced creating our dream home. Now that the dream house is complete and we have been enriched by that experience and learned so much in the process, it seems Europe (and the world) is calling again. We are looking forward to the adventures this chapter will bring now that we have come full circle.  
   
-We will never look at wine or a vineyard in the same way now that we have started a Pinot Noir vineyard from scratch and lived with one outside our windows all year long for years enjoying the seasonal cycles. It started out as “grow some grapes” on DaVinci’s wish list for our new home and little did we know what we were getting into. Soon “some grapes” turned into 400 plants shipped from Oregon and 1/4 of an acre of Pinot (out of our almost 3 acres) and we learned a ton thru the process of growing them and then bottling our own wine. D had grown up  around vineyards and wanted to have some fruit trees and grapes as we could not grow those kinds of things on our first home that was tucked down in the redwoods near a brook. We were ready to do some serious gardening. Later, we were a showcased home on a San Francisco NBC show called “Wine Country Living” that we posted here in parts.  [SEE MOVIE](http://soultravelers3new.local/movie.html)\>>
+We will never look at wine or a vineyard in the same way now that we have started a Pinot Noir vineyard from scratch and lived with one outside our windows all year long for years enjoying the seasonal cycles. It started out as “grow some grapes” on DaVinci’s wish list for our new home and little did we know what we were getting into. Soon “some grapes” turned into 400 plants shipped from Oregon and 1/4 of an acre of Pinot (out of our almost 3 acres) and we learned a ton thru the process of growing them and then bottling our own wine. D had grown up  around vineyards and wanted to have some fruit trees and grapes as we could not grow those kinds of things on our first home that was tucked down in the redwoods near a brook. We were ready to do some serious gardening. Later, we were a showcased home on a San Francisco NBC show called “Wine Country Living” that we posted here in parts.  [SEE MOVIE](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/movie.html)\>>
 
-[![Birth_anncmt](http://soultravelers3new.local/images/2008/05/08/birth_anncmt.jpg "Birth_anncmt")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/birth_anncmt.jpg)
+[![Birth_anncmt](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/birth_anncmt.jpg "Birth_anncmt")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/birth_anncmt.jpg)
 
-[![Home_book_cover](http://soultravelers3new.local/images/2008/05/08/home_book_cover.jpg "Home_book_cover")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/home_book_cover.jpg)
+[![Home_book_cover](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/home_book_cover.jpg "Home_book_cover")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/home_book_cover.jpg)
 
-[![Landscape_thumbnail](http://soultravelers3new.local/images/2008/05/08/landscape_thumbnail.jpg "Landscape_thumbnail")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/landscape_thumbnail.jpg)
+[![Landscape_thumbnail](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/landscape_thumbnail.jpg "Landscape_thumbnail")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/landscape_thumbnail.jpg)
 
-[![7690_rider_copy](http://soultravelers3new.local/images/2008/05/08/7690_rider_copy.png "7690_rider_copy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/7690_rider_copy.png)
+[![7690_rider_copy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/7690_rider_copy.png "7690_rider_copy")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/7690_rider_copy.png)
 
-[![Img_0010_2](http://soultravelers3new.local/images/2008/05/08/img_0010_2.jpg "Img_0010_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/img_0010_2.jpg)
+[![Img_0010_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/img_0010_2.jpg "Img_0010_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/img_0010_2.jpg)
 
-[![Img_0009](http://soultravelers3new.local/images/2008/05/08/img_0009.jpg "Img_0009")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/img_0009.jpg)
+[![Img_0009](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/img_0009.jpg "Img_0009")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/img_0009.jpg)

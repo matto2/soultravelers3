@@ -38,14 +38,14 @@ one of the most healing foods
 ![making healthy bone broth soup the easy way](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3f36f98970d.jpg)  
   
   
-Did you know that nourishing, delicious bone broths are one of the most [healing foods](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healing foods") one can eat? Bone broth is a super food and used by almost every culture through out history. To increase [health in travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy travel"), or at home, I've found bone broths to be a key [travel health secret](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets") and easy to do with [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel"). This recipe in yummy, full of amazing health benefits and I know the best way to make it easy!  
+Did you know that nourishing, delicious bone broths are one of the most [healing foods](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "healing foods") one can eat? Bone broth is a super food and used by almost every culture through out history. To increase [health in travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/healthy-food-and-travel.html "healthy travel"), or at home, I've found bone broths to be a key [travel health secret](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health secrets") and easy to do with [slow travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/11/slow-travel.html "slow travel"). This recipe in yummy, full of amazing health benefits and I know the best way to make it easy!  
   
 "Good broth resurrects the dead." ~ South American Proverb  
   
   
 "There is no such thing as a good chicken bouillon, and you should stoop to using canned chicken broth only during times of dire emergency." - Jeff Smith  
   
-I was not very aware of bone broth benefits, until my [Santa Cruz acupuncturist Kathy Pouls](http://www.kpoulshealingarts.com/ "santa cruz acupuncturist kathy pouls") first told me about them last year and we have all been eating them regularly ever since. That and [homemade kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "homemade goat kefir and coconut kefir") have been my best food cures, so I eat them daily, To be a healing food, one must make it from scratch with the best ingredients the traditional way like your grandmothers or great grandmothers did.  
+I was not very aware of bone broth benefits, until my [Santa Cruz acupuncturist Kathy Pouls](http://www.kpoulshealingarts.com/ "santa cruz acupuncturist kathy pouls") first told me about them last year and we have all been eating them regularly ever since. That and [homemade kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "homemade goat kefir and coconut kefir") have been my best food cures, so I eat them daily, To be a healing food, one must make it from scratch with the best ingredients the traditional way like your grandmothers or great grandmothers did.  
   
 Most folks and even most restaurants do not make soup from scratch anymore, despite how easy it is. They use powdered or liquid flavorings loaded with  MSG, autolyzed yeast extract, hydrolyzed vegetable proteins and bad fats that are quite toxic to our nervous systems and brain.  
   
@@ -55,7 +55,7 @@ Most folks and even most restaurants do not make soup from scratch anymore, desp
 
   
   
-In the GAPS diet protocol ( and many others) bone broths ( along with other super foods like [kefir](http://soultravelers3new.local/2012/08/-superfood-healthy-coconut-tropical-nourishing-tradition-in-asia.html "coconut for kefir") and [fermented foods](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "fermented food like salsa"))  are the corner stone to "heal and seal" the gut lining which supports the immune system and cures many diseases.  
+In the GAPS diet protocol ( and many others) bone broths ( along with other super foods like [kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/-superfood-healthy-coconut-tropical-nourishing-tradition-in-asia.html "coconut for kefir") and [fermented foods](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "fermented food like salsa"))  are the corner stone to "heal and seal" the gut lining which supports the immune system and cures many diseases.  
   
 This versitile broth can be made ahead, then drunk as a beverage, used in cooking (like making soaked rice or as the liquid to steam veggies) and used as a base for stews, curries and many soups.  
   

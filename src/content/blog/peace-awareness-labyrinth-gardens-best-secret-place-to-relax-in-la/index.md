@@ -54,7 +54,7 @@ It's amazing that this awe-inspiring, secret sanctuary is free and open to the p
   
 ![Peace Awareness Labyrinth & Gardens - Relax Spa day  in Los Angeles!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1b5a9b0970c.png)  
   
-The outdoor stone labyrinth is the exact design as the one at the Chartres Cathedral in France ( which was built around 1200 AD and the largest ever built in France). Walking a labyrinth is an ancient practice ( dating back to Greece 2500 - 2000 BC where the labyrinth in [Knossos](http://soultravelers3new.local/2007/07/the-palace-of-k.html "visiting knossos palace") we visited in Crete is part of Greek mythology ) and found in many cultures from Hindu to Hopi.   
+The outdoor stone labyrinth is the exact design as the one at the Chartres Cathedral in France ( which was built around 1200 AD and the largest ever built in France). Walking a labyrinth is an ancient practice ( dating back to Greece 2500 - 2000 BC where the labyrinth in [Knossos](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/07/the-palace-of-k.html "visiting knossos palace") we visited in Crete is part of Greek mythology ) and found in many cultures from Hindu to Hopi.   
   
   
 ![Peace Awareness Labyrinth & Gardens - beautiful Los Angeles mansion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08cfcfb9970d.png)  
@@ -83,7 +83,7 @@ There are many layers to the garden with surprise delights around each corner an
   
 ![Peace Awareness Labyrinth & Gardens - gorgeous mansion in LA! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08d009db970d.png)  
   
-The authentic Guasti Villa/Busby Berkeley Mansion is beautiful inside as well as outside. We felt really honored to be able to film [Mozart's Offical Music Video for her song "Dear Heart"](http://soultravelers3new.local/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html#more "Singer Mozart's song \"Dear Heart\" ") in such a magnificent location. You can see more of the interior, labyrinth and gardens in her video:   
+The authentic Guasti Villa/Busby Berkeley Mansion is beautiful inside as well as outside. We felt really honored to be able to film [Mozart's Offical Music Video for her song "Dear Heart"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html#more "Singer Mozart's song \"Dear Heart\" ") in such a magnificent location. You can see more of the interior, labyrinth and gardens in her video:   
   
 
 <iframe allowfullscreen frameborder="0" height="360" src="https://www.youtube.com/embed/Q1j3B4ZMz5Y" width="640"></iframe>
@@ -119,16 +119,3 @@ Have you ever walked a labyrinth? How do you find peace in our fast moving, chao
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)
-
-[![](http://i.zemanta.com/261038051_80_80.jpg)](http://soultravelers3new.local/2014/03/13-year-old-mozart-sings-time-after-time.html)[13 Year Old Mozart Sings Time After Time](http://soultravelers3new.local/2014/03/13-year-old-mozart-sings-time-after-time.html)
-
-[![](http://i.zemanta.com/338454533_80_80.jpg)](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)[B.madebybebe Gives Teen Singer Mozart Glamour Makeup & Hair!](http://soultravelers3new.local/2015/04/bmadebybebe-gives-teen-singer-mozart-glamour-makeup-hair.html)
-
-[![](http://i.zemanta.com/321612472_80_80.jpg)](http://soultravelers3new.local/2015/01/-q-a-mozarts-take-on-travel-music-homeschool.html)[Q & A: Mozart's Take on Travel, Music, Homeschool](http://soultravelers3new.local/2015/01/-q-a-mozarts-take-on-travel-music-homeschool.html)
-
-[![](http://i.zemanta.com/277908180_80_80.jpg)](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)[Top 10 Summer Vacations for Family Travel](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)

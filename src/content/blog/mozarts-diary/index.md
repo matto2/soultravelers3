@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0323](http://soultravelers3new.local/images/2008/05/05/img_0323.png "Img_0323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0323.png) Mozart's Diary  
+ [![Img_0323](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0323.png "Img_0323")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0323.png) Mozart's Diary  
 September 6, 2006
 
 As I mentioned earlier, Mozart bought a  
@@ -15,7 +15,7 @@ just before we left there and has been writing
 
 <!--more-->
 
-[![Img_0323_2](http://soultravelers3new.local/images/2008/05/05/img_0323_2.png "Img_0323_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0323_2.png)
+[![Img_0323_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0323_2.png "Img_0323_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0323_2.png)
 
 As I mentioned earlier, Mozart bought a notebook at the Van Gogh Museum store just before we left there and has been writing in it ever since. She did write private on the front, but when she read it to us this morning I thought it might be nice to share a child’s view of some of this who is right on the cusp between 5 and 6. I will not publish her more private things, but just share a few intro pages.  
   
@@ -46,20 +46,20 @@ My mom is going pee and then she is going to brush her teeth. My dad is setting 
   
 I am eating breakfast. My mom is working on the computer again! Like she was last night. It is a sunny day today. Yesterday I found a park once. My mom and me were looking for a park, We asked two people.
 
-[![Img_0402](http://soultravelers3new.local/images/2008/05/05/img_0402.png "Img_0402")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0402.png)
+[![Img_0402](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0402.png "Img_0402")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0402.png)
 
-[![Img_0405](http://soultravelers3new.local/images/2008/05/05/img_0405.png "Img_0405")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0405.png)
+[![Img_0405](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0405.png "Img_0405")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0405.png)
 
-[![Img_0406](http://soultravelers3new.local/images/2008/05/05/img_0406.png "Img_0406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0406.png)
+[![Img_0406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0406.png "Img_0406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0406.png)
 
-[![Img_0407](http://soultravelers3new.local/images/2008/05/05/img_0407.png "Img_0407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0407.png)
+[![Img_0407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0407.png "Img_0407")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0407.png)
 
-[![Img_0408](http://soultravelers3new.local/images/2008/05/05/img_0408.png "Img_0408")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0408.png)
+[![Img_0408](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0408.png "Img_0408")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0408.png)
 
-[![Img_0409](http://soultravelers3new.local/images/2008/05/05/img_0409.png "Img_0409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0409.png)
+[![Img_0409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0409.png "Img_0409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0409.png)
 
-[![Img_0411](http://soultravelers3new.local/images/2008/05/05/img_0411.png "Img_0411")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0411.png)
+[![Img_0411](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0411.png "Img_0411")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0411.png)
 
-[![Img_0412](http://soultravelers3new.local/images/2008/05/05/img_0412.png "Img_0412")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0412.png)
+[![Img_0412](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0412.png "Img_0412")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0412.png)
 
-[![Img_0414](http://soultravelers3new.local/images/2008/05/05/img_0414.png "Img_0414")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0414.png)
+[![Img_0414](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/05/img_0414.png "Img_0414")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/05/img_0414.png)

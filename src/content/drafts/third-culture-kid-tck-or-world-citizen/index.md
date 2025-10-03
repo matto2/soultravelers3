@@ -4,7 +4,7 @@ date: 2011-08-28
 draft: true
 ---
 
-[![IMG_0458](https://soultravelers3.typepad.com/.a/6a00e5502a95078833015434e46a3a970c-200wi "IMG_0458")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833015434e46a3a970c-pi)  
+[![IMG_0458](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434e46a3a970c.jpg "IMG_0458")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015434e46a3a970c.jpg-pi)  
   
   
   
@@ -12,7 +12,7 @@ draft: true
   
   
 
-<!--more--> [![IMG_0458](http://soultravelers3.typepad.com/.a/6a00e5502a95078833015391110257970b-500wi "IMG_0458")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833015391110257970b-pi)  
+<!--more--> [![IMG_0458](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391110257970b.jpg "IMG_0458")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015391110257970b.jpg-pi)  
   
   
 Is TCK or Third Culture Kid a myth today? Does a term coined in the 50's for military brats, missionary kids and diplomats have any bearing at all on today's  globetrotting, world schooling, multilingual world citizen kids?  

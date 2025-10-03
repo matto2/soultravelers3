@@ -6,7 +6,7 @@ categories:
   - "blog"
 ---
 
- [![Img_0005](http://soultravelers3new.local/images/2008/05/07/img_0005.png "Img_0005")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0005.png) Testing, testing  
+ [![Img_0005](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0005.png "Img_0005")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0005.png) Testing, testing  
 August 21, 2006
 
 These are a playful shots of Ms. Mozart  
@@ -15,9 +15,9 @@ the first taken with our new camera.
 
 <!--more-->
 
-[![Img_0005_2](http://soultravelers3new.local/images/2008/05/07/img_0005_2.png "Img_0005_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0005_2.png)
+[![Img_0005_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0005_2.png "Img_0005_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0005_2.png)
 
-[![Img_0006](http://soultravelers3new.local/images/2008/05/07/img_0006.png "Img_0006")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0006.png)
+[![Img_0006](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0006.png "Img_0006")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0006.png)
 
 These are a playful shots of Ms. Mozart in bed with her hello kitty PJ's on, the first taken with our new camera. We have so much new technology and we are getting bleary eyed reading all the manuals and trying to figure them all out. Ok, not figure them out really, but at least have a bit of a clue about them before we hit the road.  
   
@@ -37,25 +37,25 @@ Ms Mozart has been wanting a sleep over birthday party for her sixth birthday si
 
 We can't wait to have the endless preparation behind us and hit the road. Hopefully we won't be so affected (like those going into the UK) by the latest airport security and delay problems. We are off on the journey of a lifetime!
 
-[![Img_0021](http://soultravelers3new.local/images/2008/05/07/img_0021.png "Img_0021")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0021.png)
+[![Img_0021](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0021.png "Img_0021")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0021.png)
 
-[![Img_0018](http://soultravelers3new.local/images/2008/05/07/img_0018.png "Img_0018")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0018.png)
+[![Img_0018](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0018.png "Img_0018")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0018.png)
 
-[![Img_0034](http://soultravelers3new.local/images/2008/05/07/img_0034.png "Img_0034")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0034.png)
+[![Img_0034](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0034.png "Img_0034")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0034.png)
 
-[![Img_0024](http://soultravelers3new.local/images/2008/05/07/img_0024.png "Img_0024")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0024.png)
+[![Img_0024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0024.png "Img_0024")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0024.png)
 
-[![Img_0023](http://soultravelers3new.local/images/2008/05/07/img_0023.png "Img_0023")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0023.png)
+[![Img_0023](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0023.png "Img_0023")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0023.png)
 
-[![Img_0031](http://soultravelers3new.local/images/2008/05/07/img_0031.png "Img_0031")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0031.png)
+[![Img_0031](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0031.png "Img_0031")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0031.png)
 
-[![Img_0026](http://soultravelers3new.local/images/2008/05/07/img_0026.png "Img_0026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0026.png)
+[![Img_0026](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0026.png "Img_0026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0026.png)
 
-[![Img_0035](http://soultravelers3new.local/images/2008/05/07/img_0035.png "Img_0035")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0035.png)
+[![Img_0035](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0035.png "Img_0035")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0035.png)
 
-[![Img_0057](http://soultravelers3new.local/images/2008/05/07/img_0057.png "Img_0057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0057.png)
+[![Img_0057](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0057.png "Img_0057")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0057.png)
 
-[![Img_0060](http://soultravelers3new.local/images/2008/05/07/img_0060.png "Img_0060")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0060.png)
+[![Img_0060](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0060.png "Img_0060")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0060.png)
 
 SWALLOWS travel to and fro,  
 And the great winds come and go,  

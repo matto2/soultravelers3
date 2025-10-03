@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_2717_2](http://soultravelers3new.local/images/2008/09/19/img_2717_2.jpg "Img_2717_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2717_2.jpg) Gorgeous Galicia, Secret Gem!  
+ [![Img_2717_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_2717_2.jpg "Img_2717_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2717_2.jpg) Gorgeous Galicia, Secret Gem!  
 September 19, 2008
 
 Galicia is much more than just Santiago  
@@ -15,11 +15,11 @@ minds, as it is one of the most spectacularly
 
 <!--more-->
 
-[![Img_2717_3](http://soultravelers3new.local/images/2008/09/19/img_2717_3.jpg "Img_2717_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2717_3.jpg)
+[![Img_2717_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_2717_3.jpg "Img_2717_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2717_3.jpg)
 
 Galicia is much more than just Santiago de Compostela and it really blew our minds, as it is one of the most spectacularly beautiful areas in Europe! It is very pristine and not crowded, as few seem to be aware of how much [startling beauty](http://query.nytimes.com/gst/fullpage.html?res=9A03EFDB143EF934A15757C0A961958260) is here. That is what was mind-blowing, to think how many miss [this gem](http://en.wikipedia.org/wiki/Galicia_\(Spain\)). Our jaws were agape through much of our journey here wondering why it was so natural, un-built up and  free of tourists in late June. Shhh, perhaps we should keep quiet about [this](http://www.red2000.com/spain/region/r-galic.html).
 
-[![Img_3027](http://soultravelers3new.local/images/2008/09/19/img_3027.jpg "Img_3027")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_3027.jpg)
+[![Img_3027](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_3027.jpg "Img_3027")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_3027.jpg)
 
   
 
@@ -33,7 +33,7 @@ Where the Atlantic joins the Cantabrian Sea, it is  wild and rocky with vast, u
 
 Perhaps we were lucky, but the weather was sunny and beautiful when we were there in late June, with spring-like temperatures. Galicia has a reputation for lots of rain ( which seems to go with the "green" label), although June though September are the least rainy months. We did have a small amount of rain, but not much and it did not last long, so it was an ideal time to bask in the glories of "green Spain". If the sunny weather was like this all year, we would be tempted to move to this unique, Celtic part of Spain.
 
-[![Img_2627](http://soultravelers3new.local/images/2008/09/19/img_2627.jpg "Img_2627")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2627.jpg)
+[![Img_2627](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_2627.jpg "Img_2627")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2627.jpg)
 
   
 
@@ -45,19 +45,19 @@ The roads are good enough that we could have used our RV to explore the entire a
 
 We also don't like to worry about petty thieves breaking into our RV and stealing important things, so it is safer in a campsite, than parked randomly on a road somewhere while we tour. A rental car has nothing in it, so safer in that way. Chances are that our RV would be fine parked on the road, but we have heard of people who had things stolen from them doing that ( or even while shopping in a hypermarket or parked in a highway rest point) while in Europe, so we tend to be cautious in this way. We would prefer to error on the cautious side as we have more in our camper than most holiday makers, although the fact that it is older is probably in our favor as I am sure it does not look as tempting as a brand new, spiffy one looks.
 
-[![Img_2685](http://soultravelers3new.local/images/2008/09/19/img_2685.jpg "Img_2685")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2685.jpg)
+[![Img_2685](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_2685.jpg "Img_2685")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2685.jpg)
 
   
 
 We wanted to see as much of Galicia as we could, so after we left Santiago we headed to Coruna  and found a beautiful campsite in a nearby town with the same name as our hometown, Santa Cruz. One of the [prettiest campsites](http://www.campinglosmanzanos.com/) around named Los Manzanos. It was not the easiest place to rent a car, but we finally worked out finding one through the nearby airport and had to take a taxi to pick it up ( usually they have delivered it to the campsite when we have rented them before).
 
-[![Img_2807](http://soultravelers3new.local/images/2008/09/19/img_2807.jpg "Img_2807")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2807.jpg)
+[![Img_2807](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_2807.jpg "Img_2807")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2807.jpg)
 
   
 
 It would be a nice area to spend weeks camping in lots of different parts of Galicia and there are plenty of great campsites large and small with free camping spots too. We explored endless gorgeous, rocky coasts, stunning empty beaches and authentic, very rural countryside. We got up at the crack of dawn and arrived home to our camper late in the day, fully satisfied by a full day that included more than a weeks worth of delights!
 
-[![Img_2998](http://soultravelers3new.local/images/2008/09/19/img_2998.jpg "Img_2998")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2998.jpg)
+[![Img_2998](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_2998.jpg "Img_2998")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2998.jpg)
 
   
 
@@ -71,6 +71,6 @@ Unique to Galicia are [horreos](http://en.wikipedia.org/wiki/H%C3%B3rreo) that a
 
 ![Img_2827](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2827.jpg)
 
-[![Img_2692](http://soultravelers3new.local/images/2008/09/19/img_2692.jpg "Img_2692")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2692.jpg)
+[![Img_2692](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_2692.jpg "Img_2692")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_2692.jpg)
 
-[![Img_3015](http://soultravelers3new.local/images/2008/09/19/img_3015.jpg "Img_3015")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_3015.jpg)
+[![Img_3015](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/19/img_3015.jpg "Img_3015")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/09/19/img_3015.jpg)

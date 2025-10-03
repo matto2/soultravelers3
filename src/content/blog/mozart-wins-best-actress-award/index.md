@@ -46,13 +46,13 @@ and just won the Best Actress Award  
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c84ba426970b-150x150-1.png)![Mozart Wins Best Actress Award for the Film "Rose"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1d5941c970c.png)  
   
   
-Wow! At just 14, [Mozart](http://soultravelers3new.local/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html "Mozart sings \"Dear Heart\"")  starred as the dramatic lead in a film called "Rose" shot last summer and just won the Best Actress Award at the prestigious Bare Bones International Film Festival!! To add to that joy, she is [singing](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "Mozart singing teen pop singer") next week at Carnegie Hall in New York City. Who knew raising her by [traveling around the world](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "teen traveling around the world ") would lead to this?   
+Wow! At just 14, [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html "Mozart sings \"Dear Heart\"")  starred as the dramatic lead in a film called "Rose" shot last summer and just won the Best Actress Award at the prestigious Bare Bones International Film Festival!! To add to that joy, she is [singing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/teen-mozart-singing-red-carpet-grammys.html "Mozart singing teen pop singer") next week at Carnegie Hall in New York City. Who knew raising her by [traveling around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "teen traveling around the world ") would lead to this?   
   
 ![Mozart Wins Best Actress Award for the Film "Rose"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08ef6955970d.png)  
   
   
 **MOZART DEE STARS AS ROSE IN FILM**  
-In the film, [Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "travel kid expert") plays a teen age [violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "kid playing violin around the world") prodigy named Rose, who dies of cancer and finds out she is adopted, so a meaty, dramatic role for her first film. It is a very challenging role even for the most seasoned professional actress, so a lot to take on as a first film.  You can see a few minutes peek of her film in [Mozart's Acting Demo Reel](https://www.youtube.com/watch?v=8v3HrE1kFp8 " Mozart's Acting Demo Reel"):  
+In the film, [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "travel kid expert") plays a teen age [violin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/kid-playing-violin-around-the-world.html "kid playing violin around the world") prodigy named Rose, who dies of cancer and finds out she is adopted, so a meaty, dramatic role for her first film. It is a very challenging role even for the most seasoned professional actress, so a lot to take on as a first film.  You can see a few minutes peek of her film in [Mozart's Acting Demo Reel](https://www.youtube.com/watch?v=8v3HrE1kFp8 " Mozart's Acting Demo Reel"):  
   
   
 
@@ -67,7 +67,7 @@ The Bare Bones Festival was named by PBS as one of the "top 20 documentary film 
   ![Mozart Wins Best Actress Award for the Film "Rose"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08ef6991970d.png)  
   
   
-[Mozart](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Mozart beautiful teen singer, actress, songwriter") is in quite esteemed company as Malcolm McDowell ( 2015), Eric Roberts ( 2013), Jane Seymore ( 2015) and other greats have all been nominated for Best Actor or Actress at the Bare Bones Festival. So this award with be an awesome addition to [Mozart Dee's  IMBD page](http://www.imdb.com/name/nm7413363/?ref_=tt_ov_st_sm "Mozart Dee IMBD") ( which we haven't started yet).   
+[Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Mozart beautiful teen singer, actress, songwriter") is in quite esteemed company as Malcolm McDowell ( 2015), Eric Roberts ( 2013), Jane Seymore ( 2015) and other greats have all been nominated for Best Actor or Actress at the Bare Bones Festival. So this award with be an awesome addition to [Mozart Dee's  IMBD page](http://www.imdb.com/name/nm7413363/?ref_=tt_ov_st_sm "Mozart Dee IMBD") ( which we haven't started yet).   
   
 ![Mozart Dee Wins Best Actress Award for the Film "Rose"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c84ba3fa970b.png)  
   
@@ -80,7 +80,7 @@ Here is a little video we made about making the film "Rose",  including the fas
   
   
   
-This film "Rose" had an extraordinary cast and crew so it was a wonderful first film experience for Mozart. It was written and directed by Israel Marquez who has done quite a few films that have garnered many awards. He has a very interesting creative background including performing on Johnny Carson as a young teen. [Mozart](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html "Mozart teen pop star") was so grateful to win this challenging role.   
+This film "Rose" had an extraordinary cast and crew so it was a wonderful first film experience for Mozart. It was written and directed by Israel Marquez who has done quite a few films that have garnered many awards. He has a very interesting creative background including performing on Johnny Carson as a young teen. [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html "Mozart teen pop star") was so grateful to win this challenging role.   
   
   
 ![On set of Rose. Mozart Dee Wins Best Actress Award for the Film "Rose"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c84ba426970b.png)  
@@ -88,7 +88,7 @@ This film "Rose" had an extraordinary cast and crew so it was a wonderful first 
   
 Actress Katie Walker played her mom ( who was in a wheel chair). There were tears shed by the crew and cast at moments as it is touching film and story.  
   
-They bonded  through this role but they both are also involved with healing the cause of Human Trafficking. Katie was in the film "8 Days' on this topic and Mozart just did a fundraiser with Hope Generation for this cause where she played [her song](http://soultravelers3new.local/2015/01/buy-mozarts-song-youre-not-alone-on-itunes-googleplay-or-amazon-.html "\"You're Not Alone\" by Mozart") "[You're Not Alone".](https://www.youtube.com/watch?v=pWyaDc-UXHU "\"You're Not Alone\" by Mozart ") 
+They bonded  through this role but they both are also involved with healing the cause of Human Trafficking. Katie was in the film "8 Days' on this topic and Mozart just did a fundraiser with Hope Generation for this cause where she played [her song](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/01/buy-mozarts-song-youre-not-alone-on-itunes-googleplay-or-amazon-.html "\"You're Not Alone\" by Mozart") "[You're Not Alone".](https://www.youtube.com/watch?v=pWyaDc-UXHU "\"You're Not Alone\" by Mozart ") 
 
   ![Mozart Dee and Katie Walker filming "Rose" . Mozart Wins Best Actress Award for the Film "Rose"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1d594e5970c.png)
 
@@ -134,8 +134,3 @@ What an exciting time this is and what a blessing that this first Best Actress A
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)

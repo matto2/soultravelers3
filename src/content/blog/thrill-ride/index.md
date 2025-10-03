@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2656](http://soultravelers3new.local/images/2008/04/26/img_2656.png "Img_2656")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2656.png) Thrill Ride!  
+ [![Img_2656](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2656.png "Img_2656")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2656.png) Thrill Ride!  
 October 13, 2006
 
 Going through impossibly ancient narrow  
@@ -15,7 +15,7 @@ steep inclines in rush hour traffic is a
 
 <!--more-->
 
-[![Img_2656_2](http://soultravelers3new.local/images/2008/04/26/img_2656_2.png "Img_2656_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2656_2.png)
+[![Img_2656_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/26/img_2656_2.png "Img_2656_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/26/img_2656_2.png)
 
 Going through impossibly ancient narrow streets, hairpin turns, and ridiculously steep inclines in rush hour traffic is a not what you want to see in an overloaded camper in a foreign land, but that is exactly what we got on our thrill ride. Just more insanity trying to get the blog up. I don’t have the pictures to show it as I was too busy experiencing it and praying to take any pictures, but this blog is set up so I have to use one picture.
 

@@ -31,7 +31,7 @@ beautiful song, "You're Not Alone"
 <!--more-->  
 ![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c71bff42970b.png)  
   
-Dallas Lovato and the world loves just-turned -[14-year-old Mozart](http://soultravelers3new.local/2014/10/mozart-sings-at-the-house-of-blues.html "beautiful teen singer Mozart performs at the House of Blues")'s [beautiful song, "You're Not Alone"](https://www.youtube.com/watch?v=AUd-6FmGFVU "beautiful song, \"You're Not Alone\" by Mozart") that she wrote to help the cause of Human Trafficking, but it appeals to everyone's heart, as we all need inspiration!  
+Dallas Lovato and the world loves just-turned -[14-year-old Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/10/mozart-sings-at-the-house-of-blues.html "beautiful teen singer Mozart performs at the House of Blues")'s [beautiful song, "You're Not Alone"](https://www.youtube.com/watch?v=AUd-6FmGFVU "beautiful song, \"You're Not Alone\" by Mozart") that she wrote to help the cause of Human Trafficking, but it appeals to everyone's heart, as we all need inspiration!  
   
 
 <iframe allowfullscreen src="//www.youtube.com/embed/AUd-6FmGFVU" frameborder="0" height="360" width="640"></iframe>
@@ -40,23 +40,23 @@ Dallas Lovato and the world loves just-turned -[14-year-old Mozart](http://soult
   
 **RECORDING**  
   
-[Mozart](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "Teen Mozart singer and most traveled child in the world") is in the studio this week doing a professional recording of this song with Scott Bryne! Oh my gosh! We are so proud of her.  
+[Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/the-most-well-traveled-child-in-the-whole-world.html "Teen Mozart singer and most traveled child in the world") is in the studio this week doing a professional recording of this song with Scott Bryne! Oh my gosh! We are so proud of her.  
   
-They're actually going to do two versions, one for Dallas Lovato and the movie producers that have interest and one for one of the top music managers in the business who has interest in her. [Mozart](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Mozart beautiful teen singer songwriter, musician") is so excited as it is truly a dream come true!  
+They're actually going to do two versions, one for Dallas Lovato and the movie producers that have interest and one for one of the top music managers in the business who has interest in her. [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "Mozart beautiful teen singer songwriter, musician") is so excited as it is truly a dream come true!  
   
 ![Mozart's Recording Her Beautiful Song "You're Not Alone"!!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0a5cd35970c.png)  
   
 **MOZART'S SONG ON ITUNES**  
   
-We'll let YOU decide which one ( or which one first) should go on itunes. This is a pretty thrilling moment for our [homeschooled](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html "Homeschool high school") [world traveling teen](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Mozart travel expert teen speaker & singer"), who has put us all on a very fast moving train this past year, as we changed our lives to accommodate her talent and passion for [singing, songwriting and music](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html "beautiful Mozart talented teen singer, songwriter, musician "). Our parenting style is always to follow and support her lead and passions, but some times that is intense!  
+We'll let YOU decide which one ( or which one first) should go on itunes. This is a pretty thrilling moment for our [homeschooled](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/homeschool-high-school-and-world-travel.html "Homeschool high school") [world traveling teen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Mozart travel expert teen speaker & singer"), who has put us all on a very fast moving train this past year, as we changed our lives to accommodate her talent and passion for [singing, songwriting and music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/tween-is-a-talented-singer-songwriter.html "beautiful Mozart talented teen singer, songwriter, musician "). Our parenting style is always to follow and support her lead and passions, but some times that is intense!  
   
-It hasn't even been a year because we just arrived here from [Asia](http://soultravelers3new.local/2014/05/asia-dream.html#more "Asia dream") in February last year. With all that is happening behind the scenes ( can't tell all yet), we're really glad that we have taken these risks, as now we see we're clearly on the right path.  
+It hasn't even been a year because we just arrived here from [Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/05/asia-dream.html#more "Asia dream") in February last year. With all that is happening behind the scenes ( can't tell all yet), we're really glad that we have taken these risks, as now we see we're clearly on the right path.  
   
 [![Mozart's Recording Her Beautiful Song "You're Not Alone"! ( Here on the radio)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07c0d8b7970d.png "Mozart's Recording Her Beautiful Song "You're Not Alone"! ( Here on the radio)")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07c0d8b7970d.png)  
   
 **"YOU'RE NOT ALONE" IS DOING SO WELL**  
   
-In just over a week this [song, "You're Not Alone"](http://soultravelers3new.local/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html#more "YOU'RE NOT ALONE, MOZART'S SONG ON THE RADIO") already has almost 11,000 views, 321 likes,  almost 300 mind-boggling, glowing comments and a teen she doesn't know, who lives across the country loved it so much, he made a cover of her song!!  
+In just over a week this [song, "You're Not Alone"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html#more "YOU'RE NOT ALONE, MOZART'S SONG ON THE RADIO") already has almost 11,000 views, 321 likes,  almost 300 mind-boggling, glowing comments and a teen she doesn't know, who lives across the country loved it so much, he made a cover of her song!!  
   
 We just put this song on Youtube with our little inexpensive camcorder, so can't imagine how beautiful the song will sound when professionally produced. It should be done around December 17th & we will share it with you and the world.  
   
@@ -200,10 +200,3 @@ Welcome home, you’re not alone
 
 Related articles
 
-[![](http://i.zemanta.com/313718698_80_80.jpg)](http://soultravelers3new.local/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html)[Mozart Sings "You're Not Alone" on the Radio & Possibly a Movie!](http://soultravelers3new.local/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html)
-
-[![](http://i.zemanta.com/309518053_80_80.jpg)](http://soultravelers3new.local/2014/11/giveaway-win-amazing-not-your-mothers-hair-products.html)[Giveaway: Win Amazing Not Your Mother's Hair Products!](http://soultravelers3new.local/2014/11/giveaway-win-amazing-not-your-mothers-hair-products.html)
-
-[![](http://i.zemanta.com/310505682_80_80.jpg)](http://soultravelers3new.local/2014/11/stunning-french-stone-house-photo.html)[Stunning French Stone House Photo](http://soultravelers3new.local/2014/11/stunning-french-stone-house-photo.html)
-
-[![](http://i.zemanta.com/312750466_80_80.jpg)](http://soultravelers3new.local/2014/11/gratitude-quotes-autumn-beauty-giving-thanks.html)[Gratitude Quotes, Autumn Beauty & Giving Thanks!](http://soultravelers3new.local/2014/11/gratitude-quotes-autumn-beauty-giving-thanks.html)

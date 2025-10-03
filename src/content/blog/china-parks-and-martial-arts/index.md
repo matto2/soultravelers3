@@ -26,9 +26,9 @@ health from the Chinese?
 
 <!--more--> ![Tai Chi in Beijing parks - Chinese exercise and health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee4fa2d34970d.jpg)  
   
-Can we learn about [travel fitness](http://soultravelers3new.local/2012/08/exercise-and-travel-how-to-stay-in-shape-while-traveling.html "travel fitness") and [travel health](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") from the Chinese?  
+Can we learn about [travel fitness](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/exercise-and-travel-how-to-stay-in-shape-while-traveling.html "travel fitness") and [travel health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") from the Chinese?  
   
-The parks in [Beijing](http://soultravelers3new.local/2012/11/forbidden-city-and-beijings-best.html "beijing") are filled with people exercising and playing amongst the autumn leaves on these cool, crisp sunny days, but there is plenty of open space, so it was never crowded. We enjoyed the time in nature as well as watching the Tai Chi and Qigong, especially when they were dressed in traditional clothing like this lady in the photo.  
+The parks in [Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/forbidden-city-and-beijings-best.html "beijing") are filled with people exercising and playing amongst the autumn leaves on these cool, crisp sunny days, but there is plenty of open space, so it was never crowded. We enjoyed the time in nature as well as watching the Tai Chi and Qigong, especially when they were dressed in traditional clothing like this lady in the photo.  
   
 Since my good friend [Winser is a Tai Chi master](http://www.chinatravel20.com/2012/05/21/winser-zhaothe-taiji-quan-master-in-beijing/ "winser Zhao tai chi master "), we will definitely learn some while here in China and will join in with the locals. I've been using a La-jin bench at the health based Chinese school that we've being hosted by and I am finding it quite amazing for self-healing.  
   

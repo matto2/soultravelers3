@@ -6,6 +6,6 @@ categories:
 draft: true
 ---
 
-[![IMG_0819](https://soultravelers3.typepad.com/.a/6a00e5502a95078833016302d3da73970d-200wi "IMG_0819")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016302d3da73970d-pi)Seeing the World Through a Child's Eyes
+[![IMG_0819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d3da73970d.jpg "IMG_0819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016302d3da73970d.jpg-pi)Seeing the World Through a Child's Eyes
 
-<!--more--> [![IMG_0819](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016763c8a911970b-500wi "IMG_0819")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016763c8a911970b-pi)
+<!--more--> [![IMG_0819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c8a911970b.jpg "IMG_0819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016763c8a911970b.jpg-pi)

@@ -34,7 +34,7 @@ sweet readers and the wonderful
 <!--more-->  
 ![Gratitude Quotes, Autumn Beauty & Giving Thanks!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c710fb08970b.png)  
   
-We have so much to be grateful for this year including you, our sweet readers and the wonderful things happening with [Mozart's singing](http://soultravelers3new.local/2014/10/mozart-sings-at-the-house-of-blues.html "Mozart singing"). It is fantastic to be [home for the holidays](http://soultravelers3new.local/2011/11/home-for-the-holidays.html "home for the holidays"), but equally delightful to find new ways to celebrate like our [first Thanksgiving in Asia](http://soultravelers3new.local/2010/11/first-thanksgiving-in-asia.html " thankgiving in asia"), or [first Thanksgiving in Spain](http://soultravelers3new.local/2006/11/happy-thanksgiv.html "first thanksgiving in spain")  or our luxurious [Thankgiving in China](http://soultravelers3new.local/2012/11/thanksgiving-in-china.html "thanksgiving in China"). This will be our first Thanksgiving in Dallas!  
+We have so much to be grateful for this year including you, our sweet readers and the wonderful things happening with [Mozart's singing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/10/mozart-sings-at-the-house-of-blues.html "Mozart singing"). It is fantastic to be [home for the holidays](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/11/home-for-the-holidays.html "home for the holidays"), but equally delightful to find new ways to celebrate like our [first Thanksgiving in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/11/first-thanksgiving-in-asia.html " thankgiving in asia"), or [first Thanksgiving in Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/11/happy-thanksgiv.html "first thanksgiving in spain")  or our luxurious [Thankgiving in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/thanksgiving-in-china.html "thanksgiving in China"). This will be our first Thanksgiving in Dallas!  
   
 ![Gratitude Quotes, Autumn Beauty & Giving Thanks!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07b626c8970d.png)  
   
@@ -79,12 +79,3 @@ Happiness is itself a kind of gratitude." ~Krutch
 
 Related articles
 
-[![](http://i.zemanta.com/310505682_80_80.jpg)](http://soultravelers3new.local/2014/11/stunning-french-stone-house-photo.html)[Stunning French Stone House Photo](http://soultravelers3new.local/2014/11/stunning-french-stone-house-photo.html)
-
-[![](http://i.zemanta.com/311041197_80_80.jpg)](http://soultravelers3new.local/2014/11/camping-europe-in-style.html)[Camping Europe in Style](http://soultravelers3new.local/2014/11/camping-europe-in-style.html)
-
-[![](http://i.zemanta.com/307742929_80_80.jpg)](http://soultravelers3new.local/2014/11/-yummy-paleo-chocolate-chip-cookie-bars-recipe.html)[Yummy Paleo Chocolate Chip Cookie Bars Recipe](http://soultravelers3new.local/2014/11/-yummy-paleo-chocolate-chip-cookie-bars-recipe.html)
-
-[![](http://i.zemanta.com/309518053_80_80.jpg)](http://soultravelers3new.local/2014/11/giveaway-win-amazing-not-your-mothers-hair-products.html)[Giveaway: Win Amazing Not Your Mother's Hair Products!](http://soultravelers3new.local/2014/11/giveaway-win-amazing-not-your-mothers-hair-products.html)
-
-[![](http://i.zemanta.com/306649652_80_80.jpg)](http://soultravelers3new.local/2014/10/halloween-travel-around-the-world.html)[Halloween Travel Around the World!](http://soultravelers3new.local/2014/10/halloween-travel-around-the-world.html)

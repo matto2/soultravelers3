@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_1452](http://soultravelers3new.local/images/2008/04/29/img_1452.png "Img_1452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1452.png) A Day of Rest & Relaxation  
+ [![Img_1452](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1452.png "Img_1452")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1452.png) A Day of Rest & Relaxation  
 September 25, 2006
 
 Some days, you just need to rest and take  
@@ -15,7 +15,7 @@ a family. We had a great day on her birthday,
 
 <!--more-->
 
-[![Img_1452_2](http://soultravelers3new.local/images/2008/04/29/img_1452_2.png "Img_1452_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1452_2.png)
+[![Img_1452_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1452_2.png "Img_1452_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1452_2.png)
 
 Some days, you just need to rest and take it easy, especially when you are traveling as a family. We had a great day on her birthday, but we got in late so it was nice to just sleep in (to 11:30 yet!) and have a lazy day and catch up a bit. It was a sunny (but windy) day, yet we just did not have it in us to do much and hardly left the camper.  
   
@@ -34,22 +34,22 @@ home. I know rain is not an excuse, but we have been quite spoiled on this trip 
   
 Yawn, naaa, one more day of down time, we can read about Paris some more and maybe the weather will be good the next day. Most museums are closed anyway, so there is another excuse. Good on the budget too.:) But mainly we were just too lazy and it felt too good in bed to rush out into the rain. Sometimes families just need to cuddle, read, play, make music together and be silly and lazy at home....even if you are in Paris. (I added two birthday night shots here as we don’t take many pics on rest days.)
 
-[![Img_1438](http://soultravelers3new.local/images/2008/04/29/img_1438.png "Img_1438")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1438.png)
+[![Img_1438](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1438.png "Img_1438")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1438.png)
 
-[![Img_1448](http://soultravelers3new.local/images/2008/04/29/img_1448.png "Img_1448")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1448.png)
+[![Img_1448](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1448.png "Img_1448")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1448.png)
 
-[![Img_1439](http://soultravelers3new.local/images/2008/04/29/img_1439.png "Img_1439")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1439.png)
+[![Img_1439](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1439.png "Img_1439")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1439.png)
 
-[![Img_1454](http://soultravelers3new.local/images/2008/04/29/img_1454.png "Img_1454")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1454.png)
+[![Img_1454](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1454.png "Img_1454")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1454.png)
 
-[![Img_1456](http://soultravelers3new.local/images/2008/04/29/img_1456.png "Img_1456")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1456.png)
+[![Img_1456](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1456.png "Img_1456")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1456.png)
 
-[![Img_1457](http://soultravelers3new.local/images/2008/04/29/img_1457.png "Img_1457")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1457.png)
+[![Img_1457](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1457.png "Img_1457")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1457.png)
 
-[![Img_1696](http://soultravelers3new.local/images/2008/04/29/img_1696.png "Img_1696")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1696.png)
+[![Img_1696](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1696.png "Img_1696")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1696.png)
 
-[![Img_1432](http://soultravelers3new.local/images/2008/04/29/img_1432.png "Img_1432")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1432.png)
+[![Img_1432](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1432.png "Img_1432")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1432.png)
 
-[![Img_1458](http://soultravelers3new.local/images/2008/04/29/img_1458.png "Img_1458")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1458.png)
+[![Img_1458](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1458.png "Img_1458")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1458.png)
 
-[![Img_1387](http://soultravelers3new.local/images/2008/04/29/img_1387.png "Img_1387")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1387.png)
+[![Img_1387](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1387.png "Img_1387")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1387.png)

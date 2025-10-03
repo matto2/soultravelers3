@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_5306](http://soultravelers3new.local/images/2008/05/30/img_5306.png "Img_5306")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/30/img_5306.png) Dentists & Travel  
+ [![Img_5306](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/30/img_5306.png "Img_5306")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/30/img_5306.png) Dentists & Travel  
 May 30,  2008
 
 Many people think a medical or dental problem  
@@ -17,7 +17,7 @@ to be that way. No one wants these things to happen
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/30/img_5306_2.png)
 
-[![Img_5306_3](http://soultravelers3new.local/images/2008/05/30/img_5306_3.png "Img_5306_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/30/img_5306_3.png)
+[![Img_5306_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/30/img_5306_3.png "Img_5306_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/30/img_5306_3.png)
 
 Many people think a medical or dental problem abroad would be a nightmare, but it does not have to be that way. No one wants these things to happen when in a foreign land, but when one is doing extended travel the risks are higher for something to come up, so sometimes it has to be faced.
 

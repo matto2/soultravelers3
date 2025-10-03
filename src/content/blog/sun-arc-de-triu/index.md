@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_1658](http://soultravelers3new.local/images/2008/04/29/img_1658.png "Img_1658")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1658.png) Sun & Arc de Triumph  
+ [![Img_1658](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1658.png "Img_1658")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1658.png) Sun & Arc de Triumph  
 September 27, 2006
 
 It was a glorious sunny day in Paris and  
@@ -15,7 +15,7 @@ maybe the weather was starting to turn.
 
 <!--more-->
 
-[![Img_1658_2](http://soultravelers3new.local/images/2008/04/29/img_1658_2.png "Img_1658_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1658_2.png)
+[![Img_1658_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1658_2.png "Img_1658_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1658_2.png)
 
 It was a glorious sunny day in Paris and that made us so happy as we were afraid maybe the weather was starting to turn. I remember so many dark, dreary ,rainy, cold days when I lived in Europe and know this time of year can be tricky. So we are very grateful we have lucked out with more sunshine. When it is like this it is hard to leave Paris.  
   
@@ -47,28 +47,28 @@ Thanks to the person on bootsnall who recommended this great wash cloth. It is p
   
 After we finished the shower Mozart played some piano (which I always enjoy listening too) and we all read some and headed to bed early. I forgot to mention the taxi ride home which cost almost as much from our close metro stop in rush hour traffic as it did from the Eiffel Tower the first night. We still did not find the way out of the metro correctly, so succumbed to a taxi (which Mozart loves) which found us before we found the bus.
 
-[![Img_1638](http://soultravelers3new.local/images/2008/04/29/img_1638.png "Img_1638")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1638.png)
+[![Img_1638](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1638.png "Img_1638")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1638.png)
 
-[![Img_1639](http://soultravelers3new.local/images/2008/04/29/img_1639.png "Img_1639")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1639.png)
+[![Img_1639](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1639.png "Img_1639")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1639.png)
 
-[![Img_1646](http://soultravelers3new.local/images/2008/04/29/img_1646.png "Img_1646")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1646.png)
+[![Img_1646](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1646.png "Img_1646")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1646.png)
 
-[![Img_1627](http://soultravelers3new.local/images/2008/04/29/img_1627.png "Img_1627")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1627.png)
+[![Img_1627](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1627.png "Img_1627")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1627.png)
 
-[![Img_1677](http://soultravelers3new.local/images/2008/04/29/img_1677.png "Img_1677")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1677.png)
+[![Img_1677](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1677.png "Img_1677")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1677.png)
 
   
 
-[![Img_1687](http://soultravelers3new.local/images/2008/04/29/img_1687.png "Img_1687")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1687.png)
+[![Img_1687](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1687.png "Img_1687")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1687.png)
 
-[![Img_1694](http://soultravelers3new.local/images/2008/04/29/img_1694.png "Img_1694")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1694.png)
+[![Img_1694](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1694.png "Img_1694")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1694.png)
 
-[![Img_1680](http://soultravelers3new.local/images/2008/04/29/img_1680.png "Img_1680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1680.png)
+[![Img_1680](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1680.png "Img_1680")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1680.png)
 
-[![Img_1684](http://soultravelers3new.local/images/2008/04/29/img_1684.png "Img_1684")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1684.png)
+[![Img_1684](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1684.png "Img_1684")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1684.png)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1689.jpg)
 
-[![Img_1689_2](http://soultravelers3new.local/images/2008/04/29/img_1689_2.jpg "Img_1689_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1689_2.jpg)
+[![Img_1689_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1689_2.jpg "Img_1689_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1689_2.jpg)
 
-[![Img_1682](http://soultravelers3new.local/images/2008/04/29/img_1682.jpg "Img_1682")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1682.jpg)
+[![Img_1682](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1682.jpg "Img_1682")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1682.jpg)

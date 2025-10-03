@@ -35,7 +35,7 @@ the youngest presenter at the 4th
 <!--more-->  
 [![Trilingual Mozart, Travel Kid Expert, Speaks at GEC about World Education ( at Petra)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae069f7970b.png "Trilingual Mozart, Travel Kid Expert, Speaks at GEC about World Education ( at Petra)")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fae069f7970b-150x150-1.png)  
   
-Don't miss this [most well-traveled kid](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well-traveled kid"), 13 year old Mozart's speech as the youngest presenter at the 4th annual [Global Education Conference](http://www.globaleducationconference.com/ "Global Education Conference"), for educators and innovators from [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world family travel") with over 13,000 participants. As a [linguist, entrepreneur](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "linguist teacher"), student, teacher, musician, [songwriter, singer](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html "singer songwriter teen") and world traveler for 8 plus years, she has a unique perspective on [world education](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world education") and being a [global citizen](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html "global citizen").  
+Don't miss this [most well-traveled kid](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well-traveled kid"), 13 year old Mozart's speech as the youngest presenter at the 4th annual [Global Education Conference](http://www.globaleducationconference.com/ "Global Education Conference"), for educators and innovators from [around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/around-the-world-family-travel/ "around the world family travel") with over 13,000 participants. As a [linguist, entrepreneur](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "linguist teacher"), student, teacher, musician, [songwriter, singer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/tween-is-a-talented-singer-songwriter.html "singer songwriter teen") and world traveler for 8 plus years, she has a unique perspective on [world education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "world education") and being a [global citizen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/05/global-citizens-spanish-and-mandarin-immersion.html "global citizen").  
   
 Thanks to all who joined us on the "live" world wide conference on November 21st and here is a Youtube video of her [inspiring speech](http://www.youtube.com/watch?v=fmxDXuFyY94 "inspiring speech by global kid") ( a longer version with intro and Q&A can be found on the GEC site called,"13 year old Trilingual Pioneer in Global Education - World as Classroom- LITERALLY"):  
   
@@ -46,7 +46,7 @@ Thanks to all who joined us on the "live" world wide conference on November 21st
   
 **MOZART DEE'S SPEECH AT GEC TRANSCRIPT** ( PART 2)  
   
-( Continued from [Kid World Citizen Global Education Speech](http://soultravelers3new.local/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html#more "global education speech by trilingual 13 year old Mozart Dee") part one )  
+( Continued from [Kid World Citizen Global Education Speech](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html#more "global education speech by trilingual 13 year old Mozart Dee") part one )  
   
 As John Gatto says, "You either learn your way towards writing your own script in life, or you unwittingly become an actor in someone else's script."  
   
@@ -285,22 +285,3 @@ World travel is the best answer for a global education and using this planet as 
 
 Related articles
 
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/198782571_80_80.jpg)](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html)[Why Travel With Kids? Kid Traveling the World for 8 Years Tells!](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html)
-
-[![](http://i.zemanta.com/187506935_80_80.jpg)](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)[Bilingual Baby - Learning Spanish as 2nd Language](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)
-
-[![](http://i.zemanta.com/175476274_80_80.jpg)](http://soultravelers3new.local/2013/06/fluent-mandarin.html)[Fluent Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html)
-
-[![](http://i.zemanta.com/200358711_80_80.jpg)](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html)[Best Classes or Tutor for Spanish, English or Mandarin in Penang](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html)
-
-[![](http://i.zemanta.com/222432159_80_80.jpg)](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html)[Global Citizen, Innovative Kid - Speaker at Global Education Conference!](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/191008312_80_80.jpg)](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html)[Healing Journey and Blessings](http://soultravelers3new.local/2013/07/healing-journey-and-blessings.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)

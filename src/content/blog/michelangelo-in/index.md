@@ -6,7 +6,7 @@ categories:
   - "blog"
 ---
 
- [![Img_0821](http://soultravelers3new.local/images/2008/04/30/img_0821.png "Img_0821")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0821.png) Michelangelo in Brugge  
+ [![Img_0821](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0821.png "Img_0821")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0821.png) Michelangelo in Brugge  
 September 17, 2006
 
 We did not want to miss seeing a rare  
@@ -15,7 +15,7 @@ works of his that left Italy in his lifetime.
 
 <!--more-->
 
-[![Img_0821_2](http://soultravelers3new.local/images/2008/04/30/img_0821_2.png "Img_0821_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0821_2.png)
+[![Img_0821_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0821_2.png "Img_0821_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0821_2.png)
 
 We did not want to miss seeing a rare Michaelangelo sculpture, one of  the only works of his that left  
 Italy in his lifetime. "The Madonna and Child" (1504-5) is made out of Carrara marble and was originally intended for a Cathedral of Sienna. But then the wealthy Mouscron family of Brugge bought it and gave it to Our Lady’s Church.  
@@ -48,16 +48,16 @@ Te Doy Mi Paz.
 Te dou a minha Paz.  
 Je te donne ma Paix.  
 
-[![Img_0819](http://soultravelers3new.local/images/2008/04/30/img_0819.png "Img_0819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0819.png)
+[![Img_0819](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0819.png "Img_0819")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0819.png)
 
-[![Img_0822filtered](http://soultravelers3new.local/images/2008/04/30/img_0822filtered.png "Img_0822filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0822filtered.png)
+[![Img_0822filtered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0822filtered.png "Img_0822filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0822filtered.png)
 
-[![Img_0831filtered](http://soultravelers3new.local/images/2008/04/30/img_0831filtered.png "Img_0831filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0831filtered.png)
+[![Img_0831filtered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0831filtered.png "Img_0831filtered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0831filtered.png)
 
-[![Img_0828filteredfiltered](http://soultravelers3new.local/images/2008/04/30/img_0828filteredfiltered.png "Img_0828filteredfiltered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0828filteredfiltered.png)
+[![Img_0828filteredfiltered](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0828filteredfiltered.png "Img_0828filteredfiltered")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0828filteredfiltered.png)
 
-[![Img_0818](http://soultravelers3new.local/images/2008/04/30/img_0818.png "Img_0818")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0818.png)
+[![Img_0818](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0818.png "Img_0818")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0818.png)
 
-[![Img_0827](http://soultravelers3new.local/images/2008/04/30/img_0827.png "Img_0827")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0827.png)
+[![Img_0827](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0827.png "Img_0827")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0827.png)
 
-[![Img_0829](http://soultravelers3new.local/images/2008/04/30/img_0829.png "Img_0829")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0829.png)
+[![Img_0829](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/30/img_0829.png "Img_0829")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/30/img_0829.png)

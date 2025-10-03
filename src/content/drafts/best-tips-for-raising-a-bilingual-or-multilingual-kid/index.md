@@ -28,7 +28,7 @@ We are monolingual parents so I understand the challenge of getting the minority
   
 I would look for every possible opportunity to find other Spanish speaking opportunities for your child, I wrote a series about how to raise a multilingual child and included some of the things that worked for us:  
   
-[http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html)  
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child-2.html)  
   
 I would also consider taking some immersion vacations where Spanish is the dominant language. When a child understands the value of the 2nd language it helps greatly.  
   
@@ -42,14 +42,3 @@ Even though I don't speak Spanish, I spent most of my babies early years in Span
 
 Related articles
 
-[![](http://i.zemanta.com/187506935_80_80.jpg)](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)[Bilingual Baby - Learning Spanish as 2nd Language](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)
-
-[![](http://i.zemanta.com/94084671_80_80.jpg)](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)[Why Learn Mandarin in Tropical Asia - Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)
-
-[![](http://i.zemanta.com/158297724_80_80.jpg)](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html)[Growing Up Bilingual or Trilingual](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html)
-
-[![](http://i.zemanta.com/168450990_80_80.jpg)](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)[Learning Spanish in Spain](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/87228096_80_80.jpg)](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)[Global Citizens = Spanish and Mandarin Immersion](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)

@@ -37,6 +37,3 @@ I grew up moving a lot and think it was one of the best parts of my childhood an
 
 Related articles
 
-[![](http://i.zemanta.com/97268419_80_80.jpg)](http://soultravelers3new.local/2012/06/nomadic-lifestyle-with-children-.html)[Nomadic Lifestyle With Children](http://soultravelers3new.local/2012/06/nomadic-lifestyle-with-children-.html)
-
-[![](http://i.zemanta.com/187506935_80_80.jpg)](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)[Bilingual Baby - Learning Spanish as 2nd Language](http://soultravelers3new.local/2013/07/bilingual-baby-learning-spanish-as-2nd-language.html)

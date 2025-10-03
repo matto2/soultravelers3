@@ -28,8 +28,8 @@ the bridge to explore it.
  
 
 This is the first view of [Arles](http://en.wikipedia.org/wiki/Arles) that we saw as we crossed the bridge to explore it.  
-We found it to be a very charming town in the [south of France](http://soultravelers3new.local/2010/08/stunning-horses-in-the-camargue-france-family-travel-ideal-vacation-holiday-saintes-maries-de-la-mer.html#tp) and loved  
+We found it to be a very charming town in the [south of France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/08/stunning-horses-in-the-camargue-france-family-travel-ideal-vacation-holiday-saintes-maries-de-la-mer.html#tp) and loved  
 the [Roman ruins and arena](http://en.wikipedia.org/wiki/Arles,_Roman_and_Romanesque_Monuments) which are UNESCO world heritage sites.  
 We'll be posting more photos and stories about our family travel in lovely Arles,  
-France and more of our third trip [exploring Provence](http://en.wikipedia.org/wiki/Arles,_Roman_and_Romanesque_Monuments) on our [family world trip.](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html#tp)  
+France and more of our third trip [exploring Provence](http://en.wikipedia.org/wiki/Arles,_Roman_and_Romanesque_Monuments) on our [family world trip.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html#tp)  
 A quick peek while we roam!

@@ -6,7 +6,7 @@ categories:
   - "blog"
 ---
 
- [![Img_0348](http://soultravelers3new.local/images/2008/05/07/img_0348.png "Img_0348")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0348.png) Countdown  
+ [![Img_0348](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0348.png "Img_0348")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0348.png) Countdown  
 August 24, 2006
 
 The last few days before take off were  
@@ -15,7 +15,7 @@ sense of reference points as everything
 
 <!--more-->
 
-[![Img_0348_2](http://soultravelers3new.local/images/2008/05/07/img_0348_2.png "Img_0348_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0348_2.png)
+[![Img_0348_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0348_2.png "Img_0348_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0348_2.png)
 
 The last few days before take off were quite surreal and very intense. We lost all sense of reference  
 points as everything in our old reality disappeared before our eyes. Everything is sold, thrown away, given away, packed for the trip or moved into a 10x10 storage space near relatives several hours away. On one level it is very freeing, but its also a little scary at times and totally confusing and disorienting at moments. Too many times we go to grab something simple that we need like a pen or piece of paper to write something on and it’s already packed or given away. The non liquid restrictions on carryon these days just add to it because one can not pack in a normal way. I have triple bagged every liquid in ziplock bags, so now much is lost in duffles where much had to be done at the last moment.... never to be seen again until we unpack in the RV.
@@ -48,6 +48,6 @@ It will definitely be a challenge in the RV, but hopefully worth the effort for 
 
 Another challenge in those last few days was deciding to put almost everything we had in photo albums and important papers that were stored onto discs to take with us or store on the internet. Sure, it is something that should have been done a long time ago, but it just never got done because we were just too busy taking care of other things. So that was an intense process of taking things out of storage and scanning everything before putting them back into storage and taking things like VHS tapes to a video place to put on CD. Not a fun process with such a short time to do it in, but well worth the great effort and comforting to know they are with us.
 
-[![Img_0085](http://soultravelers3new.local/images/2008/05/07/img_0085.png "Img_0085")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0085.png)
+[![Img_0085](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0085.png "Img_0085")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0085.png)
 
-[![Img_0344](http://soultravelers3new.local/images/2008/05/07/img_0344.png "Img_0344")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0344.png)
+[![Img_0344](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/07/img_0344.png "Img_0344")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/07/img_0344.png)

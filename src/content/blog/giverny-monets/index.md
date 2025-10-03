@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2137](http://soultravelers3new.local/images/2008/04/28/img_2137.png "Img_2137")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2137.png) Giverny-Monet's Garden  
+ [![Img_2137](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2137.png "Img_2137")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2137.png) Giverny-Monet's Garden  
 October 1, 2006
 
 It was a sun-drenched, balmy, ideal  
@@ -15,7 +15,7 @@ gardens and Mozart could hardly wait.
 
 <!--more-->
 
-[![Img_2137_2](http://soultravelers3new.local/images/2008/04/28/img_2137_2.png "Img_2137_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2137_2.png)
+[![Img_2137_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2137_2.png "Img_2137_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2137_2.png)
 
 It was a sun-drenched, balmy, ideal day to visit Monet’s fabulous home and gardens and Mozart could hardly wait. We have been planning, talking and reading about this for ages and studying the pictures we took last time. These gardens and this home were a definite influence in the gardens and home we created (that we wrote about in our first post in the archives) as we were very touched by our first visit. The abundance of beauty is breath taking and pictures just can not do it justice. The theme of living life as art which is so profound here in Monet’s creation, resonates with us.
 
@@ -50,21 +50,21 @@ We had a little adventure on the way home as our Taxi driver did not pick us up 
 of time. Mozart has been wanting to take a double decker train on the top deck and the first class section  
 of just that rolled right in front of us and we practically had the whole car to ourselves. She met a little French girl named Marie and they played all the way back to Paris.
 
-[![Img_2076_1](http://soultravelers3new.local/images/2008/04/28/img_2076_1.png "Img_2076_1")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2076_1.png)
+[![Img_2076_1](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2076_1.png "Img_2076_1")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2076_1.png)
 
-[![Img_2081](http://soultravelers3new.local/images/2008/04/28/img_2081.png "Img_2081")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2081.png)
+[![Img_2081](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2081.png "Img_2081")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2081.png)
 
-[![Img_2089](http://soultravelers3new.local/images/2008/04/28/img_2089.png "Img_2089")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2089.png)
+[![Img_2089](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2089.png "Img_2089")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2089.png)
 
-[![Img_2111](http://soultravelers3new.local/images/2008/04/28/img_2111.png "Img_2111")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2111.png)
+[![Img_2111](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2111.png "Img_2111")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2111.png)
 
-[![Img_2130](http://soultravelers3new.local/images/2008/04/28/img_2130.png "Img_2130")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2130.png)
+[![Img_2130](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2130.png "Img_2130")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2130.png)
 
-[![Img_2135](http://soultravelers3new.local/images/2008/04/28/img_2135.png "Img_2135")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2135.png)
+[![Img_2135](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2135.png "Img_2135")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2135.png)
 
-[![Img_2156](http://soultravelers3new.local/images/2008/04/28/img_2156.png "Img_2156")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2156.png)
+[![Img_2156](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2156.png "Img_2156")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2156.png)
 
-[![Img_2063](http://soultravelers3new.local/images/2008/04/28/img_2063.png "Img_2063")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2063.png)
+[![Img_2063](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2063.png "Img_2063")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2063.png)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2155_1.jpg)
 
@@ -72,8 +72,8 @@ of just that rolled right in front of us and we practically had the whole car to
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2155_2.jpg)
 
-[![Img_2155_3](http://soultravelers3new.local/images/2008/04/28/img_2155_3.jpg "Img_2155_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2155_3.jpg)
+[![Img_2155_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2155_3.jpg "Img_2155_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2155_3.jpg)
 
   
 
-[![Img_2162](http://soultravelers3new.local/images/2008/04/28/img_2162.png "Img_2162")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2162.png)
+[![Img_2162](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2162.png "Img_2162")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2162.png)

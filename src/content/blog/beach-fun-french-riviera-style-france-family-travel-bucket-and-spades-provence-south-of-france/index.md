@@ -24,7 +24,7 @@ beach days and the idyllic summer
 
   ![Beach Fun, French Riviera Style kids family travel holiday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134866eaa9e970c.jpg)  
 
-[Family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) in the [south of France](http://soultravelers3new.local/2010/07/colliore-france-on-bastille-day-family-travel-pyrennees-catalonia-beautiful-village-on-the-med-sea.html) means not missing the fun of  perfect beach days and the idyllic summer memories that they create. We're not into slathering with oil, just laying around and tanning, so  prefer uncrowded beaches and our 9 year old Mozart had so much fun at this private beach that was part of our campsite near [Colliore](http://soultravelers3new.local/2010/07/colliore-france-on-bastille-day-family-travel-pyrennees-catalonia-beautiful-village-on-the-med-sea.html) called [Les Criques de Porteils](http://www.lescriques.com/).
+[Family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) in the [south of France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/colliore-france-on-bastille-day-family-travel-pyrennees-catalonia-beautiful-village-on-the-med-sea.html) means not missing the fun of  perfect beach days and the idyllic summer memories that they create. We're not into slathering with oil, just laying around and tanning, so  prefer uncrowded beaches and our 9 year old Mozart had so much fun at this private beach that was part of our campsite near [Colliore](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/colliore-france-on-bastille-day-family-travel-pyrennees-catalonia-beautiful-village-on-the-med-sea.html) called [Les Criques de Porteils](http://www.lescriques.com/).
 
 ![IMG_5145](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348690b1b9970c.jpg) 
 
@@ -48,7 +48,7 @@ She easily caught over one hundred crabs one day and glowed with excitement as s
 
 ![family travel France kids at beach with buckets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301348690b977970c.jpg)  
   
-Sometimes we add time to our family travel just for these little moments. Days of important play. We shift our [homeschooling to enhance the learning.](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html) Lets find out what kind of crabs, shells, rocks that they are. 
+Sometimes we add time to our family travel just for these little moments. Days of important play. We shift our [homeschooling to enhance the learning.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html) Lets find out what kind of crabs, shells, rocks that they are. 
 
 ![IMG_5203](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f36ca694970b.jpg)
 
@@ -56,4 +56,4 @@ Sometimes we add time to our family travel just for these little moments. Days o
 
 ![IMG_5093](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133f36ca868970b.jpg)  
   
-She already had the blow up pink tube, googles and snorkel, but we succumbed to adding the pink water shoes which are de rigueur for this kind of beach terrain. [Beach days](http://soultravelers3new.local/2008/07/workyoutube-pla.html#more) are part of the joy of [family travel](http://soultravelers3new.local/2010/08/camping-europe-with-kids-free-kids-clubs-family-friendly-international-travel-tips.html#more) and not to be missed on the [French Riviera.](http://soultravelers3new.local/2010/08/around-the-world-with-kids-extended-travel-long-term-travel-families-and-friends.html#more) What sublime simple pleasures are you enjoying this summer?
+She already had the blow up pink tube, googles and snorkel, but we succumbed to adding the pink water shoes which are de rigueur for this kind of beach terrain. [Beach days](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/workyoutube-pla.html#more) are part of the joy of [family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/08/camping-europe-with-kids-free-kids-clubs-family-friendly-international-travel-tips.html#more) and not to be missed on the [French Riviera.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/08/around-the-world-with-kids-extended-travel-long-term-travel-families-and-friends.html#more) What sublime simple pleasures are you enjoying this summer?

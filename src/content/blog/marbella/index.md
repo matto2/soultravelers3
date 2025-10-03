@@ -6,14 +6,14 @@ categories:
   - "spain"
 ---
 
- [![Img_7817](http://soultravelers3new.local/images/2008/04/17/img_7817.png "Img_7817")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7817.png) Marbella  
+ [![Img_7817](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7817.png "Img_7817")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7817.png) Marbella  
 February 22, 2007
 
 The first night of our “Three Generations in Spain Tour”, we spent in Marbella at the Marriott Marbella Beach Resort.
 
 <!--more-->
 
-[![Img_7817_2](http://soultravelers3new.local/images/2008/04/17/img_7817_2.png "Img_7817_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7817_2.png)
+[![Img_7817_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7817_2.png "Img_7817_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7817_2.png)
 
 The first night of our “Three Generations in Spain Tour”, we spent in Marbella at the Marriott Marbella Beach Resort. It is a lovely resort right on the beach and a great place for an Andalusia base for us as it  
 had three bedroom suites each with their own TV and large bathroom with a communal kitchen and large living space and triple terraces. Nice comfortable American style luxury including a washer and dryer and dishwasher. Thanks to “Auntie BJ” for sharing this with us this first week (and Uncle Steve who had to  
@@ -33,22 +33,22 @@ DaVinci is the big breakfast making king in our household, so I enjoyed watching
 
 Mozart is having the time of her life and thoroughly basking in all the extra spoiling. How blessed we all are to have this special family time together in Spain!
 
-[![Img_7799](http://soultravelers3new.local/images/2008/04/17/img_7799.png "Img_7799")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7799.png)
+[![Img_7799](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7799.png "Img_7799")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7799.png)
 
-[![Img_7814](http://soultravelers3new.local/images/2008/04/17/img_7814.png "Img_7814")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7814.png)
+[![Img_7814](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7814.png "Img_7814")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7814.png)
 
-[![Img_7825](http://soultravelers3new.local/images/2008/04/17/img_7825.png "Img_7825")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7825.png)
+[![Img_7825](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7825.png "Img_7825")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7825.png)
 
-[![Img_7838](http://soultravelers3new.local/images/2008/04/17/img_7838.png "Img_7838")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7838.png)
+[![Img_7838](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7838.png "Img_7838")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7838.png)
 
-[![Img_7840](http://soultravelers3new.local/images/2008/04/17/img_7840.png "Img_7840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7840.png)
+[![Img_7840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7840.png "Img_7840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7840.png)
 
-[![Img_7845](http://soultravelers3new.local/images/2008/04/17/img_7845.png "Img_7845")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7845.png)
+[![Img_7845](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7845.png "Img_7845")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7845.png)
 
-[![Img_7846](http://soultravelers3new.local/images/2008/04/17/img_7846.png "Img_7846")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7846.png)
+[![Img_7846](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7846.png "Img_7846")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7846.png)
 
-[![Img_7858](http://soultravelers3new.local/images/2008/04/17/img_7858.png "Img_7858")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7858.png)
+[![Img_7858](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7858.png "Img_7858")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7858.png)
 
-[![Img_7876](http://soultravelers3new.local/images/2008/04/17/img_7876.png "Img_7876")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7876.png)
+[![Img_7876](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7876.png "Img_7876")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7876.png)
 
-[![Img_7865](http://soultravelers3new.local/images/2008/04/17/img_7865.png "Img_7865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7865.png)
+[![Img_7865](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/17/img_7865.png "Img_7865")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/17/img_7865.png)

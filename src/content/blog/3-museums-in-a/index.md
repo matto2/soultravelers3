@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_1906](http://soultravelers3new.local/images/2008/04/28/img_1906.png "Img_1906")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1906.png) 3 Museums in a Day  
+ [![Img_1906](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1906.png "Img_1906")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1906.png) 3 Museums in a Day  
 September 29, 2006
 
 We resolved to hit three museums in a day,  
@@ -15,7 +15,7 @@ for the Monets & Impressionists,
 
 <!--more-->
 
-[![Img_1906_2](http://soultravelers3new.local/images/2008/04/28/img_1906_2.png "Img_1906_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1906_2.png)
+[![Img_1906_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1906_2.png "Img_1906_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1906_2.png)
 
 We resolved to hit three museums in a day, starting with  the lesser known Marmottan for the Monets  
 & Impressionists, basking leisurely at the Orangerie in the Tuileries  Gardens absorbing the Monet masterpieces encircling the rooms and finishing with the pilgrimage to see Mona Lisa & Michaelangelo  
@@ -57,33 +57,33 @@ Even a little Japanese girl who later joined her, asked her what she was doing. 
 
 Later, I asked her what she wrote in her book as I really could not imagine what
 
-[![Img_1932](http://soultravelers3new.local/images/2008/04/28/img_1932.png "Img_1932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1932.png)
+[![Img_1932](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1932.png "Img_1932")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1932.png)
 
-[![Img_1935](http://soultravelers3new.local/images/2008/04/28/img_1935.png "Img_1935")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1935.png)
+[![Img_1935](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1935.png "Img_1935")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1935.png)
 
-[![Img_1860](http://soultravelers3new.local/images/2008/04/28/img_1860.png "Img_1860")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1860.png)
+[![Img_1860](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1860.png "Img_1860")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1860.png)
 
-[![Img_1886](http://soultravelers3new.local/images/2008/04/28/img_1886.png "Img_1886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1886.png)
+[![Img_1886](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1886.png "Img_1886")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1886.png)
 
-[![Img_1883](http://soultravelers3new.local/images/2008/04/28/img_1883.png "Img_1883")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1883.png)
+[![Img_1883](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1883.png "Img_1883")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1883.png)
 
-[![Img_1896](http://soultravelers3new.local/images/2008/04/28/img_1896.png "Img_1896")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1896.png)
+[![Img_1896](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1896.png "Img_1896")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1896.png)
 
-[![Img_1875](http://soultravelers3new.local/images/2008/04/28/img_1875.png "Img_1875")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1875.png)
+[![Img_1875](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1875.png "Img_1875")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1875.png)
 
-[![Img_1904](http://soultravelers3new.local/images/2008/04/28/img_1904.png "Img_1904")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1904.png)
+[![Img_1904](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1904.png "Img_1904")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1904.png)
 
-[![Img_1925](http://soultravelers3new.local/images/2008/04/28/img_1925.jpg "Img_1925")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1925.jpg)
+[![Img_1925](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1925.jpg "Img_1925")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1925.jpg)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1913_2.jpg)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1913_3.jpg)
 
-[![Img_1913_4](http://soultravelers3new.local/images/2008/04/28/img_1913_4.jpg "Img_1913_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1913_4.jpg)
+[![Img_1913_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1913_4.jpg "Img_1913_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1913_4.jpg)
 
-[![Img_1939](http://soultravelers3new.local/images/2008/04/28/img_1939.jpg "Img_1939")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1939.jpg)
+[![Img_1939](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1939.jpg "Img_1939")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1939.jpg)
 
-[![Img_1942](http://soultravelers3new.local/images/2008/04/28/img_1942.jpg "Img_1942")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1942.jpg)
+[![Img_1942](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1942.jpg "Img_1942")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1942.jpg)
 
   
 

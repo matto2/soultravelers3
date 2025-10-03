@@ -4,9 +4,9 @@ date: 2012-04-29
 draft: true
 ---
 
-[![IMG_2241](https://soultravelers3.typepad.com/.a/6a00e5502a95078833016765e91027970b-200wi "IMG_2241")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016765e91027970b-pi)
+[![IMG_2241](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765e91027970b.jpg "IMG_2241")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765e91027970b.jpg-pi)
 
-<!--more--> [![IMG_2241](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016765e9146c970b-800wi "IMG_2241")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016765e9146c970b-pi)  
+<!--more--> [![IMG_2241](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765e9146c970b.jpg "IMG_2241")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765e9146c970b.jpg-pi)  
   
 Balancing tweens' and teens' growing desire for [independence](http://www.parentmap.com/ages-11-14/ages-stages/ages-11-14/tweens-and-freedom-finding-a-balance) with their ongoing need for guidance and supervision is a test of parenting skills, and vacations abroad are no exception.  
   

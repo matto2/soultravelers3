@@ -7,7 +7,7 @@ categories:
   - "spain"
 ---
 
-[![Img_1873](http://soultravelers3new.local/images/2008/08/19/img_1873.jpg "Img_1873")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1873.jpg) Viana do Castelo & Vigo  
+[![Img_1873](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1873.jpg "Img_1873")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1873.jpg) Viana do Castelo & Vigo  
 August 19, 2008
 
 Despite our problematic entry and it  
@@ -16,7 +16,7 @@ do Castela in northern Portugal was a
 
 <!--more-->
 
-[![Img_1873_2](http://soultravelers3new.local/images/2008/08/19/img_1873_2.jpg "Img_1873_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1873_2.jpg)
+[![Img_1873_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1873_2.jpg "Img_1873_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1873_2.jpg)
 
 Despite our problematic entry and it being dark, we could still see that Viana do Castelo in northern Portugal was a lovely place. I even got a picture of the picturesque harbor with moon over it as we went by it for about the tenth time. Had we not been so flustered by being lost, we think we could have enjoyed the [pretty, open plaza](http://www.portugalvirtual.pt/_tourism/costaverde/viana.do.castelo/ukcity.html) where we ended up with our RV or the area down below, near the water where there was a festival of some kind going on.
 
@@ -28,16 +28,16 @@ So we said good bye to Portugal for now, jumped on the AP9 and were soon enjoyin
 
 ![Img_1896](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1896.jpg)
 
-[![Img_1885](http://soultravelers3new.local/images/2008/08/19/img_1885.jpg "Img_1885")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1885.jpg)
+[![Img_1885](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1885.jpg "Img_1885")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1885.jpg)
 
-[![Img_1894](http://soultravelers3new.local/images/2008/08/19/img_1894.jpg "Img_1894")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1894.jpg)
+[![Img_1894](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1894.jpg "Img_1894")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1894.jpg)
 
-[![Img_1882](http://soultravelers3new.local/images/2008/08/19/img_1882.jpg "Img_1882")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1882.jpg)
+[![Img_1882](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1882.jpg "Img_1882")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1882.jpg)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1882_2.jpg)
 
-[![Img_1187](http://soultravelers3new.local/images/2008/08/19/img_1187.jpg "Img_1187")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1187.jpg)
+[![Img_1187](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1187.jpg "Img_1187")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1187.jpg)
 
-[![Img_1190](http://soultravelers3new.local/images/2008/08/19/img_1190.jpg "Img_1190")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1190.jpg)
+[![Img_1190](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1190.jpg "Img_1190")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1190.jpg)
 
-[![Img_1193](http://soultravelers3new.local/images/2008/08/19/img_1193.jpg "Img_1193")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1193.jpg)
+[![Img_1193](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/19/img_1193.jpg "Img_1193")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/19/img_1193.jpg)

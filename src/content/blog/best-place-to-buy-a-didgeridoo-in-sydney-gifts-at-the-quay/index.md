@@ -34,7 +34,7 @@ of the Quay in the beautiful
 <!--more-->  
 ![Playing the didgeridoo with gorgeous view of Sydney harbor ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a51189e228970c.png)  
   
-Looking to buy a didgeridoo in Sydney? Then head to "[Gifts at the Quay"](http://www.giftsatthequay.com/ "gifts of the quay buy didgeridoo sydney") in [beautiful Sydney](http://soultravelers3new.local/2012/09/visiting-the-sydney-opera-house-must-see-australia-travel.html "sydney opera house travel")'s city center. They have authentic Aboriginal art and [Australia](http://soultravelers3new.local/2013/11/australia-travel.html "Australia travel")'s finest collection of didgeridoos. Other names for didgeridoos are didjeridu, Yidaki, mago Yirdaki, dijeridu and more.  
+Looking to buy a didgeridoo in Sydney? Then head to "[Gifts at the Quay"](http://www.giftsatthequay.com/ "gifts of the quay buy didgeridoo sydney") in [beautiful Sydney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/visiting-the-sydney-opera-house-must-see-australia-travel.html "sydney opera house travel")'s city center. They have authentic Aboriginal art and [Australia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/11/australia-travel.html "Australia travel")'s finest collection of didgeridoos. Other names for didgeridoos are didjeridu, Yidaki, mago Yirdaki, dijeridu and more.  
   
 **DIDGERIDOOS IN SYDNEY AND SHIPPED AROUND THE WORLD**  
   
@@ -45,9 +45,9 @@ They even ship these Aboriginal "outback" best didgeridoos around the world if S
   
 **MOZART, STEVEN TYLER, ABORIGINAL DIDGERIDOO JAMMING**  
   
-We discovered this gem through [Four Seasons Sydney](http://soultravelers3new.local/2014/03/celebrating-13th-birthday-in-healthy-ways-at-four-seasons-hotel-sydney.html "Four Seasons Sydney hotel"). Our [teen Mozart is a musician](http://soultravelers3new.local/2014/02/mozart-plays-mozart-and-more-violin-and-piano-performance.html "teen Mozart playing Mozart"),[singer](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "beautiful teen Mozart singer"), [and prolific songwriter](http://soultravelers3new.local/2013/09/tween-is-a-talented-singer-songwriter.html "Mozart singer and songwriter teen"), so they arranged some didgeridoo lessons in our gorgeous suite.  
+We discovered this gem through [Four Seasons Sydney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/celebrating-13th-birthday-in-healthy-ways-at-four-seasons-hotel-sydney.html "Four Seasons Sydney hotel"). Our [teen Mozart is a musician](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/mozart-plays-mozart-and-more-violin-and-piano-performance.html "teen Mozart playing Mozart"),[singer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "beautiful teen Mozart singer"), [and prolific songwriter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/tween-is-a-talented-singer-songwriter.html "Mozart singer and songwriter teen"), so they arranged some didgeridoo lessons in our gorgeous suite.  
   
-Mozart was lucky to jam with an Aboriginal didgeridoo player, (in full ceremonial paint), on our first [trip to Australia](http://soultravelers3new.local/2011/02/the-stunning-sydney-harbour-yha-hostel-review.html "Australia budget trip with kids") and this time she learned how to play it and discovered Steven Tyler loves them and shops at [Gifts of the Quay](https://www.facebook.com/GiftsAtQuay "gifts of the Quay") too! You will love this video:  
+Mozart was lucky to jam with an Aboriginal didgeridoo player, (in full ceremonial paint), on our first [trip to Australia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/the-stunning-sydney-harbour-yha-hostel-review.html "Australia budget trip with kids") and this time she learned how to play it and discovered Steven Tyler loves them and shops at [Gifts of the Quay](https://www.facebook.com/GiftsAtQuay "gifts of the Quay") too! You will love this video:  
   
 
 <iframe allowfullscreen src="//www.youtube.com/embed/g0ywB3_HWaY?rel=0" frameborder="0" height="480" width="640"></iframe>
@@ -56,7 +56,7 @@ Mozart was lucky to jam with an Aboriginal didgeridoo player, (in full ceremonia
   
  **DIDGERIDOO - WORLDS MOST HEALING INSTRUMENT**  
   
-Until our first trip to Australia a few years ago, I had never heard the word didgeridoo, but recently, during our [healing journey](http://soultravelers3new.local/2011/02/the-stunning-sydney-harbour-yha-hostel-review.html "healing journey"), it was recommended to us by [_Mouth Matters_](https://www.youtube.com/watch?v=wY7Ior5p960 "mouth matters book interview dr mercola") author [Carol Vander Stoep.  
+Until our first trip to Australia a few years ago, I had never heard the word didgeridoo, but recently, during our [healing journey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/the-stunning-sydney-harbour-yha-hostel-review.html "healing journey"), it was recommended to us by [_Mouth Matters_](https://www.youtube.com/watch?v=wY7Ior5p960 "mouth matters book interview dr mercola") author [Carol Vander Stoep.  
   
 ](http://www.mouthmattersbook.com/ "mouth matters")There is no other instrument as potent for health ( based on scientific studies) and it is almost identical to the Buteyko breathing technique and similar to the meditation breathing achieved by yoga masters.  
   
@@ -99,7 +99,7 @@ We liked Gifts at the Quay because they work with a wide range of Aboriginal art
   
 ![world traveling kid Mozart jamming with Aboriginal friend in Australia in full ceremonial paint](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcda3230970b.png)  
   
-After Mozart lucked out with that amazing private jam session with our new Aboriginal friend in Sydney on our first visit to Australia, we've been intrigued with this culture and music ( as we were with the related [Hawaiian](http://soultravelers3new.local/2010/10/family-travel-kauai-hawaii-photo-luau-hawaiin-culture-napali-coast-sail-best-for-kids.html "Hawaii culture"),[Tahiti](http://soultravelers3new.local/2012/10/tantalizing-tahiti.html "Tahiti travel") and [New Zealand](http://soultravelers3new.local/2011/03/beautiful-new-zealand-kia-kaha.html "New Zealand travel") native cultures).  
+After Mozart lucked out with that amazing private jam session with our new Aboriginal friend in Sydney on our first visit to Australia, we've been intrigued with this culture and music ( as we were with the related [Hawaiian](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/family-travel-kauai-hawaii-photo-luau-hawaiin-culture-napali-coast-sail-best-for-kids.html "Hawaii culture"),[Tahiti](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/tantalizing-tahiti.html "Tahiti travel") and [New Zealand](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/03/beautiful-new-zealand-kia-kaha.html "New Zealand travel") native cultures).  
   
 **JAMMING ON DIDGERIDOO**  
   
@@ -165,22 +165,3 @@ _Thank you to Gifts at the Quay for sponsoring this review. All opinions are min
 
 Related articles
 
-[![](http://i.zemanta.com/229039421_80_80.jpg)](http://soultravelers3new.local/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html)[Kid World Citizen's Inspiring Speech at Global Education Conference](http://soultravelers3new.local/2013/12/kid-world-citizens-inspiring-speech-at-global-education-conference.html)
-
-[![](http://i.zemanta.com/221220630_80_80.jpg)](http://soultravelers3new.local/2013/11/stunning-sydney-view.html)[Stunning Sydney View](http://soultravelers3new.local/2013/11/stunning-sydney-view.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/172468718_80_80.jpg)](http://soultravelers3new.local/2013/05/train-travel-in-europe-with-kids.html)[Train Travel in Europe with Kids](http://soultravelers3new.local/2013/05/train-travel-in-europe-with-kids.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/noimg_63_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/91218951_80_80.jpg)](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)[Advice to College Grads From a World Traveler](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)
-
-[![](http://i.zemanta.com/215357708_80_80.jpg)](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html)[Best Chocolate Cake Recipe Ever and it's Paleo Healthy Grain Free](http://soultravelers3new.local/2013/10/best-chocolate-cake-recipe-ever-and-its-paleo-healthy-grain-free.html)

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![71029164](http://soultravelers3new.local/images/2008/04/22/71029164.png "71029164")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/71029164-150x132-1.png) Snake, mac, piano day  
+ [![71029164](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/71029164.png "71029164")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/71029164-150x132-1.png) Snake, mac, piano day  
 November 28, 2006
 
 I could not believe it! Mozart was screaming  
@@ -15,7 +15,7 @@ She said she had seen a snake on our top
 
 <!--more-->
 
-[![71029164_2](http://soultravelers3new.local/images/2008/04/22/71029164_2.png "71029164_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/71029164-150x132-1.png)
+[![71029164_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/71029164_2.png "71029164_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/71029164-150x132-1.png)
 
 I could not believe it! Mozart was screaming and I went to look to see what was going on. She said she had seen a snake on our top, third floor terrace. My mind was like, “couldn’t be”. Sure enough as I looked out I saw it slither towards a pot. Eeeeew, I am not a snake person and was quite freaked to say the least, but a mom has to stay cool in front of her kid. We were inside and it was outside, thank goodness. But still, how weird is that and we have often left that door open and it leads into our bedroom! The image of sleeping with snakes is stuff for horror movies or stunt TV, but my mind quickly conjured up the picture and it does  
 not sit well with the rest of me.
@@ -37,8 +37,8 @@ Our friend works in I.T., so much more savvy than we are with computers and he f
 Recently there was a thread on slowtalk.com about what has touched your heart during your travels and I realized that I have had soooo many things touch my heart on these travels thus far, including this one. How many people would drive an hour both ways and spend all day fixing someone else’s computer into the night, of someone they just met over the internet? I think that is pretty special and we are very grateful to our new friend. We could not even find anyone we could even pay to do it, so he really saved us there. Wow, and who knew he had snake catching skills to add to his talents at piano and computers, eh?  
 Thank you Alfonso from the bottom of our hearts!
 
-[![Img_4832](http://soultravelers3new.local/images/2008/04/22/img_4832.png "Img_4832")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4832.png)
+[![Img_4832](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4832.png "Img_4832")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4832.png)
 
-[![Img_4835](http://soultravelers3new.local/images/2008/04/22/img_4835.png "Img_4835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4835.png)
+[![Img_4835](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4835.png "Img_4835")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4835.png)
 
-[![Img_4844](http://soultravelers3new.local/images/2008/04/22/img_4844.png "Img_4844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4844.png)
+[![Img_4844](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/22/img_4844.png "Img_4844")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/22/img_4844.png)

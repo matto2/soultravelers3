@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_3040_3](http://soultravelers3new.local/images/2008/08/29/img_3040_3.jpg "Img_3040_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/29/img_3040_3.jpg) Power Surge in Galicia!  
+ [![Img_3040_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/29/img_3040_3.jpg "Img_3040_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/29/img_3040_3.jpg) Power Surge in Galicia!  
 August 29, 2008
 
 There is more to Galicia than just  
@@ -15,7 +15,7 @@ of the most pristine and spectacular
 
 <!--more-->
 
-[![Img_3040_2](http://soultravelers3new.local/images/2008/08/29/img_3040_2.jpg "Img_3040_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/29/img_3040_2.jpg)
+[![Img_3040_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/08/29/img_3040_2.jpg "Img_3040_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/08/29/img_3040_2.jpg)
 
   
 

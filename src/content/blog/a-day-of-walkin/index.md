@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0135](http://soultravelers3new.local/images/2008/05/06/img_0135.png "Img_0135")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0135.png) A Day of Walking and Biking  
+ [![Img_0135](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0135.png "Img_0135")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0135.png) A Day of Walking and Biking  
 August 31, 2006
 
 We took about an hours walk into town,  
@@ -15,7 +15,7 @@ lunch outside at a the Dam Hotel
 
 <!--more-->
 
-[![Img_0135_2](http://soultravelers3new.local/images/2008/05/06/img_0135_2.png "Img_0135_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0135_2.png)
+[![Img_0135_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0135_2.png "Img_0135_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0135_2.png)
 
 We took about an hours walk into town, stopping as we went here and there and ate lunch outside at a  
 the Dam Hotel in the main square taking in the views. It was another beautiful, sunny and warm day. We watched as boats went thru the locks and even saw one large bridge open for a boat. Even made our way across the tiny space of the lock which is everyday stuff for people here, but an adventure for us.  
@@ -34,16 +34,16 @@ This is the kind of spot we could stay forever, so the waiting is not a problem.
   
 When we got home from our day of exploring on our new rental bikes, we were ready to try out the swimming area and slide. The water was very cold at first, but soon quite refreshing as the weather has been quite warm and more muggy than we are use to as there is never unpleasant  humidity in California. You would not believe how fast Mozart zipped down that big slide....thrilling for her, but a little scary for mom. We both enjoyed the water fun and DaVinci (who hates cold water from his years of swim practice in it as a kid) enjoyed vicariously and took the video and pics. Then we made a yummy dinner together from our load of fresh groceries and finally Mozart and DaVinci watched the movie Holes while I typed a bit on this.
 
-[![Img_0124](http://soultravelers3new.local/images/2008/05/06/img_0124.png "Img_0124")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0124.png)
+[![Img_0124](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0124.png "Img_0124")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0124.png)
 
-[![Img_0127](http://soultravelers3new.local/images/2008/05/06/img_0127.png "Img_0127")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0127.png)
+[![Img_0127](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0127.png "Img_0127")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0127.png)
 
-[![Img_0125](http://soultravelers3new.local/images/2008/05/06/img_0125.png "Img_0125")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0125.png)
+[![Img_0125](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0125.png "Img_0125")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0125.png)
 
-[![Img_0133](http://soultravelers3new.local/images/2008/05/06/img_0133.png "Img_0133")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0133.png)
+[![Img_0133](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0133.png "Img_0133")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0133.png)
 
-[![Img_0153](http://soultravelers3new.local/images/2008/05/06/img_0153.png "Img_0153")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0153.png)
+[![Img_0153](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0153.png "Img_0153")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0153.png)
 
-[![Img_0138](http://soultravelers3new.local/images/2008/05/06/img_0138.png "Img_0138")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0138.png)
+[![Img_0138](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0138.png "Img_0138")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0138.png)
 
-[![Img_0150](http://soultravelers3new.local/images/2008/05/06/img_0150.png "Img_0150")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0150.png)
+[![Img_0150](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0150.png "Img_0150")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0150.png)

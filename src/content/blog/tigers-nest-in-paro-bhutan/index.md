@@ -25,7 +25,7 @@ Monastery near Paro, Bhutan
 <!--more--> ![Bhutan Tiger's Nest](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330154335292d4970c.jpg)  
   
   
-A pilgrimage and trek to the [Tiger's Nest (Taktshang)](http://en.wikipedia.org/wiki/Paro_Taktsang "tiger's nest ")  Monastery near Paro, [Bhutan](http://soultravelers3new.local/2011/05/family-vacation-in-bhutan.html "Bhutan vacation"), that hangs on the edge of a rocky cliff ( 10,000 ft or 3,120 meters above the Paro Valley) is both thrilling and exhausting. Our fit and energetic ten year old daughter made it look easy, but many adults don't make it, even the ones who ride a horse half way up. The Tiger's Nest is the diamond in this mysterious, mystical jewel that is [Bhutan, the last Shangra-La](http://soultravelers3new.local/2011/05/travel-to-bhutan-.html "Bhutan the last shangri-la").  
+A pilgrimage and trek to the [Tiger's Nest (Taktshang)](http://en.wikipedia.org/wiki/Paro_Taktsang "tiger's nest ")  Monastery near Paro, [Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/family-vacation-in-bhutan.html "Bhutan vacation"), that hangs on the edge of a rocky cliff ( 10,000 ft or 3,120 meters above the Paro Valley) is both thrilling and exhausting. Our fit and energetic ten year old daughter made it look easy, but many adults don't make it, even the ones who ride a horse half way up. The Tiger's Nest is the diamond in this mysterious, mystical jewel that is [Bhutan, the last Shangra-La](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/travel-to-bhutan-.html "Bhutan the last shangri-la").  
   
 
 <iframe src="http://www.youtube.com/embed/A3cNJ53dUqA?rel=0" frameborder="0" height="349" width="560"></iframe>

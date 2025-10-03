@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
- [![Img_0956](http://soultravelers3new.local/images/2008/07/01/img_0956.jpg "Img_0956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0956.jpg) Work,Youtube & Play At Lisbon Beach  
+ [![Img_0956](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0956.jpg "Img_0956")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0956.jpg) Work,Youtube & Play At Lisbon Beach  
 July 1, 2008
 
 Before heading to Lisbon from Evora, we  
@@ -15,7 +15,7 @@ cafe and were very puzzled because we had
 
 <!--more-->
 
-[![Img_0956_2](http://soultravelers3new.local/images/2008/07/01/img_0956_2.jpg "Img_0956_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0956_2.jpg)
+[![Img_0956_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0956_2.jpg "Img_0956_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0956_2.jpg)
 
 Before heading to Lisbon from Evora, we had checked our email at that sweet new cafe and were very puzzled because we had a ton from Youtube and our "Where in Heaven is Mozart" video had gone from around 5000 views to almost 25, 000 in a couple of days. We were stunned as we had never seen anything like it in the three months since we had first posted our videos online.
 
@@ -41,20 +41,20 @@ It turned that we made the right choice. During our week of being featured our [
 
 It was all a bit overwhelming and will take me some time to catch up with all the mail, friend requests and such. I am not sure when I will get to it, but I will try. Thank you and welcome to all the new people who found us through Youtube! I have no idea who was the person that selected us to be featured or how that happened, but I thank them too. We are still stunned to see them take off like this and will continue to keep putting up more as we have time.
 
-[![Img_0923](http://soultravelers3new.local/images/2008/07/01/img_0923.jpg "Img_0923")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0923.jpg)
+[![Img_0923](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0923.jpg "Img_0923")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0923.jpg)
 
-[![Img_9751](http://soultravelers3new.local/images/2008/07/01/img_9751.jpg "Img_9751")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_9751.jpg)
+[![Img_9751](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_9751.jpg "Img_9751")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_9751.jpg)
 
-[![Img_0926](http://soultravelers3new.local/images/2008/07/01/img_0926.jpg "Img_0926")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0926.jpg)
+[![Img_0926](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0926.jpg "Img_0926")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0926.jpg)
 
-[![Img_0941](http://soultravelers3new.local/images/2008/07/01/img_0941.jpg "Img_0941")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0941.jpg)
+[![Img_0941](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0941.jpg "Img_0941")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0941.jpg)
 
-[![Img_0958](http://soultravelers3new.local/images/2008/07/01/img_0958.jpg "Img_0958")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0958.jpg)
+[![Img_0958](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0958.jpg "Img_0958")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0958.jpg)
 
-[![Img_0957](http://soultravelers3new.local/images/2008/07/01/img_0957.jpg "Img_0957")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0957.jpg)
+[![Img_0957](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0957.jpg "Img_0957")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0957.jpg)
 
-[![Img_9749](http://soultravelers3new.local/images/2008/07/01/img_9749.jpg "Img_9749")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_9749.jpg)
+[![Img_9749](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_9749.jpg "Img_9749")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_9749.jpg)
 
-[![Img_0938](http://soultravelers3new.local/images/2008/07/01/img_0938.jpg "Img_0938")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0938.jpg)
+[![Img_0938](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_0938.jpg "Img_0938")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_0938.jpg)
 
-[![Img_9755](http://soultravelers3new.local/images/2008/07/01/img_9755.jpg "Img_9755")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_9755.jpg)
+[![Img_9755](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/01/img_9755.jpg "Img_9755")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/01/img_9755.jpg)

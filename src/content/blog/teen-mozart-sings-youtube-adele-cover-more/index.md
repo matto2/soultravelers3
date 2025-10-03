@@ -32,7 +32,7 @@ a cover on Youtube of her song,
 ![  Trilingual travel teen and singer Mozart ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb078c3be5970d.png)  
   
    
-[Trilingual travel teen](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Trilingual travel teen and singer Mozart speeks on Global education") and [singer Mozart](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "travel teen and singer Mozart") loves [Adele](http://www.adele.tv/ "Adele"), so she just did a [cover on Youtube](http://www.youtube.com/watch?v=s2nS67vGsoE&list=UUcMwuQFsEJfOct29ZTa0v8w "Teen singer Mozart's cover of Adele on Youtube - Rumor has it") of her song, "Rumor has it".  
+[Trilingual travel teen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Trilingual travel teen and singer Mozart speeks on Global education") and [singer Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html "travel teen and singer Mozart") loves [Adele](http://www.adele.tv/ "Adele"), so she just did a [cover on Youtube](http://www.youtube.com/watch?v=s2nS67vGsoE&list=UUcMwuQFsEJfOct29ZTa0v8w "Teen singer Mozart's cover of Adele on Youtube - Rumor has it") of her song, "Rumor has it".  
   
 
 <iframe allowfullscreen frameborder="0" height="360" src="//www.youtube.com/embed/s2nS67vGsoE?list=UUcMwuQFsEJfOct29ZTa0v8w" width="640"></iframe>
@@ -47,7 +47,7 @@ She is loving being a "youtuber" and putting a video up on [our YT channel](http
   
 **HOMESCHOOLING OR WORLDSCHOOLING MUSIC**  
   
-She is in 8th grade now ( although taking some college and high school classes) and this year's [homeschooling](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html "homeschooling high school") is very creative with a BIG focus on her music. She spends about 5 or 6 hours a day songwriting, singing and working on her music ( guitar, [piano](http://soultravelers3new.local/2014/02/mozart-plays-mozart-and-more-violin-and-piano-performance.html "mozart plays piano and violin in Asia"), [violin](http://soultravelers3new.local/2011/08/kid-playing-violin-around-the-world.html "MOZART PLAYING VIOLIN AROUND THE WORLD"), [didgeridoo](http://soultravelers3new.local/2014/03/best-place-to-buy-a-didgeridoo-in-sydney-gifts-at-the-quay.html "BEST PLACE TO BUY DIDGERIDOO IN SYDNEY")).  
+She is in 8th grade now ( although taking some college and high school classes) and this year's [homeschooling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/homeschool-high-school-and-world-travel.html "homeschooling high school") is very creative with a BIG focus on her music. She spends about 5 or 6 hours a day songwriting, singing and working on her music ( guitar, [piano](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/mozart-plays-mozart-and-more-violin-and-piano-performance.html "mozart plays piano and violin in Asia"), [violin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/kid-playing-violin-around-the-world.html "MOZART PLAYING VIOLIN AROUND THE WORLD"), [didgeridoo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/03/best-place-to-buy-a-didgeridoo-in-sydney-gifts-at-the-quay.html "BEST PLACE TO BUY DIDGERIDOO IN SYDNEY")).  
   
 ![  Trilingual travel teen and singer Mozart ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0711c49970c.png)
 
@@ -84,22 +84,3 @@ We've entered a whole new world! Isn't it amazing the journey your kids take you
 
 Related articles
 
-[![](http://i.zemanta.com/296115506_80_80.jpg)](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html)[Mozart is Youngest Reporter at New York Fashion Week!](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html)
-
-[![](http://i.zemanta.com/292621390_80_80.jpg)](http://soultravelers3new.local/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html)[Mozart's 1st Vlog - Teen Beauty Guru, Fashion & Bargaining in China in Mandarin](http://soultravelers3new.local/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html)
-
-[![](http://i.zemanta.com/284160813_80_80.jpg)](http://soultravelers3new.local/2014/07/makeup-artist-terri-tomlinson-gives-mozart-pop-star-look.html)[Makeup Artist Terri Tomlinson Gives Mozart Pop-Star Look](http://soultravelers3new.local/2014/07/makeup-artist-terri-tomlinson-gives-mozart-pop-star-look.html)
-
-[![](http://i.zemanta.com/290089499_80_80.jpg)](http://soultravelers3new.local/2014/08/cute-teen-clothes-shopping-haul.html)[Cute Teen Clothes Shopping Haul](http://soultravelers3new.local/2014/08/cute-teen-clothes-shopping-haul.html)
-
-[![](http://i.zemanta.com/261912623_80_80.jpg)](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)[World as my Middle School - The Atlantic & Soultravelers3](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)
-
-[![](http://i.zemanta.com/281968163_80_80.jpg)](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)[Demi Lovato, Dianna De La Garza, Singing and Mozart's SAT Score!](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html)
-
-[![](http://i.zemanta.com/239455677_80_80.jpg)](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)[Mozart Meeting Soultravelers3 Blog Readers Around the World](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)
-
-[![](http://i.zemanta.com/80691598_80_80.jpg)](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html)[Kid-Friendly Travel Perks](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/200358711_80_80.jpg)](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html)[Best Classes or Tutor for Spanish, English or Mandarin in Penang](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html)

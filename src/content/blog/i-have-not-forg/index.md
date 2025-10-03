@@ -14,7 +14,7 @@ our winter home in Andalusia, Spain!
 
 <!--more-->
 
-[![Img_3955_3](http://soultravelers3new.local/images/2008/11/30/img_3955_3.jpg "Img_3955_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/30/img_3955_3.jpg)
+[![Img_3955_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/11/30/img_3955_3.jpg "Img_3955_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/11/30/img_3955_3.jpg)
 
 This is just a quick post to let you know that we are all well and happily back into our winter home in Andalusia, Spain! I still have so much to tell you about our journey this spring, summer and fall, plus now I have the good internet connection that will allow me to get the stories up. Trust me, it is hard to travel fast, find free wifi and blog on the move!
 

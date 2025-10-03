@@ -25,7 +25,7 @@ Looking for a great charity to support this holiday season? Please help Mozart b
   
 ![Mozart Dee ready to change the world with Pencils of Promise](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0221ed63970b.png)  
   
-If you listened to 13 year old [Mozart's speech at the Global Education Conference](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html#more "13 year old trilingual inspiring speech at Global Education Conference"), you know she has a passion for wanting to make a difference and help others. She is a big fan of youth activist Malala Yousufzaia who said,  
+If you listened to 13 year old [Mozart's speech at the Global Education Conference](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html#more "13 year old trilingual inspiring speech at Global Education Conference"), you know she has a passion for wanting to make a difference and help others. She is a big fan of youth activist Malala Yousufzaia who said,  
   
 “Let us pick up our books and our pens. They are our most powerful weapons. One teacher, one book, one pen, can change the world,”  
   
@@ -63,22 +63,3 @@ We can all make a huge difference if we work together!
 
 Related articles
 
-[![](http://i.zemanta.com/83166920_80_80.jpg)](http://soultravelers3new.local/2012/04/environmental-education-world-school-kid.html)[Environmental Education - World School Kid](http://soultravelers3new.local/2012/04/environmental-education-world-school-kid.html)
-
-[![](http://i.zemanta.com/80691598_80_80.jpg)](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html)[Kid-Friendly Travel Perks](http://soultravelers3new.local/2012/03/kid-friendly-travel-perks.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/175476274_80_80.jpg)](http://soultravelers3new.local/2013/06/fluent-mandarin.html)[Fluent Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/111536966_80_80.jpg)](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)[How to Homeschool Through Travel With a Gifted Child](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)
-
-[![](http://i.zemanta.com/222432159_80_80.jpg)](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html)[Global Citizen, Innovative Kid - Speaker at Global Education Conference!](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html)
-
-[![](http://i.zemanta.com/224184869_80_80.jpg)](http://soultravelers3new.local/2013/11/giving-thanks-and-thanksgiving-around-the-world.html)[Giving Thanks and Thanksgiving Around the World](http://soultravelers3new.local/2013/11/giving-thanks-and-thanksgiving-around-the-world.html)

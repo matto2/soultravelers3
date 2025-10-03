@@ -3,7 +3,7 @@ title: "movie"
 date: 2008-02-13
 ---
 
-![soultravelers3](http://soultravelers3new.local/typepad-images/movie-title.png)  
+![soultravelers3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/typepad-images/movie-title.png)  
   
 
   

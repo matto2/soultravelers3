@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2017](http://soultravelers3new.local/images/2008/04/28/img_2017.png "Img_2017")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2017.png) Simple Pleasures  
+ [![Img_2017](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2017.png "Img_2017")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2017.png) Simple Pleasures  
 September 30, 2006
 
 We were planning to see Versailles today,  
@@ -15,7 +15,7 @@ day at “home” instead.
 
 <!--more-->
 
-[![Img_2017_2](http://soultravelers3new.local/images/2008/04/28/img_2017_2.png "Img_2017_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2017_2.png)
+[![Img_2017_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2017_2.png "Img_2017_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2017_2.png)
 
 We were planning to see Versailles today, but we decided we deserved another R&R day at “home” instead. We have both seen Versailles thoroughly and were just not up for crowds or getting up and out early, so Mozart will just have to see it on another trip back this way during our travels. It takes a lot of effort to take metros here and there and my blistered toes and all our bodies could use a rest from all the walking and standing. We have been doing some heavy touring and as exciting as that is, one needs the balance of down time and it is quite peaceful here in this campground since everyone is off seeing Paris.
 
@@ -34,26 +34,26 @@ me of one of my favorite movies, The Red Balloon. They were just too cute togeth
 
 I enjoyed watching them from my perch up outside the wash rooms. I had four tubs going at once with hand laundry, color coded no less. DaVinci rigged up another line and we even used the bushes to dry things on as we had seen others do. It feels so great to have everything clean and our “house” cleaned up, fully aired out (we took everything out of the bedroom) and back in better order. We were all outside most of the day enjoying the sun. Nothing spectacular about the day,but some how it was special and healing. It was a beauteous day of simple pleasures.
 
-[![Img_1945](http://soultravelers3new.local/images/2008/04/28/img_1945.png "Img_1945")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1945.png)
+[![Img_1945](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1945.png "Img_1945")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1945.png)
 
-[![Img_2000](http://soultravelers3new.local/images/2008/04/28/img_2000.png "Img_2000")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2000.png)
+[![Img_2000](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2000.png "Img_2000")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2000.png)
 
-[![Img_1955](http://soultravelers3new.local/images/2008/04/28/img_1955.png "Img_1955")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1955.png)
+[![Img_1955](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1955.png "Img_1955")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1955.png)
 
-[![Img_1964](http://soultravelers3new.local/images/2008/04/28/img_1964.png "Img_1964")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1964.png)
+[![Img_1964](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1964.png "Img_1964")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1964.png)
 
-[![Img_1967](http://soultravelers3new.local/images/2008/04/28/img_1967.png "Img_1967")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1967.png)
-
-  
-
-[![Img_2009](http://soultravelers3new.local/images/2008/04/28/img_2009.png "Img_2009")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2009.png)
-
-[![Img_1975](http://soultravelers3new.local/images/2008/04/28/img_1975.png "Img_1975")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1975.png)
-
-[![Img_2026](http://soultravelers3new.local/images/2008/04/28/img_2026.png "Img_2026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2026.png)
-
-[![Img_1981](http://soultravelers3new.local/images/2008/04/28/img_1981.jpg "Img_1981")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1981.jpg)
+[![Img_1967](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1967.png "Img_1967")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1967.png)
 
   
 
-[![Img_2008](http://soultravelers3new.local/images/2008/04/28/img_2008.png "Img_2008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2008.png)
+[![Img_2009](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2009.png "Img_2009")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2009.png)
+
+[![Img_1975](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1975.png "Img_1975")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1975.png)
+
+[![Img_2026](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2026.png "Img_2026")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2026.png)
+
+[![Img_1981](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_1981.jpg "Img_1981")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_1981.jpg)
+
+  
+
+[![Img_2008](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/28/img_2008.png "Img_2008")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/28/img_2008.png)

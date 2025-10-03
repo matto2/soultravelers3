@@ -62,7 +62,7 @@ Despite being raised as a trilingual  from birth, my daughter both spoke and re
   
 If your friends are weak in English reading and writing, I don't think it is because of their bilingualism at all, but perhaps the parents didn't encourage enough reading and writing in English. I know kids from England in Spain who didn't have one English book or magazine in their homes ( or Spanish for that matter). As a passionate reader, people without books shock me as I think it is rather easy to raise a reader.  
   
-[http://soultravelers3new.local/2013/03/10-tips-to-raise-a-reader-book-lover.html](http://soultravelers3new.local/2013/03/10-tips-to-raise-a-reader-book-lover.html)  
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/10-tips-to-raise-a-reader-book-lover.html](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/10-tips-to-raise-a-reader-book-lover.html)  
   
 My daughter is dominant in English so does most of her reading and writing in it, but she also always spends ( usually daily) time in reading, writing and speaking Mandarin and Spanish too ( and has for most of her life). Just as she does daily piano and violin practice...as she would lose some of her ability without the daily time, study and practice.  
   
@@ -78,22 +78,3 @@ http://www.ft.com/cms/s/0/3fd31c1a-85b6-11e2-bed4-00144feabdc0.html#axzz2WpebsP8
 
 Related articles
 
-[![](http://i.zemanta.com/100044889_80_80.jpg)](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html)[Learning Mandarin in Asia: The Economist and Wall Street Journal Discuss](http://soultravelers3new.local/2012/07/learning-mandarin-in-asia-the-economist-and-wall-street-journal-discuss-.html)
-
-[![](http://i.zemanta.com/94084671_80_80.jpg)](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)[Why Learn Mandarin in Tropical Asia - Penang](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html)
-
-[![](http://i.zemanta.com/152306180_80_80.jpg)](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html)[Mandarin TED Talk? American Kid's Inspiring Chinese Speech!](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html)
-
-[![](http://i.zemanta.com/87228096_80_80.jpg)](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)[Global Citizens = Spanish and Mandarin Immersion](http://soultravelers3new.local/2012/05/global-citizens-spanish-and-mandarin-immersion.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/126145245_80_80.jpg)](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html)[Mandarin Immersion in China](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html)
-
-[![](http://i.zemanta.com/102791716_80_80.jpg)](http://soultravelers3new.local/2012/07/chinese-school-in-asia-11-year-old-american-doing-physics-in-mandarin.html)[Chinese School in Asia - 11 Year Old American Doing Physics in Mandarin!](http://soultravelers3new.local/2012/07/chinese-school-in-asia-11-year-old-american-doing-physics-in-mandarin.html)
-
-[![](http://i.zemanta.com/168450990_80_80.jpg)](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)[Learning Spanish in Spain](http://soultravelers3new.local/2013/05/learning-spanish-in-spain.html)
-
-[![](http://i.zemanta.com/124031105_80_80.jpg)](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html)[Multilingual Learning - Reading in 3 Languages](http://soultravelers3new.local/2012/11/multilingual-learning-reading-in-3-languages.html)
-
-[![](http://i.zemanta.com/175476274_80_80.jpg)](http://soultravelers3new.local/2013/06/fluent-mandarin.html)[Fluent Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html)

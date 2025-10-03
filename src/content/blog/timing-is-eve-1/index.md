@@ -6,7 +6,7 @@ categories:
   - "blog"
 ---
 
- [![775_a_sunset](http://soultravelers3new.local/images/2008/05/08/775_a_sunset.png "775_a_sunset")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/775_a_sunset.png) Timing is Everything  
+ [![775_a_sunset](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/775_a_sunset.png "775_a_sunset")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/775_a_sunset.png) Timing is Everything  
 August 19, 2006
 
 I think the start of this big change came  
@@ -15,7 +15,7 @@ The Economist that said “sell, sell, sell”
 
 <!--more-->
 
-[![775_a_sunset_2](http://soultravelers3new.local/images/2008/05/08/775_a_sunset_2.png "775_a_sunset_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/775_a_sunset_2.png)
+[![775_a_sunset_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/775_a_sunset_2.png "775_a_sunset_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/775_a_sunset_2.png)
 
 I think the start of this big change came when I read an article by chance in The Economist that said “sell, sell, sell” and talked about the coming problems with global housing. It really started to shift my thinking and how I perceived real estate. So I kept reading up on the topic. Meanwhile housing prices continued to sky rocket and the medium house prices in our area were nearing 800K. We had always planned to keep this home until retirement, but I started wondering who was ever going to be able to buy our house in another fifteen or twenty years. The generation behind the baby boomers did not seem to be getting ready for such as things have been out of whack for a while. So we continued to read and discuss these things on a regular basis. I became a big fan of  
 [http://thehousingbubbleblog.com](http://thehousingbubbleblog.com) and [http://www.financialsense.com](http://www.financialsense.com) and [http://www.housingbubblecasualty.com](http://www.housingbubblecasualty.com) and others and other good books and sites that I will list eventually if anyone is interested.
@@ -45,38 +45,38 @@ It seems like only yesterday she was born. Its hard to believe that she is alrea
 
 But could we ever let go of the dream home that we worked so hard to build and create? Maybe we will just take it with us inside of us as it’s now part of us. It transformed us as we transformed it, and is now part of our beingness. After all, you can not take it with you and a physical home is really more about stewardship.
 
-[![Dcp01500](http://soultravelers3new.local/images/2008/05/08/dcp01500.jpg "Dcp01500")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01500.jpg)
+[![Dcp01500](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01500.jpg "Dcp01500")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01500.jpg)
 
-[![37](http://soultravelers3new.local/images/2008/05/08/37.png "37")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/37.png)
+[![37](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/37.png "37")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/37.png)
 
-[![Heavenly_rain_day_1_2005](http://soultravelers3new.local/images/2008/05/08/heavenly_rain_day_1_2005.jpg "Heavenly_rain_day_1_2005")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_rain_day_1_2005.jpg)
+[![Heavenly_rain_day_1_2005](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/heavenly_rain_day_1_2005.jpg "Heavenly_rain_day_1_2005")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_rain_day_1_2005.jpg)
 
-[![Dcp01349](http://soultravelers3new.local/images/2008/05/08/dcp01349.png "Dcp01349")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01349.png)
+[![Dcp01349](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01349.png "Dcp01349")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01349.png)
 
-[![Heavenly_violin](http://soultravelers3new.local/images/2008/05/08/heavenly_violin.jpg "Heavenly_violin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_violin.jpg)
+[![Heavenly_violin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/heavenly_violin.jpg "Heavenly_violin")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_violin.jpg)
 
-[![Heavenly_garden](http://soultravelers3new.local/images/2008/05/08/heavenly_garden.jpg "Heavenly_garden")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_garden.jpg)
+[![Heavenly_garden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/heavenly_garden.jpg "Heavenly_garden")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_garden.jpg)
 
-[![110](http://soultravelers3new.local/images/2008/05/08/110.png "110")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/110.png)
+[![110](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/110.png "110")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/110.png)
 
-[![Dcp01479](http://soultravelers3new.local/images/2008/05/08/dcp01479.jpg "Dcp01479")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01479.jpg)
+[![Dcp01479](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01479.jpg "Dcp01479")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01479.jpg)
 
-[![Pony_party](http://soultravelers3new.local/images/2008/05/08/pony_party.png "Pony_party")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/pony_party.png)
+[![Pony_party](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/pony_party.png "Pony_party")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/pony_party.png)
 
-[![Dcp01301](http://soultravelers3new.local/images/2008/05/08/dcp01301.png "Dcp01301")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01301.png)
+[![Dcp01301](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01301.png "Dcp01301")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01301.png)
 
-[![Dcp01087](http://soultravelers3new.local/images/2008/05/08/dcp01087.png "Dcp01087")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01087.png)
+[![Dcp01087](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01087.png "Dcp01087")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01087.png)
 
-[![Dcp01454](http://soultravelers3new.local/images/2008/05/08/dcp01454.png "Dcp01454")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01454.png)
+[![Dcp01454](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01454.png "Dcp01454")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01454.png)
 
-[![Heavenly_xmas](http://soultravelers3new.local/images/2008/05/08/heavenly_xmas.jpg "Heavenly_xmas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_xmas.jpg)
+[![Heavenly_xmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/heavenly_xmas.jpg "Heavenly_xmas")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_xmas.jpg)
 
-[![Dcp01319](http://soultravelers3new.local/images/2008/05/08/dcp01319.png "Dcp01319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01319.png)
+[![Dcp01319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01319.png "Dcp01319")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01319.png)
 
-[![Dcp01394](http://soultravelers3new.local/images/2008/05/08/dcp01394.jpg "Dcp01394")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01394.jpg)
+[![Dcp01394](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/dcp01394.jpg "Dcp01394")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/dcp01394.jpg)
 
-[![Heavenly_with_mom](http://soultravelers3new.local/images/2008/05/08/heavenly_with_mom.jpg "Heavenly_with_mom")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_with_mom.jpg)
+[![Heavenly_with_mom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/heavenly_with_mom.jpg "Heavenly_with_mom")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_with_mom.jpg)
 
-[![Heavenly_and_dad_at_beach](http://soultravelers3new.local/images/2008/05/08/heavenly_and_dad_at_beach.jpg "Heavenly_and_dad_at_beach")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_and_dad_at_beach.jpg)
+[![Heavenly_and_dad_at_beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/heavenly_and_dad_at_beach.jpg "Heavenly_and_dad_at_beach")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/heavenly_and_dad_at_beach.jpg)
 
-[![Earlier_family_shot](http://soultravelers3new.local/images/2008/05/08/earlier_family_shot.jpg "Earlier_family_shot")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/earlier_family_shot.jpg)
+[![Earlier_family_shot](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/08/earlier_family_shot.jpg "Earlier_family_shot")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/08/earlier_family_shot.jpg)

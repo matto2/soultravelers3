@@ -29,11 +29,11 @@ blockbuster musical Wicked?
 <!--more-->  
 ![IMG_0162NYC Broadway Best Secret? Winning Wicked Lottery Tickets-Cheap!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6e950b7970b.png)  
   
-Did you know it is easy to get cheap tickets to the blockbuster musical Wicked? When the best seats run 300 dollars a piece there and the average Broadway ticket now costs over 100 dollars, a [family on a budget](http://soultravelers3new.local/2013/02/minimalist-family-frugal-tip-omg.html "frugal famiily tips") who loves theater NEEDS this secret tip!  
+Did you know it is easy to get cheap tickets to the blockbuster musical Wicked? When the best seats run 300 dollars a piece there and the average Broadway ticket now costs over 100 dollars, a [family on a budget](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/minimalist-family-frugal-tip-omg.html "frugal famiily tips") who loves theater NEEDS this secret tip!  
   
 ![Teen singer Mozart taking NYC by storm](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0735a83970c.png)  
   
-Since we were in [NYC for Fashion Week](http://soultravelers3new.local/2014/09/mozarts-adventures-during-new-york-fashion-week.html "New York Fashion Week with teen singer Mozart") with [Mozart as the youngest reporter](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html "Beautiful teen singer Mozart was youngest reporter at Fashion Week"), we didn't have too much spare time.  
+Since we were in [NYC for Fashion Week](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/09/mozarts-adventures-during-new-york-fashion-week.html "New York Fashion Week with teen singer Mozart") with [Mozart as the youngest reporter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html "Beautiful teen singer Mozart was youngest reporter at Fashion Week"), we didn't have too much spare time.  
   
 Still, Mozart was dreaming about seeing Wicked since she loves some of the songs like _Defying Gravity_ and every time we go to New York or London, we see at least one show.  
   
@@ -105,22 +105,3 @@ Then we hugged and said goodbye and went off into the night much enriched by tim
 
 Related articles
 
-[![](http://i.zemanta.com/102070393_80_80.jpg)](http://soultravelers3new.local/2012/07/krakow-holiday-vacation.html)[Krakow Holiday Vacation](http://soultravelers3new.local/2012/07/krakow-holiday-vacation.html)
-
-[![](http://i.zemanta.com/291439905_80_80.jpg)](http://soultravelers3new.local/2014/08/make-a-splash-water-park-summer-fun-for-families.html)[Make a Splash! Water Park Summer Fun for Families!](http://soultravelers3new.local/2014/08/make-a-splash-water-park-summer-fun-for-families.html)
-
-[![](http://i.zemanta.com/157055767_80_80.jpg)](http://soultravelers3new.local/2013/04/ireland-travel-with-kids.html)[Ireland Travel With Kids](http://soultravelers3new.local/2013/04/ireland-travel-with-kids.html)
-
-[![](http://i.zemanta.com/264138071_80_80.jpg)](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)[Bora Bora Dream Vacation on a Low Budget](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)
-
-[![](http://i.zemanta.com/253943088_80_80.jpg)](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)[Homeschool Family European Tour](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)
-
-[![](http://i.zemanta.com/132518557_80_80.jpg)](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html)[China Family Vacation - Beauty, Love, Joy!](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html)
-
-[![](http://i.zemanta.com/277908180_80_80.jpg)](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)[Top 10 Summer Vacations for Family Travel](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)
-
-[![](http://i.zemanta.com/122660819_80_80.jpg)](http://soultravelers3new.local/2012/11/winter-beach-beauty-of-southern-spain.html)[Winter Beach Beauty of Southern Spain](http://soultravelers3new.local/2012/11/winter-beach-beauty-of-southern-spain.html)
-
-[![](http://i.zemanta.com/292621390_80_80.jpg)](http://soultravelers3new.local/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html)[Mozart's 1st Vlog - Teen Beauty Guru, Fashion & Bargaining in China in Mandarin](http://soultravelers3new.local/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html)
-
-[![](http://i.zemanta.com/296115506_80_80.jpg)](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html)[Mozart is Youngest Reporter at New York Fashion Week!](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html)

@@ -29,9 +29,9 @@ easily and cheaply make your own
 
 <!--more--> ![making goat cheese with kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8433be9970d.jpg)  
   
-Do you love expensive goat cheese? Did you know you can easily and cheaply make your own healthier goat cheese from [goat milk kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "goat milk kefir")?  
+Do you love expensive goat cheese? Did you know you can easily and cheaply make your own healthier goat cheese from [goat milk kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "goat milk kefir")?  
   
-Since I have been on my [health journey](http://soultravelers3new.local/health-and-travel/ "health journey") while [traveling](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html#more "traveling when sick"), I've learned a ton about [healthy organic food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy organic raw food") and [how to eat for heatlh](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "how to eat for health"). Kefir is an amazing [superfood](http://chriskresser.com/kefir-the-not-quite-paleo-superfood "kefir super food") recommended by many doctors and health experts and it is best to make your own from grains and raw milk for the highest quality.  
+Since I have been on my [health journey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/health-and-travel/ "health journey") while [traveling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/traveling-while-sick-or-with-health-medical-challenges.html#more "traveling when sick"), I've learned a ton about [healthy organic food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "healthy organic raw food") and [how to eat for heatlh](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/healthy-food-and-travel.html "how to eat for health"). Kefir is an amazing [superfood](http://chriskresser.com/kefir-the-not-quite-paleo-superfood "kefir super food") recommended by many doctors and health experts and it is best to make your own from grains and raw milk for the highest quality.  
   
 ![goats milk kefir cheese](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee8455df6970d.jpg)  
   
@@ -81,7 +81,7 @@ We all need more probiotics to stay healthy in our toxic world and the best man-
   
 Making this goat cheese is remarkably easy and so delicious. It is also sometimes called Quark or Lebneh.  
   
-\* First, simply make your homemade Kefir as I explained in my post **[How to Make Kefir Easy](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make DIY homemade kefir").**  
+\* First, simply make your homemade Kefir as I explained in my post **[How to Make Kefir Easy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make DIY homemade kefir").**  
   
 \* Then place a your clean strainer ( that you used to separate the kefir from the grains) over a bowl.  
   
@@ -99,7 +99,7 @@ Making this goat cheese is remarkably easy and so delicious. It is also sometime
   
 \* Check 12 to 24 hours later to get the taste and texture that works for you. ( Takes longer in cool temperatures and depends on tastes preferences).  
   
-\* In the bowl and jar there will be whey that has dripped from the cloth. Save this to use for other fermented foods like [lacto-fermented sals](http://soultravelers3new.local/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "lacto fermented salsa")a or [chutney](http://soultravelers3new.local/2012/08/how-to-make-healthy-lacto-fermented-mango-papaya-chutney.html "fermented chutney") or to soak grains etc.  
+\* In the bowl and jar there will be whey that has dripped from the cloth. Save this to use for other fermented foods like [lacto-fermented sals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-healthy-lacto-fermented-salsa.html "lacto fermented salsa")a or [chutney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/how-to-make-healthy-lacto-fermented-mango-papaya-chutney.html "fermented chutney") or to soak grains etc.  
   
 ![goats milk cheese made from kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40d1994c970c.jpg)  
   
@@ -117,22 +117,3 @@ Any questions? Have you made this goats milk cheese before?
 
 Related articles
 
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/136332847_80_80.jpg)](http://soultravelers3new.local/2013/01/multilingual-dreams.html)[Multilingual Dreams](http://soultravelers3new.local/2013/01/multilingual-dreams.html)
-
-[![](http://i.zemanta.com/137126168_80_80.jpg)](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)[Raising a Bilingual Child - or Trilingual](http://soultravelers3new.local/2013/01/raising-a-bilingual-child-or-trilingual.html)
-
-[![](http://i.zemanta.com/137403788_80_80.jpg)](http://soultravelers3new.local/2013/01/camping-spain.html)[Camping Spain](http://soultravelers3new.local/2013/01/camping-spain.html)
-
-[![](http://i.zemanta.com/133178306_80_80.jpg)](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)[Around-the-World Travel - Best Advice](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)
-
-[![](http://i.zemanta.com/134800869_80_80.jpg)](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)[Around-the-World Family Travel](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)
-
-[![](http://i.zemanta.com/134635768_80_80.jpg)](http://soultravelers3new.local/2012/12/grocery-shopping-in-china.html)[Grocery Shopping in China](http://soultravelers3new.local/2012/12/grocery-shopping-in-china.html)
-
-[![](http://i.zemanta.com/141946037_80_80.jpg)](http://soultravelers3new.local/2013/01/tropical-island-paradise.html)[Tropical Island Paradise?](http://soultravelers3new.local/2013/01/tropical-island-paradise.html)
-
-[![](http://i.zemanta.com/141783875_80_80.jpg)](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html)[Raw Eggs - Healthy or Not?](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html)

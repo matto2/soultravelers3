@@ -25,16 +25,16 @@ Hamleys is located a few blocks south of Oxford Circus tube station in an area r
   
 Other ideas for traveling kids and London?  
   
-[Free Museums in London](http://soultravelers3new.local/2010/10/family-travel-london-free-museums-educational-family-adventures-for-homeschool.html "free museums in London")  
+[Free Museums in London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/family-travel-london-free-museums-educational-family-adventures-for-homeschool.html "free museums in London")  
   
-[Globe Theatre for Free](http://soultravelers3new.local/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "globe theatre for free")
+[Globe Theatre for Free](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/07/family-travel-photoengland-globe-theatre-king-lear.html "globe theatre for free")
 
-[Elegant High Tea London](http://soultravelers3new.local/2009/10/family-travel-photo-england-knight-tapestry-high-tea.html "high tea london")  
+[Elegant High Tea London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/family-travel-photo-england-knight-tapestry-high-tea.html "high tea london")  
   
 You might also like  
 [  
-Best Toys for Travel](http://soultravelers3new.local/2011/09/best-toys-for-travel-.html "best toys for travel")  
+Best Toys for Travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/best-toys-for-travel-.html "best toys for travel")  
   
-[Toy Museum](http://soultravelers3new.local/2008/07/toy-museum.html "toy museum")  
+[Toy Museum](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/toy-museum.html "toy museum")  
   
-Have you been to Hamleys? How about [FAO Schwarz in NYC](http://soultravelers3new.local/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "FAO Schwarz")? Can kids learn in a toy store?
+Have you been to Hamleys? How about [FAO Schwarz in NYC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/10/best-halloween-europe-or-us-conde-nast-youtube-video-social-media-twitter-nyc-wendy-perrin.html "FAO Schwarz")? Can kids learn in a toy store?

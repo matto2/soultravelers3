@@ -6,7 +6,7 @@ categories:
   - "portugal"
 ---
 
- [![Picture_1_4](http://soultravelers3new.local/images/2008/07/08/picture_1_4.png "Picture_1_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/08/picture_1_4.png) More Youtube Videos Up  
+ [![Picture_1_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/07/08/picture_1_4.png "Picture_1_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/07/08/picture_1_4.png) More Youtube Videos Up  
 July 8, 2008
 
 We thought we would share some  

@@ -40,9 +40,9 @@ sunsets without the crowds?
 
 <!--more--> ![Bibinje Zadar Croatia 10 Best Travel Tips  world's best sunsets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302c8d399317f200c-2048x1291-1.jpg)  
   
-Want [Croatia'](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/croatia/index.html)s stunning [Dalmatian coast](http://soultravelers3new.local/2022/10/road-trip-croatia-montenegro.html) and [spectacular sunsets](http://soultravelers3new.local/2023/04/the-best-stunning-airbnb-in-dubrovnik-low-budget-.html) without the [sunseeking crowds](http://soultravelers3new.local/2010/07/how-to-travel-without-crowds-in-high-season-finding-bargains-peace-value-away-from-tourist-areas-tip.html)? Head north to [beautiful Bibinje](https://www.instagram.com/p/Cl6fuuxsc3u/) near [Zadar](https://www.instagram.com/p/CjbJW7kMlGM/)! It is a quirky seaside region rich in history and [natural beauty](https://youtube.com/shorts/xKwXxzk6Myo?si=vjF0DGlS5SXb7uu8%20) and still relatively undiscovered.  
+Want [Croatia'](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/soultravelers3/croatia/index.html)s stunning [Dalmatian coast](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2022/10/road-trip-croatia-montenegro.html) and [spectacular sunsets](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2023/04/the-best-stunning-airbnb-in-dubrovnik-low-budget-.html) without the [sunseeking crowds](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/how-to-travel-without-crowds-in-high-season-finding-bargains-peace-value-away-from-tourist-areas-tip.html)? Head north to [beautiful Bibinje](https://www.instagram.com/p/Cl6fuuxsc3u/) near [Zadar](https://www.instagram.com/p/CjbJW7kMlGM/)! It is a quirky seaside region rich in history and [natural beauty](https://youtube.com/shorts/xKwXxzk6Myo?si=vjF0DGlS5SXb7uu8%20) and still relatively undiscovered.  
   
-When we visited the [Best Ocean View Vineyard in Europe](http://soultravelers3new.local/2023/10/best-ocean-view-vineyard-in-europe.html), we were staying in Bibinje. This lovely village is blessed with lush, natural landscapes and decorated with the crystal-clear waters of the Adriatic Sea. [Bibinj](https://www.instagram.com/p/Cjsv7-0D1_i/)e is located on the north coast of Dalmatia, just 8 kilometers south of the city of Zadar. It is quieter and cheaper than Zadar, but close enough to enjoy everything in this area.
+When we visited the [Best Ocean View Vineyard in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2023/10/best-ocean-view-vineyard-in-europe.html), we were staying in Bibinje. This lovely village is blessed with lush, natural landscapes and decorated with the crystal-clear waters of the Adriatic Sea. [Bibinj](https://www.instagram.com/p/Cjsv7-0D1_i/)e is located on the north coast of Dalmatia, just 8 kilometers south of the city of Zadar. It is quieter and cheaper than Zadar, but close enough to enjoy everything in this area.
 
  **If you're looking for the best travel tips for a trip to Croatia, here are 10 great tips for visiting Bibinje:**
 
@@ -55,14 +55,14 @@ When we visited the [Best Ocean View Vineyard in Europe](http://soultravelers3ne
 <script src="//www.instagram.com/embed.js"></script>
 
   
-As I have often said, autumn is the best time to [travel to Europe](http://soultravelers3new.local/2022/07/cheapest-way-to-travel-europe-budget-travel-must-read.html#more) as one can [skip the heat and crowds of the summer high season](http://soultravelers3new.local/2010/07/how-to-travel-without-crowds-in-high-season-finding-bargains-peace-value-away-from-tourist-areas-tip.html "How To Travel Without Crowds In High Season!")! Additionally you can enjoy much better prices during the falll or spring shoulder seasons. [Bibinje](https://www.instagram.com/p/Cl6fuuxsc3u/) was included in my " [Europe in Autumn: 10 Best Fall Destinations](http://soultravelers3new.local/2023/10/europe-in-autumn-10-best-fall-destinations.html#more)!" post. In October the weather was like summer, but crowds and prices like winter.
+As I have often said, autumn is the best time to [travel to Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2022/07/cheapest-way-to-travel-europe-budget-travel-must-read.html#more) as one can [skip the heat and crowds of the summer high season](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/07/how-to-travel-without-crowds-in-high-season-finding-bargains-peace-value-away-from-tourist-areas-tip.html "How To Travel Without Crowds In High Season!")! Additionally you can enjoy much better prices during the falll or spring shoulder seasons. [Bibinje](https://www.instagram.com/p/Cl6fuuxsc3u/) was included in my " [Europe in Autumn: 10 Best Fall Destinations](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2023/10/europe-in-autumn-10-best-fall-destinations.html#more)!" post. In October the weather was like summer, but crowds and prices like winter.
 
 # **2) WATCH WORLD'S BEST SUNSETS  
 **
 
 “Zadar has the most beautiful sunset in the world, more beautiful than the one in Key West, in Florida, applauded at every evening.” - Alfred Hitchcock  
   
-Bibinje is right next to Zardar, so one enjoys the same stupendous sunsets. Only in Bibinje you have them all to yourself without crowds. Like Hitchcock, I have seen amazing sunsets around the world, ( including [Key West](http://soultravelers3new.local/2012/09/world-famous-key-west-sunset.html) many times) but I agree with him that they are the best in the world in this area.  
+Bibinje is right next to Zardar, so one enjoys the same stupendous sunsets. Only in Bibinje you have them all to yourself without crowds. Like Hitchcock, I have seen amazing sunsets around the world, ( including [Key West](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/world-famous-key-west-sunset.html) many times) but I agree with him that they are the best in the world in this area.  
   
 ![Bibinje Zadar Croatia 10 Best Travel Tips  world's best sunsets peace ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302c8d399317f200c-2048x1291-1.jpg)  
   
@@ -164,7 +164,7 @@ World-famous architect Nikola Bašić  created the Sea Organ & Greeting the Sun
 
 ![Bibinje Zadar Croatia 10 Best Travel Tips  Zardar world class sunsets ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302c8d399317f200c-2048x1291-1.jpg)  
   
-We were delighted and surprised to visit the [best ocean view vineyard in Europe](http://soultravelers3new.local/2023/10/best-ocean-view-vineyard-in-europe.html#more) here. I wrote about it last week with lots of tempting photos. It is a "must see" and not far from Bibinje and Zadar.
+We were delighted and surprised to visit the [best ocean view vineyard in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2023/10/best-ocean-view-vineyard-in-europe.html#more) here. I wrote about it last week with lots of tempting photos. It is a "must see" and not far from Bibinje and Zadar.
 
 ![Bibinje Zadar Croatia 10 Best Travel Tips  gorgeous ocean view winery winetasting ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883302c8d399317f200c-2048x1291-1.jpg)
 

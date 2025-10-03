@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2226](http://soultravelers3new.local/images/2008/04/27/img_2226.png "Img_2226")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2226.png) Goodbye Paris!  
+ [![Img_2226](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2226.png "Img_2226")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2226.png) Goodbye Paris!  
 October 4, 2006
 
 We have been enriched by this gorgeous  
@@ -15,7 +15,7 @@ exploring the countryside of this great nation.
 
 <!--more-->
 
-[![Img_2226_2](http://soultravelers3new.local/images/2008/04/27/img_2226_2.png "Img_2226_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2226_2.png)
+[![Img_2226_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2226_2.png "Img_2226_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2226_2.png)
 
 We have been enriched by this gorgeous city, but we are more than ready to start exploring the countryside of this great nation. We are headed south to greener pastures ....... and vines.
 
@@ -32,12 +32,12 @@ There was also a wonderful building that is a library near the Madeline stop whi
 Many, like the family we met, do not think Paris a good place for children, but we obviously do not agree. They said that kids hate museums and cultural things and I can not agree with that. I think young children should be taken to museums, altho I do think one does it differently than with adults. Just like reading ahead about visits to foreign lands makes it more enjoyable for adults to have a greater understanding and appreciation, I found that doubly true for a child. I think one has to use their creativity to find ways to help a child connect to the travel to make it meaningful. There are great children’s books about Paris, art and France that really enhance the journey before, during and after. I think one passes on ones love of books and museums and such to children by exposure and I am still grateful for the rich experiences I was given  
 as a child thru all the museums, national parks and travel we did. We all had a glorious time in this magnificent city and look forward to coming back for more.
 
-[![Img_2206](http://soultravelers3new.local/images/2008/04/27/img_2206.png "Img_2206")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2206.png)
+[![Img_2206](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2206.png "Img_2206")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2206.png)
 
-[![Img_2214](http://soultravelers3new.local/images/2008/04/27/img_2214.png "Img_2214")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2214.png)
+[![Img_2214](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2214.png "Img_2214")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2214.png)
 
-[![Img_2223](http://soultravelers3new.local/images/2008/04/27/img_2223.png "Img_2223")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2223.png)
+[![Img_2223](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2223.png "Img_2223")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2223.png)
 
-[![Img_2233](http://soultravelers3new.local/images/2008/04/27/img_2233.png "Img_2233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2233.png)
+[![Img_2233](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2233.png "Img_2233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2233.png)
 
-[![Img_2230](http://soultravelers3new.local/images/2008/04/27/img_2230.png "Img_2230")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2230.png)
+[![Img_2230](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2230.png "Img_2230")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2230.png)

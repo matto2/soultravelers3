@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_5362](http://soultravelers3new.local/images/2008/04/20/img_5362.png "Img_5362")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5362.png) Holiday Letter from Spain  
+ [![Img_5362](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5362.png "Img_5362")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5362.png) Holiday Letter from Spain  
 December 20, 2006
 
 We send you all great big “cyber-hugs” from  
@@ -15,7 +15,7 @@ and wish you the happiest of Holiday seasons
 
 <!--more-->
 
-[![Img_5362_2](http://soultravelers3new.local/images/2008/04/20/img_5362_2.png "Img_5362_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5362_2.png)
+[![Img_5362_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5362_2.png "Img_5362_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5362_2.png)
 
 Dearest Family and Friends,
 
@@ -68,10 +68,10 @@ for it is in giving that we receive,
 it is in pardoning that we are pardoned,  
 and it is in dying that we are born to eternal life.
 
-[![Img_5298](http://soultravelers3new.local/images/2008/04/20/img_5298.png "Img_5298")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5298.png)
+[![Img_5298](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5298.png "Img_5298")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5298.png)
 
-[![Img_5371](http://soultravelers3new.local/images/2008/04/20/img_5371.png "Img_5371")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5371.png)
+[![Img_5371](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5371.png "Img_5371")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5371.png)
 
-[![Img_5352](http://soultravelers3new.local/images/2008/04/20/img_5352.png "Img_5352")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5352.png)
+[![Img_5352](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5352.png "Img_5352")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5352.png)
 
-[![Img_5363](http://soultravelers3new.local/images/2008/04/20/img_5363.png "Img_5363")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5363.png)
+[![Img_5363](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5363.png "Img_5363")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5363.png)

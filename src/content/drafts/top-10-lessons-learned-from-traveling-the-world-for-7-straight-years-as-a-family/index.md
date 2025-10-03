@@ -4,7 +4,7 @@ date: 2012-10-02
 draft: true
 ---
 
-[![IMG_5519](https://soultravelers3.typepad.com/.a/6a00e5502a95078833017c32458a2f970b-200wi "IMG_5519")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017c32458a2f970b-pi)Top 10 Lessons Learned from Traveling  
+[![IMG_5519](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32458a2f970b.jpg "IMG_5519")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c32458a2f970b.jpg-pi)Top 10 Lessons Learned from Traveling  
 the World for 7 Straight Years as a Family  
   
   
@@ -15,7 +15,7 @@ the World for 7 Straight Years as a Family
   
   
 
-<!--more--> [![IMG_5519](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017ee3e9243b970d-800wi "IMG_5519")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833017ee3e9243b970d-pi)  
+<!--more--> [![IMG_5519](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3e9243b970d.jpg "IMG_5519")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3e9243b970d.jpg-pi)  
   
   
   

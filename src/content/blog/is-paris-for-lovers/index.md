@@ -40,21 +40,21 @@ The City of Light is one of the most romantic cities in the world, but can't you
 **OUR FAVORITE ROMANTIC PLACES IN PARIS**  
   
 [  
-Paris Travel Guide](http://soultravelers3new.local/2011/04/paris-france-travel-guide-by-mozart.html "Paris travel guide")  
+Paris Travel Guide](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/04/paris-france-travel-guide-by-mozart.html "Paris travel guide")  
   
-[Arc de Triumph and chocolate](http://soultravelers3new.local/2006/09/sun-arc-de-triu.html "arc de triumph")  
+[Arc de Triumph and chocolate](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/sun-arc-de-triu.html "arc de triumph")  
   
-[Sacre Cour & Montmarte](http://soultravelers3new.local/2006/10/sacre-coeur-mon.html#more "sacre coeur & montmartre")  
+[Sacre Cour & Montmarte](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/10/sacre-coeur-mon.html#more "sacre coeur & montmartre")  
   
-[Madeline, Linea, and d'Orsay](http://soultravelers3new.local/2006/09/madeline-linea.html "madeline, linea, D'Orsay for kids Paris")  
+[Madeline, Linea, and d'Orsay](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/madeline-linea.html "madeline, linea, D'Orsay for kids Paris")  
   
-[Paris Travel With Kids](http://soultravelers3new.local/2011/08/paris-travel-with-kids.html "Paris Travel with kids")  
+[Paris Travel With Kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/paris-travel-with-kids.html "Paris Travel with kids")  
   
   
-[Beautiful Notre Dame](http://soultravelers3new.local/2011/07/family-travel-paris-notre-dame-photo.html "Beautiful Notre Dame photo")  
+[Beautiful Notre Dame](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/family-travel-paris-notre-dame-photo.html "Beautiful Notre Dame photo")  
 [  
-Louvre](http://soultravelers3new.local/2011/03/-family-travel-paris-france-louvre-photo.html "Louvre in Paris")  
+Louvre](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/03/-family-travel-paris-france-louvre-photo.html "Louvre in Paris")  
   
-[Best Free Wifi in Paris](http://soultravelers3new.local/2010/10/free-wifi-travel-office-paris-digital-nomad-technomad-minimalist-workshift-mobile-work-on-the-road.html "best free wifi in Paris")  
+[Best Free Wifi in Paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/free-wifi-travel-office-paris-digital-nomad-technomad-minimalist-workshift-mobile-work-on-the-road.html "best free wifi in Paris")  
   
-[Celebrating in Paris](http://soultravelers3new.local/2010/10/celebrating-in-paris-eiffel-tower-family-travel-adventures-abroad-birthdays-weddings-and-anniversari.html "Celebrating in Paris best tips")
+[Celebrating in Paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/celebrating-in-paris-eiffel-tower-family-travel-adventures-abroad-birthdays-weddings-and-anniversari.html "Celebrating in Paris best tips")

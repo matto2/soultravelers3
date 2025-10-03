@@ -4,14 +4,14 @@ date: 2021-12-29
 draft: true
 ---
 
-[![Uwe4GcRu_400x400](https://soultravelers3.typepad.com/.a/6a00e5502a95078833027880663555200d-200wi "Uwe4GcRu_400x400")](https://soultravelers3.typepad.com/.a/6a00e5502a95078833027880663555200d-pi)"Don't Look up" Best Movie  
+[![Uwe4GcRu_400x400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833027880663555200d.jpg "Uwe4GcRu_400x400")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833027880663555200d.jpg-pi)"Don't Look up" Best Movie  
 of the Year!  
   
   
   
   
 
-<!--more--> [![Uwe4GcRu_400x400](https://soultravelers3.typepad.com/.a/6a00e5502a950788330278806636f9200d-500wi "Uwe4GcRu_400x400")](https://soultravelers3.typepad.com/.a/6a00e5502a950788330278806636f9200d-pi)  
+<!--more--> [![Uwe4GcRu_400x400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278806636f9200d.jpg "Uwe4GcRu_400x400")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330278806636f9200d.jpg-pi)  
 Is "Don't Look Up" the best movie of the year? It's a truly terrifying, yet very funny satire and commentary about our cultural apathy, corrupt government and media and it went super viral on Netflix purely by word of mouth! We haven't had a movie that has captured the zeitgeist like this since "Dr Strangelove" and "Network".   
   
 "Adam McKay’s new movie may be the first film in 57 years to equal the comedy and horror of Stanley Kubrick’s masterpiece." - Jon Schwarz in Intercept   
@@ -41,7 +41,7 @@ is making it go viral is that it expressed so clearly the total insanity of this
   
   
   
-On the surface, [#DontLookUp![](http://soultravelers3new.local/wp-content/uploads/2025/09/Netflix_DontLookUpFilm_2021.png)](https://twitter.com/hashtag/DontLookUp?src=hashtag_click) is a clever satire making fun of dumb ass Republican legislators and their cult-like supporters. But it’s a truly terrifying social commentary about capitalism and our apathy towards climate change. Best film of the year.
+On the surface, [#DontLookUp![](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/Netflix_DontLookUpFilm_2021.png)](https://twitter.com/hashtag/DontLookUp?src=hashtag_click) is a clever satire making fun of dumb ass Republican legislators and their cult-like supporters. But it’s a truly terrifying social commentary about capitalism and our apathy towards climate change. Best film of the year.
 
 Dylan Park https://twitter.com/dyllyp/status/1474597967289929729?s=20  
   
@@ -67,7 +67,7 @@ In my opinion there were some great acting and writing bits in this film ,but wh
 
 is making it go viral is that it expressed so clearly the total insanity of this corrupt government/politics & corrupt media/culture moment so perfectly on Netflix at xmas as covid exploded again & nothing the vast majority of people wants and needs gets done to save us or the planet. It is a great wake up call movie that suits this moment in time. THAT is what makes it great and why so many are watching it and talking about it. Not the critics, but real people.
 
-I am so so so tired of dark, dreary so called "art" films ( and wrote a review of this one - [http://soultravelers3new.local/.../nomadland-is-the-worst...](https://l.facebook.com/l.php?u=https%3A%2F%2Fwww.soultravelers3.com%2F2021%2F02%2Fnomadland-is-the-worst-movie-ever-.html%3Ffbclid%3DIwAR3RTAfM990K1m5KgOCrNgWl_7eiRND1AKjSj8mDOSp9K-XgOsWIW9WszaQ&h=AT0edFt2fukx8Z1PbaGEwtAwBDdh0_wqZpRK00Yin5BcdVo6-ZmHss7qBYdiEbgM8xtbowF-qTNC7RlGumAerlzrIcXw-3U7jI4h9-J-I0TFQhlMoiygvfgslv5dhf3D3o0ZlckWP7DHQWFSk9fj2Vc&__tn__=R]-R&c[0]=AT2Qy6WD7CizEU3yde-FRLmWdku6whqY9ZtL0utia8QM8Qdch85wmjh2irWjGRK1P2nAGhP-miOHNethUS180HusLjpWM4ovDA2vUf7I0QgxRd6Antvh4cKU_KwvZIYJi-BpHe4e3KA9ae18g9uD)) that suck, but get high praise from the "bought" PR machine.
+I am so so so tired of dark, dreary so called "art" films ( and wrote a review of this one - [https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/.../nomadland-is-the-worst...](https://l.facebook.com/l.php?u=https%3A%2F%2Fwww.soultravelers3.com%2F2021%2F02%2Fnomadland-is-the-worst-movie-ever-.html%3Ffbclid%3DIwAR3RTAfM990K1m5KgOCrNgWl_7eiRND1AKjSj8mDOSp9K-XgOsWIW9WszaQ&h=AT0edFt2fukx8Z1PbaGEwtAwBDdh0_wqZpRK00Yin5BcdVo6-ZmHss7qBYdiEbgM8xtbowF-qTNC7RlGumAerlzrIcXw-3U7jI4h9-J-I0TFQhlMoiygvfgslv5dhf3D3o0ZlckWP7DHQWFSk9fj2Vc&__tn__=R]-R&c[0]=AT2Qy6WD7CizEU3yde-FRLmWdku6whqY9ZtL0utia8QM8Qdch85wmjh2irWjGRK1P2nAGhP-miOHNethUS180HusLjpWM4ovDA2vUf7I0QgxRd6Antvh4cKU_KwvZIYJi-BpHe4e3KA9ae18g9uD)) that suck, but get high praise from the "bought" PR machine.
 
 Timing is part of what made this so great and why it is going viral and making many think. THAT is what makes it extraordinary. It is the perfect film for this moment in time. Not in theaters ( where no one goes now) but on Netflix where the world congregates right now during this annual
 

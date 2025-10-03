@@ -44,7 +44,7 @@ Year in Asia, you will always
 <!--more-->  
 ![Soultravelers3 in Asia for Chinese New Year temple ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8671200d.jpg)  
   
-Once you experience [Lunar New Year](http://soultravelers3new.local/2019/02/exploring-china-town-los-angeles-chinese-new-year-.html "Lunar New Year celebrations & travel") or [Chinese New Year in Asia,](http://soultravelers3new.local/2013/02/chinese-new-year-in-asia.html "Chinese New Year in Asia ") you will always remember it and what a big and special holiday it is in Asia. One of the funny things about [family travel](http://soultravelers3new.local/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "round the world family travel ") is where it takes you long after your trip or visit to a country.   
+Once you experience [Lunar New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2019/02/exploring-china-town-los-angeles-chinese-new-year-.html "Lunar New Year celebrations & travel") or [Chinese New Year in Asia,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/chinese-new-year-in-asia.html "Chinese New Year in Asia ") you will always remember it and what a big and special holiday it is in Asia. One of the funny things about [family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/around-the-world-family-travel-soultravelers3-digital-nomad-global-international-family-travel.html "round the world family travel ") is where it takes you long after your trip or visit to a country.   
   
 ![Heavenly Reyna in Shanghai  China with Soultravelers3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330240a4df8c90200d-300x215-1.jpg)
 

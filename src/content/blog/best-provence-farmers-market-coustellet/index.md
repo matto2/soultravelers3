@@ -42,7 +42,7 @@ spectacular farmers markets. We
 
 <!--more--> ![Best Provence Farmers' Market - Coustellet ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09b5f298970d.png)  
   
-One of the great joys of [visiting Provence](http://soultravelers3new.local/2012/10/beautiful-provence-tips-and-photo-avignon-france-.html "beautiful Provence Tips ") is the exquisite [food](http://soultravelers3new.local/2010/09/family-travel-food.html "family travel food") and visiting colorful, lively farmers markets which are so much a part of the culture. We were lucky to visit some of the best in [southern France](http://soultravelers3new.local/2010/08/stunning-horses-in-the-camargue-france-family-travel-ideal-vacation-holiday-saintes-maries-de-la-mer.html "Stunning Horses in the Camargue, France") and especially fortuitous to visit the [Coustellet Farmers' Market](https://www.tripadvisor.com/ShowUserReviews-g616128-d6777520-r364679844-Marche_de_Coustellet-Coustellet_Luberon_Vaucluse_Provence_Alpes_Cote_d_Azur.html) with Thierry, the owner/chef  of the spectacular [Le Mas Des Gres](http://masdesgres.com/en/ "Le Mas des Gres charming hotel Provence")  ( a quintessential Provencal farmhouse and small charming hotel) where we stayed in the heart of Provence.   
+One of the great joys of [visiting Provence](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/beautiful-provence-tips-and-photo-avignon-france-.html "beautiful Provence Tips ") is the exquisite [food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/09/family-travel-food.html "family travel food") and visiting colorful, lively farmers markets which are so much a part of the culture. We were lucky to visit some of the best in [southern France](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/08/stunning-horses-in-the-camargue-france-family-travel-ideal-vacation-holiday-saintes-maries-de-la-mer.html "Stunning Horses in the Camargue, France") and especially fortuitous to visit the [Coustellet Farmers' Market](https://www.tripadvisor.com/ShowUserReviews-g616128-d6777520-r364679844-Marche_de_Coustellet-Coustellet_Luberon_Vaucluse_Provence_Alpes_Cote_d_Azur.html) with Thierry, the owner/chef  of the spectacular [Le Mas Des Gres](http://masdesgres.com/en/ "Le Mas des Gres charming hotel Provence")  ( a quintessential Provencal farmhouse and small charming hotel) where we stayed in the heart of Provence.   
   
 ![Best Provence Farmers' Market  - Coustellet in the Luberon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c912e087970b.png)  
   
@@ -84,7 +84,7 @@ Thierry and his teen aged son Yanis come here every Sunday and know everyone as 
   
 ![Best Provence Farmers' Market  - Coustellet in the Luberon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d29d2a52970c.png)  
   
-We were up early for this market ( and I let [Mozart](http://soultravelers3new.local/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html "teen singer Mozart singing her song \"Dear Heart\" ") sleep in) as we went to another famous antique market at nearby L’Isle sur la Sorgue before lunch. I will write a separate post about that thrilling market.   
+We were up early for this market ( and I let [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/03/mozart-sings-her-original-song-dear-heart-official-music-video.html "teen singer Mozart singing her song \"Dear Heart\" ") sleep in) as we went to another famous antique market at nearby L’Isle sur la Sorgue before lunch. I will write a separate post about that thrilling market.   
   
 ![Truffles in Best Provence Farmers' Market  - Coustellet in the Luberon](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d29d2a7f970c.png)  
   
@@ -118,7 +118,7 @@ So loved this appetizing Provence market experience, but it was time to head bac
   
 ![Hotel Les Mas Des Gres in Provence Luberon area ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c912f570970b.png)  
   
-Mozart had performed at this magnificent terrace at dinner the night before ( we'll be posting that story soon) and was happy to perform again for the crowd at  their famous Sunday Brunch/Lunch. After her [Keynote Speech in the UK](http://soultravelers3new.local/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html#more "Mozart Dee Keynote Speech in UK") at the Baltic Centre of Contemporary Art, (seen [here)](https://www.youtube.com/watch?v=VMcNRYjsEt0&feature=youtu.be&a "Mozart Dee's Keynote Speech in England"), she did a 10 city concert tour in Europe and Provence was the charming midpoint on her #MozartIgniteTour.   
+Mozart had performed at this magnificent terrace at dinner the night before ( we'll be posting that story soon) and was happy to perform again for the crowd at  their famous Sunday Brunch/Lunch. After her [Keynote Speech in the UK](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html#more "Mozart Dee Keynote Speech in UK") at the Baltic Centre of Contemporary Art, (seen [here)](https://www.youtube.com/watch?v=VMcNRYjsEt0&feature=youtu.be&a "Mozart Dee's Keynote Speech in England"), she did a 10 city concert tour in Europe and Provence was the charming midpoint on her #MozartIgniteTour.   
   
 ![Mozart about to perform in Provence at Hotel Les Mas Des Gres](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c912f5c0970b.png)  
   
@@ -146,10 +146,3 @@ Mozart's original songs and light-up-the-world smile just added to our perfect d
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/AV2HaSuD0FAAoAWTSzFj_80_80.jpg)](http://soultravelers3new.local/2017/07/visiting-the-best-lavender-fields-in-provence-.html)[Visiting the Best Lavender Fields in Provence - Soul Travelers 3](http://soultravelers3new.local/2017/07/visiting-the-best-lavender-fields-in-provence-.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)

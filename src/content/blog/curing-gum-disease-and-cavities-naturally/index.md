@@ -30,7 +30,7 @@ cavities naturally? Absolutely!
 
 <!--more--> ![yes, you can heal cavities and gum disease naturally](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d421fe6da970c.jpg)  
   
-Can you cure gum disease, re-grow bone loss and [cure cavities naturally](http://thedentalessentials.wordpress.com/ "cure cavities naturally")? Absolutely! I only wish I had known all this information earlier. [Mozart](http://soultravelers3new.local/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "Ted talk inspiring 12 year old") just lost her last baby tooth at 12, so her teeth are still coming in and finding their place, as you see in this photo, thus I am grateful that I at least got some of this additional information at this point. Many have [healed severe cavities](http://www.mommypotamus.com/can-a-weston-a-price-diet-reverse-tooth-decay/ "healing severe cavities") and [avoided braces](http://wellnessmama.com/1756/how-toreverse-tooth-decay-and-avoid-braces-by-changing-one-dietary-factor/ "avoid braces") just by correct diet.  
+Can you cure gum disease, re-grow bone loss and [cure cavities naturally](http://thedentalessentials.wordpress.com/ "cure cavities naturally")? Absolutely! I only wish I had known all this information earlier. [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/mandarin-ted-talk-american-kids-inspiring-chinese-speech-.html "Ted talk inspiring 12 year old") just lost her last baby tooth at 12, so her teeth are still coming in and finding their place, as you see in this photo, thus I am grateful that I at least got some of this additional information at this point. Many have [healed severe cavities](http://www.mommypotamus.com/can-a-weston-a-price-diet-reverse-tooth-decay/ "healing severe cavities") and [avoided braces](http://wellnessmama.com/1756/how-toreverse-tooth-decay-and-avoid-braces-by-changing-one-dietary-factor/ "avoid braces") just by correct diet.  
   
 **IF YOU HAVE CAVITIES OR GUM PROBLEMS YOU ARE NOT HEALTHY**   
   
@@ -48,13 +48,13 @@ According to the US Surgeon General’s report on Oral Health published in 2000,
 According to the US Surgeon General’s report on Oral Health published in 2000, the mouth—including the teeth, gums, and supporting bone structures—is a “mirror for general health and well-being.” - See more at: http://www.cdeworld.com/courses/4495#sthash.YP1gnpIx.dpuf
 
   
-I could have saved myself a lot of [dental travel problems](http://soultravelers3new.local/2008/05/dentists-travel.html "dental travel problems"), if I had known what I know now. I have been lucky as far as cavities are concerned as I only had my first at age 36 and that was a tiny pin point. Now I know I could have cured that easily with diet as that information has been proven by Harvard educated  Dr. Weston A. Price long ago in his [FREE book](http://journeytoforever.org/farm_library/price/pricetoc.html "weston price free book - Nutrition and physical degeneration") ...one EVERYONE should read. I have mentioned this before in [travel health](http://soultravelers3new.local/health-and-travel/page/2/ "travel health information") posts as it is a powerful book for anyone looking for healing on any level.  
+I could have saved myself a lot of [dental travel problems](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/dentists-travel.html "dental travel problems"), if I had known what I know now. I have been lucky as far as cavities are concerned as I only had my first at age 36 and that was a tiny pin point. Now I know I could have cured that easily with diet as that information has been proven by Harvard educated  Dr. Weston A. Price long ago in his [FREE book](http://journeytoforever.org/farm_library/price/pricetoc.html "weston price free book - Nutrition and physical degeneration") ...one EVERYONE should read. I have mentioned this before in [travel health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/health-and-travel/page/2/ "travel health information") posts as it is a powerful book for anyone looking for healing on any level.  
   
 ( As well as many others like Dr. Melvin Page, [Dr. Edward Mellanby](http://wellnessmama.com/1756/how-toreverse-tooth-decay-and-avoid-braces-by-changing-one-dietary-factor/ "Drs Mellanby curing cavities"), Dr. [May Mellanby](http://www.thedentalessentials.com/Dr_Mellanby_s_trials_s/38.htm "Drs mellanby") etc who have the studies also to prove the science). It's even been published in ADA literature, but sadly, they do try to keep this information away from people or that dentistry hasn't really changed much since the Civil War. Lots of good information in this [cure tooth decay](http://www.curetoothdecay.com/Tooth_Decay/tooth_decay_overview.htm "cure tooth decay") blog and book.  
   
 **RAW GOATS MILK, BONE BROTHS, FERMENTED COD LIVER OIL ARE KEYS**  
   
-We have found a great reliable source for fresh,  raw, grass fed goats milk in Penang, [kefir](http://soultravelers3new.local/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make kefir from goats milk") and pastured chickens for [bone broth](http://soultravelers3new.local/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth"), so drinking lots of each daily ( which are keys).  I will be writing more about our latest diet protocols that are working for us for cavity healing and prevention as well as over all health.  
+We have found a great reliable source for fresh,  raw, grass fed goats milk in Penang, [kefir](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/07/-how-to-make-kefir-easy-goats-milk-or-coconut-milk.html "how to make kefir from goats milk") and pastured chickens for [bone broth](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/how-to-make-nourishing-bone-broth-recipes-to-heal.html "bone broth"), so drinking lots of each daily ( which are keys).  I will be writing more about our latest diet protocols that are working for us for cavity healing and prevention as well as over all health.  
   
 **50 MILLION PEOPLE IN THE U.S. HAVE GUM DISEASE**  
   
@@ -69,7 +69,7 @@ Despite dentists regularly warning me to get periodontal surgery for decades or 
   
 This is a full mouth xray of my teeth in 2006. After much research, many years of regular dental cleanings and check ups every three months plus impeccable daily home oral care and attention to a healthy diet, I was begining to solve or at least make head way with the problem, but I still had severe gum disease and severe bone loss.  
   
-I had 8 and 10 centimeters of bone loss on many of my teeth and nothing less than 5 centimeters which is considered severe periodontal disease. Several teeth were at risk when we took off on our [world tour](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "family world tour") ( and I lost two [along the way](http://soultravelers3new.local/2007/03/doctors-and-den.html "dentistal work while traveling in Europe")). Horrifically sad to lose teeth that have almost no cavities, yet dentists had little to offer me.  
+I had 8 and 10 centimeters of bone loss on many of my teeth and nothing less than 5 centimeters which is considered severe periodontal disease. Several teeth were at risk when we took off on our [world tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "family world tour") ( and I lost two [along the way](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/doctors-and-den.html "dentistal work while traveling in Europe")). Horrifically sad to lose teeth that have almost no cavities, yet dentists had little to offer me.  
   
 **GUM DISEASE MEANS INCREASE RISK FOR HEART DISEASE, STROKE, CANCER AND DIABETES**  
   
@@ -111,22 +111,3 @@ Any questions or thoughts on this topic?
 
 Related articles
 
-[![](http://i.zemanta.com/143441271_80_80.jpg)](http://soultravelers3new.local/2013/02/how-to-make-diy-goat-cheese-with-kefir.html)[How to Make DIY Goat Cheese with Kefir](http://soultravelers3new.local/2013/02/how-to-make-diy-goat-cheese-with-kefir.html)
-
-[![](http://i.zemanta.com/146963904_80_80.jpg)](http://soultravelers3new.local/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html)[How to Make Homemade Lacto-Fermented Mayonnaise](http://soultravelers3new.local/2013/02/how-to-make-homemade-lacto-fermented-mayonnaise.html)
-
-[![](http://i.zemanta.com/141783875_80_80.jpg)](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html)[Raw Eggs - Healthy or Not?](http://soultravelers3new.local/2013/01/raw-eggs-healthy-or-not.html)
-
-[![](http://i.zemanta.com/147811338_80_80.jpg)](http://soultravelers3new.local/2013/02/eating-in-paris.html)[Eating in Paris](http://soultravelers3new.local/2013/02/eating-in-paris.html)
-
-[![](http://i.zemanta.com/149896182_80_80.jpg)](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html)[Top Packing Tip for Long Term Travel](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html)
-
-[![](http://i.zemanta.com/141946037_80_80.jpg)](http://soultravelers3new.local/2013/01/tropical-island-paradise.html)[Tropical Island Paradise?](http://soultravelers3new.local/2013/01/tropical-island-paradise.html)
-
-[![](http://i.zemanta.com/148453097_80_80.jpg)](http://soultravelers3new.local/2013/02/worlds-best-festival-.html)[World's Best Festival? Stunning Photos!](http://soultravelers3new.local/2013/02/worlds-best-festival-.html)
-
-[![](http://i.zemanta.com/148973016_80_80.jpg)](http://soultravelers3new.local/2013/03/europe-sidewalk-cafes.html)[Europe Sidewalk Cafes](http://soultravelers3new.local/2013/03/europe-sidewalk-cafes.html)
-
-[![](http://i.zemanta.com/147221099_80_80.jpg)](http://soultravelers3new.local/2013/02/europes-rustic-old-world-charm-romantic-road.html)[Europe's Rustic old world charm - Romantic Road](http://soultravelers3new.local/2013/02/europes-rustic-old-world-charm-romantic-road.html)
-
-[![](http://i.zemanta.com/141410675_80_80.jpg)](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)[Learning Mandarin in Beijing, China - Best School](http://soultravelers3new.local/2013/01/learning-mandarin-in-beijing-china-best-school.html)

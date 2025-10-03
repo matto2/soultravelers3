@@ -19,7 +19,7 @@ tags:
   - "world-school"
 ---
 
- [![IMG_9664](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffcaed6970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301310ffcaed6970c-150x150.jpg)Long Term Family Travel  = Homeschool Roadschool World School  
+ [![IMG_9664](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffcaed6970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301310ffcaed6970c-150x150.jpg)Long Term Family Travel  = Homeschool Roadschool World School  
 March 30, 2010
 
 Long term travel, digital nomad,  
@@ -32,9 +32,9 @@ location independent, lifestyle design,
 _London Apple Store Oxford Circus_
 
   
-Long term travel, [digital nomad](http://www.digitalnomads.com/), location independent, lifestyle design, [4-Hour Workweek](http://www.fourhourworkweek.com/), round-the-world trip, [extended travel](http://soultravelers3new.local/2008/06/how-to-do-exten.html), perpetual travelers, mini-retirement, sabbatical, permanent vacation, year off ...no matter the term, if you do it as a family, [education](http://soultravelers3new.local/education.html) will be of primary importance. More so if you do it with children in the primary years, [tweens](http://soultravelers3new.local/2009/06/-6-month-european-family-road-trip-09.html) or teens.
+Long term travel, [digital nomad](http://www.digitalnomads.com/), location independent, lifestyle design, [4-Hour Workweek](http://www.fourhourworkweek.com/), round-the-world trip, [extended travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html), perpetual travelers, mini-retirement, sabbatical, permanent vacation, year off ...no matter the term, if you do it as a family, [education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/education.html) will be of primary importance. More so if you do it with children in the primary years, [tweens](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/06/-6-month-european-family-road-trip-09.html) or teens.
 
-Even if you do not have children yet, if you live or plan an [ultra mobile lifestyle](http://soultravelers3new.local/2008/04/3-laptop-fami-2.html), you should think in these terms because it is one of the [best ways to educate](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) and prepare children to be global citizens of the 21st century. [Our world and education](http://soultravelers3new.local/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html) is going through a [huge change  today.  
+Even if you do not have children yet, if you live or plan an [ultra mobile lifestyle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/3-laptop-fami-2.html), you should think in these terms because it is one of the [best ways to educate](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) and prepare children to be global citizens of the 21st century. [Our world and education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/01/seth-godin-lynchpin-education-travel-new-economy-digital-nomad.html) is going through a [huge change  today.  
 ](http://www.stevehargadon.com/2010/03/new-education-for-digital-world-event.html)
 
 [  
@@ -96,9 +96,9 @@ Do you feel you have achieved or that you are in the process of achieving your g
 
 Absolutely! We had very high expectations, but the reality has far surpassed anything we could have dreamed about. My daughter was 5 when we started (but reading well at a Harry Potter level and doing school work many years ahead of age peers in every area) and just turned 9 and we feel she has gotten the best possible education through our travel, homeschooling, web connections and deep immersion in her second language, literature and culture by attending a local school in Spain for five months every winter since 2006. It became clear before she was 5 that even great public or private schools would not meet her needs, so our journey was/is an out of the box way to handle that challenge.
 
-The incredible family bonding and such rich shared experiences through the travel has been a priceless blessing beyond words. We have been to 4 continents, 32 countries, traveled over 175,000 miles (most overland) and used every mode of transportation from cargo ships to [camels](http://soultravelers3new.local/2007/04/sahara-rainbow.html), stayed in a [Berber tent in the Sahara](http://soultravelers3new.local/2007/04/les-nomades-sah.html), 5000 year old cave in Cappadocia, Turkey as well as luxury hotels in Provence and Salzburg etc.  One can not experience so much together without it affecting you deeply.
+The incredible family bonding and such rich shared experiences through the travel has been a priceless blessing beyond words. We have been to 4 continents, 32 countries, traveled over 175,000 miles (most overland) and used every mode of transportation from cargo ships to [camels](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/sahara-rainbow.html), stayed in a [Berber tent in the Sahara](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/les-nomades-sah.html), 5000 year old cave in Cappadocia, Turkey as well as luxury hotels in Provence and Salzburg etc.  One can not experience so much together without it affecting you deeply.
 
-We have found it such a rewarding and life-enriching family lifestyle that we have no plans on stopping and know that it will continue to awe us and enhance her education like nothing else could. We are really honored that we have been chosen as a [featured case study for the new edition](http://soultravelers3new.local/2010/03/the-4hour-workweek-review-by-world-traveling-family-rich-global-digital-lifestyle-design.html) of the [4Hour Work Week](http://www.fourhourworkweek.com/blog/) and hope we can encourage others to find there own way to do family extended travel!
+We have found it such a rewarding and life-enriching family lifestyle that we have no plans on stopping and know that it will continue to awe us and enhance her education like nothing else could. We are really honored that we have been chosen as a [featured case study for the new edition](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/the-4hour-workweek-review-by-world-traveling-family-rich-global-digital-lifestyle-design.html) of the [4Hour Work Week](http://www.fourhourworkweek.com/blog/) and hope we can encourage others to find there own way to do family extended travel!
 
 ![girl doing homeschool roadschool world school in RV motorhome Europe family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd6609970c.jpg)  
 _Roadschooling at it's finest as we RV between countries in Europe_
@@ -108,7 +108,7 @@ How did you deal with educating your children while you were traveling?**
 
 Books are and always have been the mainstay of our homeschool. Raise a reader and life becomes easy because they learn so much on their own just having fun! We bring more books on our travels than anything else and  many are geared to our travel. We are bookaholics and started reading to her in two languages daily starting in the womb!
 
-Recently we toured Melk Abbey and the tour guide was astounded that our 8 year old knew so much about Austrian history. When we were touring ancient ruins in Greece and Turkey, an American  teacher that sailed with us aboard the [gulet sailboat along Turkey’s Turquoise Coast](http://soultravelers3new.local/2007/07/sailing-away.html), said our then 6 year old knew more about Greek Myths than he did! The secret? Just feeding great books before, during and after travel!
+Recently we toured Melk Abbey and the tour guide was astounded that our 8 year old knew so much about Austrian history. When we were touring ancient ruins in Greece and Turkey, an American  teacher that sailed with us aboard the [gulet sailboat along Turkey’s Turquoise Coast](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/07/sailing-away.html), said our then 6 year old knew more about Greek Myths than he did! The secret? Just feeding great books before, during and after travel!
 
 Our basics for on the road homeschool is Singapore Math (our 8 yo is doing 6/7th grade math), books geared to the travel like historical fiction, Core Knowlege series (our 8yo is doing 5th grade), Brain pop, Educational CD’s like Zoombini’s, Mathra, Zoo Tycoon,Storybook Weaver plus journal-ing every day, book reports, lots of discussion, games, violin & piano practice, story of the world at bedtime…plus legos & snap circuit!
 
@@ -132,7 +132,7 @@ We wanted to do our serious, extended educational travel at an age when our chil
 
 Thus the ideal age depends on your reasons for doing the extended travel. For some folks it is parent led, but ours is definitely child’s education led. I do think that kid’s that are reading well will benefit the most from extended travel and be able to participate much more in the whole experience from reading menus, to reading in museums and helping out with subway maps, guide books etc (besides books).
 
-[![IMG_6386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd9f0b970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301310ffd9f0b970c-300x245.jpg) 
+[![IMG_6386](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301310ffd9f0b970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301310ffd9f0b970c-300x245.jpg) 
 
 _Lost in a book about Poland on the long train ride to Krakow, Poland_
 

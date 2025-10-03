@@ -17,7 +17,7 @@ and can not help but make your
 
 ![IMG_4369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301157237f999970b.jpg)
 
-OMG! The tapa pub crawl in San Sebastian is like no where else and can not help but make your [tummy so happy](http://www.youtube.com/watch?v=z7Q7dqqNYC8) and [satisfied](http://www.timesonline.co.uk/tol/travel/destinations/spain/article566949.ece) that you really begin to "get" this city and it's charms. This is family travel at it's most fun! We've had lots of tremendous [tapa crawls](http://soultravelers3new.local/2007/03/tapas.html) in Spain and a fun singing pub crawl in Dingle, Ireland, but this city outshines them all. No "[foodie"](http://en.wikipedia.org/wiki/Foodie) should miss this and even if you are not a "foodie" you should not miss it.
+OMG! The tapa pub crawl in San Sebastian is like no where else and can not help but make your [tummy so happy](http://www.youtube.com/watch?v=z7Q7dqqNYC8) and [satisfied](http://www.timesonline.co.uk/tol/travel/destinations/spain/article566949.ece) that you really begin to "get" this city and it's charms. This is family travel at it's most fun! We've had lots of tremendous [tapa crawls](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/tapas.html) in Spain and a fun singing pub crawl in Dingle, Ireland, but this city outshines them all. No "[foodie"](http://en.wikipedia.org/wiki/Foodie) should miss this and even if you are not a "foodie" you should not miss it.
 
  ![IMG_4380](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011571436e07970c-scaled-1.jpg)   
 

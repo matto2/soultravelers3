@@ -35,7 +35,7 @@ music and jets off on a European tour 
 
 <!--more--> ![Mozart's amazing tour of Europe #MozartIgniteTour ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d28946db970c.png)  
   
-16 year old [child prodigy, Mozart Dee](http://soultravelers3new.local/2016/04/mozart-wins-best-actress-award-.html "Mozart Dee wins best actress ") is ready for the world to hear her new music and jets off on a [European summer Tour](https://www.instagram.com/p/BU7QI0ijAaH/?taken-by=muzicbymozart "Mozart Dee Europe tour ")   (#MozartsIgniteTour ) from Los Angeles this week hitting such cities as [London](http://soultravelers3new.local/2013/05/london-with-kids.html), Edinburgh, Newcastle, Barcelona, Paris, Girona, Marseille, Malaga and Marbella.   
+16 year old [child prodigy, Mozart Dee](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/04/mozart-wins-best-actress-award-.html "Mozart Dee wins best actress ") is ready for the world to hear her new music and jets off on a [European summer Tour](https://www.instagram.com/p/BU7QI0ijAaH/?taken-by=muzicbymozart "Mozart Dee Europe tour ")   (#MozartsIgniteTour ) from Los Angeles this week hitting such cities as [London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/05/london-with-kids.html), Edinburgh, Newcastle, Barcelona, Paris, Girona, Marseille, Malaga and Marbella.   
   
 ![Travel planning  ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d28973b8970c.png)  
   
@@ -45,7 +45,7 @@ Traveling the world is something she knows a lot about as she has been to 48 cou
   
 After arriving in London, she will begin the tour with a performance on June 8th at the prestigious Baltic Centre of Contemporary Art, also a talk and concert at a large private school in Newcastle and then on June 9th being the youngest Keynote Speaker at the distinguished Tech on the Tyne Conference talking about her unique world schooling education and how growing up global has impacted her creativity, languages and career.   
   
-[Mozart was a Keynote Speaker at the NAACE Conference](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html "Mozart Dee Keynote Speaker NAACE") in 2015 and [Mozart Dee was asked to do a TED talk](http://soultravelers3new.local/2017/05/16-year-old-mozart-dees-ted-talk-keynote-speech-in-ukteen-actress-songwriter-singer-mozart-dee-was-asked-to-do-a-ted-talk.html "Mozart Dee TED talk ") last December in the UK by educators interested in her one-of-a-kind education.   
+[Mozart was a Keynote Speaker at the NAACE Conference](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html "Mozart Dee Keynote Speaker NAACE") in 2015 and [Mozart Dee was asked to do a TED talk](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/05/16-year-old-mozart-dees-ted-talk-keynote-speech-in-ukteen-actress-songwriter-singer-mozart-dee-was-asked-to-do-a-ted-talk.html "Mozart Dee TED talk ") last December in the UK by educators interested in her one-of-a-kind education.   
   
   
 
@@ -89,7 +89,7 @@ So it will be very exciting for Mozart to perform there in English and Spanish a
   
 ![Gäst B&B  in Girona, Spain ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09a287af970d.png)  
   
-with wonderful, peaceful views. Our long time [friends from Sweden](http://soultravelers3new.local/2010/03/funniest-kids-soultravelers3-family-travel-best-funny-youtube-global-kids-hilarious-sweden-trumpet-v.html) recommended this place ( and we will be seeing them there) and they let us know that Gäst means guest in Swedish!    
+with wonderful, peaceful views. Our long time [friends from Sweden](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/funniest-kids-soultravelers3-family-travel-best-funny-youtube-global-kids-hilarious-sweden-trumpet-v.html) recommended this place ( and we will be seeing them there) and they let us know that Gäst means guest in Swedish!    
   
 ![la gloriette B&B in Provence Luberon ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb09a2882d970d.png)  
   
@@ -128,8 +128,3 @@ We are excited to see the beautiful white villages again
 
 Related articles
 
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/AVvMuZdLGs7FVMRNeAB7_80_80.jpg)](http://soultravelers3new.local/2017/05/16-year-old-mozart-dees-ted-talk-keynote-speech-in-ukteen-actress-songwriter-singer-mozart-dee-was-asked-to-do-a-ted-talk.html)[16 Year Old Mozart Dee's TED Talk & Keynote Speech in UK - Soul Travelers 3](http://soultravelers3new.local/2017/05/16-year-old-mozart-dees-ted-talk-keynote-speech-in-ukteen-actress-songwriter-singer-mozart-dee-was-asked-to-do-a-ted-talk.html)

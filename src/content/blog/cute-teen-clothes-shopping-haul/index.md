@@ -34,17 +34,17 @@ NYC, Shanghai,Italy,Spain,Jordan
 <!--more-->  
 ![Cute Teen Clothes Shopping Haul with Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc3e30970d.png)  
   
-How many teenage girls have done shopping hauls in [Paris](http://soultravelers3new.local/2011/08/paris-travel-with-kids.html "Paris with kids"), [London](http://soultravelers3new.local/2010/12/bbc-interviews-soultravelers3-on-social-media-and-travel.html "London bbc interview soultravelers3 social media"),[Sydney](http://soultravelers3new.local/2013/11/stunning-sydney-view.html "sydney best view"), [NYC](http://soultravelers3new.local/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "NYC travel"), [Shanghai](http://soultravelers3new.local/2013/06/shanghai-louis-vuitton-chinese-luxury-shopping.html "shanghai luxury shopping"), [Italy,](http://soultravelers3new.local/2008/02/romeo-juliet-in.html "Italy shopping") [Spain](http://soultravelers3new.local/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "Spain for the winter"), [Jordan](http://soultravelers3new.local/2011/05/jordan-family-travel-is-it-safe.html "jordon"),[California](http://soultravelers3new.local/2012/08/top-10-california-destinations.html "California travel") and more? Mozart has always been a world-traveling [fashionista](http://soultravelers3new.local/2009/05/how-to-be-a-world-traveling-fashionista.html "fashionista kid Mozart travels the world") and loves clothes, malls and shopping, so feels blessed with all the places she has shopped [around the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "around the world travel"). She is ready to be a teen beauty guru!  
+How many teenage girls have done shopping hauls in [Paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/paris-travel-with-kids.html "Paris with kids"), [London](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/12/bbc-interviews-soultravelers3-on-social-media-and-travel.html "London bbc interview soultravelers3 social media"),[Sydney](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/11/stunning-sydney-view.html "sydney best view"), [NYC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "NYC travel"), [Shanghai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/shanghai-louis-vuitton-chinese-luxury-shopping.html "shanghai luxury shopping"), [Italy,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/02/romeo-juliet-in.html "Italy shopping") [Spain](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/11/whats-a-spain-winter-rental-like-extended-travel-digital-nomad-4hww-vacation-.html "Spain for the winter"), [Jordan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/jordan-family-travel-is-it-safe.html "jordon"),[California](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/top-10-california-destinations.html "California travel") and more? Mozart has always been a world-traveling [fashionista](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/05/how-to-be-a-world-traveling-fashionista.html "fashionista kid Mozart travels the world") and loves clothes, malls and shopping, so feels blessed with all the places she has shopped [around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "around the world travel"). She is ready to be a teen beauty guru!  
   
 ![Travel teen and beauty guru Mozart loving fashion](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc406e970d.png)  
   
-Despite us being a [minimalist family](http://soultravelers3new.local/2013/02/minimalist-family-frugal-tip-omg.html "minimalist family frugal tips") that travels the world with just carryon luggage and not into [overconsumerism](http://soultravelers3new.local/2011/08/reverse-culture-shock-usa-over-consumerism.html "over consumerism in usa - reverse cultural shock"), she has managed to always dress with a sense of style  on a tight budget.  
+Despite us being a [minimalist family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/minimalist-family-frugal-tip-omg.html "minimalist family frugal tips") that travels the world with just carryon luggage and not into [overconsumerism](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/08/reverse-culture-shock-usa-over-consumerism.html "over consumerism in usa - reverse cultural shock"), she has managed to always dress with a sense of style  on a tight budget.  
   
 I [modeled with Ford](http://models.fordmodels.com/ "Ford Models") in NYC when I was young and in many magazines including Vogue, so perhaps I had some influence, but Mozart seemed to have a fashion sense even as  a baby.  
   
 ![transformation Tuesday - travel kid Mozart in Bhutan and made up for singing gig as a teen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73dfc4092970d.png)  
   
-Now that she is a teenager who is [singing](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html "singing Mozart pop star beauty") and [modeling](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "how to become a teen model "), she is even more into fashion and [learning about make up](http://soultravelers3new.local/2013/01/how-my-almost-teen-became-a-model-.html "teen learning about make up pop star look"), hair and [teen style](http://soultravelers3new.local/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html "teen style ").  
+Now that she is a teenager who is [singing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html "singing Mozart pop star beauty") and [modeling](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/how-my-almost-teen-became-a-model-.html "how to become a teen model "), she is even more into fashion and [learning about make up](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/how-my-almost-teen-became-a-model-.html "teen learning about make up pop star look"), hair and [teen style](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/demi-lovato-dianna-de-la-garza-singing-and-mozarts-sat-score.html "teen style ").  
   
 She wants to share what she is learning with others, so will start her own blog soon and doing regular, exciting  beauty, fashion, travel, cooking, DIY projects, languages, music and teen lifestyle vlogs on our [Soultravelers3 Youtube Channel.](http://www.youtube.com/user/soultravelers3 "soultravelers3 youtube")  
   
@@ -134,7 +134,7 @@ Speaking of eyes, one can't shop with this kid and miss the Apple Store where sh
   
 ![RTW travel teen Mozart shopping at the Apple store for an iphone and ipad ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a511f11060970c.png)  
   
-Yes, she got a haul of things she needed, ( quality things on sale), but mostly it was just a grand [mother-daughter bonding time](http://soultravelers3new.local/2012/09/mother-daughter-bonding-tips-for-tweens.html "mother daughter bonding tips") in this new phase of her life  
+Yes, she got a haul of things she needed, ( quality things on sale), but mostly it was just a grand [mother-daughter bonding time](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/mother-daughter-bonding-tips-for-tweens.html "mother daughter bonding tips") in this new phase of her life  
   
 ![teen Mozart shopping for a big haul of her dreams](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fd414936970b.png)  
   
@@ -147,22 +147,3 @@ Don't forget to subscribe to our youtube and join [Mozart on her Twitter account
 Related articles  
   
 
-[![](http://i.zemanta.com/97806229_80_80.jpg)](http://soultravelers3new.local/2012/07/paris-chic-street-style-.html)[Paris Chic Street Style](http://soultravelers3new.local/2012/07/paris-chic-street-style-.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/134036425_80_80.jpg)](http://soultravelers3new.local/2012/12/china-travel-shopping-and-markets-rtw.html)[China Travel - Shopping and Markets #RTW](http://soultravelers3new.local/2012/12/china-travel-shopping-and-markets-rtw.html)
-
-[![](http://i.zemanta.com/255447587_80_80.jpg)](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)[Mozart - Beautiful Teen Singer, Songwriter, Musician](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)
-
-[![](http://i.zemanta.com/158297724_80_80.jpg)](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html)[Growing Up Bilingual or Trilingual](http://soultravelers3new.local/2013/04/growing-up-bilingual-or-trilingual.html)
-
-[![](http://i.zemanta.com/85809747_80_80.jpg)](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html)[The Benefits of Educational Travel for Kids](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html)
-
-[![](http://i.zemanta.com/252949609_80_80.jpg)](http://soultravelers3new.local/2014/03/celebrating-13th-birthday-in-healthy-ways-at-four-seasons-hotel-sydney.html)[Celebrating 13th Birthday in Healthy Ways at Four Seasons Hotel Sydney](http://soultravelers3new.local/2014/03/celebrating-13th-birthday-in-healthy-ways-at-four-seasons-hotel-sydney.html)
-
-[![](http://i.zemanta.com/242410534_80_80.jpg)](http://soultravelers3new.local/2014/01/gluten-free-yummy-chocolate-cake.html)[Gluten-Free Yummy Chocolate Cake](http://soultravelers3new.local/2014/01/gluten-free-yummy-chocolate-cake.html)
-
-[![](http://i.zemanta.com/91218951_80_80.jpg)](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)[Advice to College Grads From a World Traveler](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)
-
-[![](http://i.zemanta.com/253943088_80_80.jpg)](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)[Homeschool Family European Tour](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)

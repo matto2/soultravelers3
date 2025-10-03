@@ -20,19 +20,19 @@ holidays for the first time
 <!--more--> ![Christmas blessings](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301675f5eca62970b.jpg)  
   
   
-This year our [traveling family](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling family") is [home for the holidays](http://soultravelers3new.local/2011/11/home-for-the-holidays.html "home for the holidays") for the first time in six years, and sadly, I have been very sick most of the 3 months that we have been here. Today, on Christmas Day, my sister has been hospitalized with pnuemonia. Nevertheless, we are  cherishing all the little moments and full of gratitude for the Grace that is in our lives.  
+This year our [traveling family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling family") is [home for the holidays](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/11/home-for-the-holidays.html "home for the holidays") for the first time in six years, and sadly, I have been very sick most of the 3 months that we have been here. Today, on Christmas Day, my sister has been hospitalized with pnuemonia. Nevertheless, we are  cherishing all the little moments and full of gratitude for the Grace that is in our lives.  
   
 ![hugging grandma](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833015438e940d2970c.jpg)  
   
   
-A year ago, my mother [lost her beloved husband](http://soultravelers3new.local/2010/12/mourning-while-traveling-tribute-to-al-grief-and-travel-deathdying-at-a-distance.html "lost her beloved husband"), but this holiday season she got to spend the most time she ever has with her granddaughter and they both have been so enriched by this time together. At almost 84 ( in a few days) and just turned 11, these precious,fleeting  moments are priceless.  
+A year ago, my mother [lost her beloved husband](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/12/mourning-while-traveling-tribute-to-al-grief-and-travel-deathdying-at-a-distance.html "lost her beloved husband"), but this holiday season she got to spend the most time she ever has with her granddaughter and they both have been so enriched by this time together. At almost 84 ( in a few days) and just turned 11, these precious,fleeting  moments are priceless.  
   
-Yes , [Grandma spent 6 weeks with us in Asia](http://soultravelers3new.local/2011/01/traveling-with-grandma-3-generation-travel.html "traveling with grandma"), most of Mozart's first 5 years living nearby, regular skype webcam calls from where ever we are on the planet..but nothing can compare to this one-on-one time and 3 months of sleeping together nightly like two school girls on an extended pajama party at our home base in California. Unlike our country home, my Mom's house is within walking distance to the beach, parks, stores and library which makes it very convenient.  
+Yes , [Grandma spent 6 weeks with us in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/traveling-with-grandma-3-generation-travel.html "traveling with grandma"), most of Mozart's first 5 years living nearby, regular skype webcam calls from where ever we are on the planet..but nothing can compare to this one-on-one time and 3 months of sleeping together nightly like two school girls on an extended pajama party at our home base in California. Unlike our country home, my Mom's house is within walking distance to the beach, parks, stores and library which makes it very convenient.  
   
 ![making a gingerbread house](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fe6a8a2d970d.jpg)  
   
   
-Yes, we [celebrate Christmas in special ways abroad](http://soultravelers3new.local/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "celebrate christmas in special ways abroad"), but for a kid, there is nothing quite like doing it at home and with Grandma. Here she makes a gingerbread house and she put up a tree at Grandma's house..something that has not been in this house for years.  
+Yes, we [celebrate Christmas in special ways abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "celebrate christmas in special ways abroad"), but for a kid, there is nothing quite like doing it at home and with Grandma. Here she makes a gingerbread house and she put up a tree at Grandma's house..something that has not been in this house for years.  
   
 ![IMG_0809](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330162fe6a8bfe970d.jpg)  
   

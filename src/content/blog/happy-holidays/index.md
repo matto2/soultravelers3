@@ -35,7 +35,7 @@ Los Angeles. Are you in the holiday mood and
 <!--more-->  
 ![Happy Holidays from Soultravelers3! Mozart and Santa or is it Davinci? ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188163f970c.png)  
   
-I adore this photo of [Mozart](http://www.muzicbymozart.com "Mozart") and my husband we took this Christmas, their first in Los Angeles. Are you in the [holiday](http://soultravelers3new.local/2013/12/happy-holidays-double-your-impact-.html "holiday") mood and taking time for family, good food, good friends and time to relax?  2015 has been an extremely busy year for us, especially this past fall when we [moved](http://soultravelers3new.local/2015/11/cheap-moving-cross-country-with-uhaul-towing-car.html#more "moved") here to support [Mozart's singing](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "Mozart's singing"), songwriting, acting career and things speeded up.   
+I adore this photo of [Mozart](http://www.muzicbymozart.com "Mozart") and my husband we took this Christmas, their first in Los Angeles. Are you in the [holiday](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/happy-holidays-double-your-impact-.html "holiday") mood and taking time for family, good food, good friends and time to relax?  2015 has been an extremely busy year for us, especially this past fall when we [moved](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/11/cheap-moving-cross-country-with-uhaul-towing-car.html#more "moved") here to support [Mozart's singing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/teen-mozart-singing-red-carpet-grammys.html "Mozart's singing"), songwriting, acting career and things speeded up.   
   
 ![Happy Holidays and Soultravelers3 update. Cutting our own Christmas tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d188165a970c.png)  
   
@@ -79,24 +79,24 @@ I hope you are all having a wonderful holy, happy holidays no matter what your r
   
 **[Family Travel Abroad at Christmas Guide  
   
-](http://soultravelers3new.local/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "family travel abroad at Christmas")[Christmas Markets in Europe](http://soultravelers3new.local/2011/11/christmas-markets-in-europe-dont-miss.html "Christmas Markets in Europe")[  
-](http://soultravelers3new.local/2010/01/3-kings-in-spain-andalusia-festival-tradition-white-village-christmas-epiphany-12th-night.html "3 kings in Spain")  
-[Flamenco Christmas](http://soultravelers3new.local/2006/12/flamenco-christ.html "Flamenco Christmas")  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "family travel abroad at Christmas")[Christmas Markets in Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/11/christmas-markets-in-europe-dont-miss.html "Christmas Markets in Europe")[  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/01/3-kings-in-spain-andalusia-festival-tradition-white-village-christmas-epiphany-12th-night.html "3 kings in Spain")  
+[Flamenco Christmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/12/flamenco-christ.html "Flamenco Christmas")  
   
-[Christmas in Europe - Photo Fantasy](http://soultravelers3new.local/2009/12/christmas-in-europe-a-photo-fantasy-germany-xmas-markets-uk-scandinavia-nordic-holiday.html "christmas in Europe photo fantasy")  
+[Christmas in Europe - Photo Fantasy](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/12/christmas-in-europe-a-photo-fantasy-germany-xmas-markets-uk-scandinavia-nordic-holiday.html "christmas in Europe photo fantasy")  
   
-[World's Best Christmas](http://soultravelers3new.local/2012/12/worlds-best-christmas.html "World's Best Christmas")  
+[World's Best Christmas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/worlds-best-christmas.html "World's Best Christmas")  
   
-[First Christmas in Asia](http://soultravelers3new.local/2010/12/first-christmas-in-asia.html "First Christmas in Asia")
+[First Christmas in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/12/first-christmas-in-asia.html "First Christmas in Asia")
 
-[Christmas Holiday Travel Ideas](http://soultravelers3new.local/2011/12/christmas-holiday-travel-ideas-for-family-getaways.html "Christmas holiday travel ideas")
+[Christmas Holiday Travel Ideas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/12/christmas-holiday-travel-ideas-for-family-getaways.html "Christmas holiday travel ideas")
 
 [Cut Your Own Christmas Tree - Sustainable Tradition  
   
   
   
   
-](http://soultravelers3new.local/2014/12/cut-your-own-christmas-tree-sustainable-family-fun-tradition.html "cut your own Christmas Tree - Sustainable")  
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/12/cut-your-own-christmas-tree-sustainable-family-fun-tradition.html "cut your own Christmas Tree - Sustainable")  
   
   
 
@@ -106,8 +106,3 @@ I hope you are all having a wonderful holy, happy holidays no matter what your r
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/277908180_80_80.jpg)](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)[Top 10 Summer Vacations for Family Travel](http://soultravelers3new.local/2014/06/top-10-summer-vacations-for-family-travel-.html)
-
-[![](http://i.zemanta.com/244730088_80_80.jpg)](http://soultravelers3new.local/2014/02/historic-route-66-.html)[Historic Route 66](http://soultravelers3new.local/2014/02/historic-route-66-.html)

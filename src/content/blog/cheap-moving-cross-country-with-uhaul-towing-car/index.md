@@ -36,9 +36,9 @@ budget? Has anyone done this?
   
 ![Cheap! Moving Cross Country with Uhaul & Towing Car!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d173656e970c.png)  
   
-Yikes! How do you move furniture and your car across country on a budget? Has anyone done this? I went searching online for tips and people who had done this before but there wasn't much. A new kind of  [road trip across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html "road trip across America USA")!   
+Yikes! How do you move furniture and your car across country on a budget? Has anyone done this? I went searching online for tips and people who had done this before but there wasn't much. A new kind of  [road trip across America](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/07/road-trip-across-america.html "road trip across America USA")!   
   
-Oh my gosh! The thought of driving a big truck PLUS towing our car behind it, cross-country to move,  seemed a bit intimidating, even for us who have driven campers all over Europe, in the US and Mexico. But it turned out that it was much easier than expected and the best cheap way to move cross country to our [new base in Los Angeles](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html "travel to los angeles without a car") to support [Mozart's budding singing and acting career](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "Mozart sings at Grammys").   
+Oh my gosh! The thought of driving a big truck PLUS towing our car behind it, cross-country to move,  seemed a bit intimidating, even for us who have driven campers all over Europe, in the US and Mexico. But it turned out that it was much easier than expected and the best cheap way to move cross country to our [new base in Los Angeles](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/08/travel-to-la-without-a-car-.html "travel to los angeles without a car") to support [Mozart's budding singing and acting career](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/teen-mozart-singing-red-carpet-grammys.html "Mozart sings at Grammys").   
   
 ![Cheap! Moving Cross Country with Uhaul & Towing Car!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d17361a2970c.png)  
   
@@ -52,7 +52,7 @@ The good news is the drive between Dallas and Los Angeles is long but good roads
   
 ![How to move cross country cheaply](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d17361dd970c.png)  
   
-Getting off the highway to get gas, food and lodging was the only time it was tricky as we are not use to having something so high and so long. We like to stay healthy, so we stored our [Paleo road trip food](http://soultravelers3new.local/2014/06/how-to-stay-healthy-while-traveling-paleo-road-trip.html "Paleo road trip food") in the car for when we stopped.   
+Getting off the highway to get gas, food and lodging was the only time it was tricky as we are not use to having something so high and so long. We like to stay healthy, so we stored our [Paleo road trip food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/how-to-stay-healthy-while-traveling-paleo-road-trip.html "Paleo road trip food") in the car for when we stopped.   
   
   
 ![Cheap! Moving Cross Country with Uhaul & Towing Car!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7e98d1a970b.png)  
@@ -74,14 +74,14 @@ We do love road trips in the US or Europe, so it soon seemed very natural. 
 ![driving cross the USA - great views](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7e98dc6970b.png)  
   
   
-We traveled through four states on this one, Texas, New Mexico, Arizona and California, eventually even going to the western end of [historic Route 66](http://soultravelers3new.local/2014/02/historic-route-66-.html "route 66 road trip") at the edge of the Pacific ocean.   
+We traveled through four states on this one, Texas, New Mexico, Arizona and California, eventually even going to the western end of [historic Route 66](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/historic-route-66-.html "route 66 road trip") at the edge of the Pacific ocean.   
   
 ![road trip across the USA reading and studying](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d173627a970c.png)  
   
   
-14 year old [Mozart](http://soultravelers3new.local/2015/09/mozart-wins-high-honors-award-from-johns-hopkins-university.html#more "Mozart gets high honors award for SAT score at 13") just started college at SMC, so did some reading and studying along the way.   
+14 year old [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/09/mozart-wins-high-honors-award-from-johns-hopkins-university.html#more "Mozart gets high honors award for SAT score at 13") just started college at SMC, so did some reading and studying along the way.   
   
-We didn't really have much stuff and usually move with just suitcases, but Dallas didn't have furnished apartments, so that meant [moving, new home & big changes](http://soultravelers3new.local/2014/09/new-home-moving-and-big-changes.html "new home and moving"), so we did a minimalist haul at Ikea to make it work.   
+We didn't really have much stuff and usually move with just suitcases, but Dallas didn't have furnished apartments, so that meant [moving, new home & big changes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/09/new-home-moving-and-big-changes.html "new home and moving"), so we did a minimalist haul at Ikea to make it work.   
   
 After calculating, it made the most sense to just bring it all instead of selling it this time, but we needed to use a 15 footer truck because we had to fit three of us in the front seat.   
   
@@ -122,10 +122,3 @@ Anybody else try this, wants to or has questions? 
   
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)
-
-[![](http://i.zemanta.com/244730088_80_80.jpg)](http://soultravelers3new.local/2014/02/historic-route-66-.html)[Historic Route 66](http://soultravelers3new.local/2014/02/historic-route-66-.html)

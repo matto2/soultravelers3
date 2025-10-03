@@ -19,16 +19,16 @@ economy and probably 4Hour Workweek ( we're case studies). I have written about
 it and here are two links to get you started and you may want to look at more  
 under our FAQ:  
   
-[http://soultravelers3new.local/2008/06/how-to-do-exten.html](http://soultravelers3new.local/2008/06/how-to-do-exten.html)  
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/how-to-do-exten.html)  
   
-[http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad  
-\-family.html](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)  
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad  
+\-family.html](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)  
   
 Money issues and friends are the biggies, so here's how we handle worldschooling  
 socialization issues:  
   
-[http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family  
-\-adventure.html](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html)  
+[https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/kids-friends-travel-on-the-ultimate-family  
+\-adventure.html](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html)  
   
 We travel the world luxuriously for MUCH, much less than we could live at home,  
 but it does take some planning and prep before take off and like any life it has  

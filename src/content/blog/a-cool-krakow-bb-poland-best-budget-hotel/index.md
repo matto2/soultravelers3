@@ -38,17 +38,17 @@ Marcel is a Tango dancer and I guess there is a community of Tango dancers in Kr
   
 Another reason we picked it was because I'd read that one could hear the trumpeter from nearby [St Mary's](http://en.wikipedia.org/wiki/St._Mary%27s_Basilica,_Krak%C3%B3w) church towers  floating softly into your room through the windows. We had all just read the Newbery Award winning classic book "[The Trumpeter of Krakow"](http://en.wikipedia.org/wiki/The_Trumpeter_of_Krakow) which I highly recommend before a trip to Krakow. We actually got it for Mozart, but it is a great piece of historical fiction that helps you learn about Krakow while embroiled in a Harry Potter type thriller. 
 
-[![IMG_6840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5e40dd3970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a5e40dd3970c-150x150.jpg)
+[![IMG_6840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5e40dd3970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a5e40dd3970c-150x150.jpg)
 
   
   
-This trumpet sound is famous all over Poland and every hour he plays it from four different windows in the tower each facing a different direction. This haunting tune always ends unfinished in a broken note which commemorates a young boy trumpeter  from the 13th century, on duty at St Mary's, who died from an arrow shot from a Tartar...thus ended on that broken note as his last breath. This sound in Krakow is as significant as the [Muslim calls to prayer in Fez](http://soultravelers3new.local/2007/03/dar-seffarine.html) and we did not want to miss either during our visits to these cities. 
+This trumpet sound is famous all over Poland and every hour he plays it from four different windows in the tower each facing a different direction. This haunting tune always ends unfinished in a broken note which commemorates a young boy trumpeter  from the 13th century, on duty at St Mary's, who died from an arrow shot from a Tartar...thus ended on that broken note as his last breath. This sound in Krakow is as significant as the [Muslim calls to prayer in Fez](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/dar-seffarine.html) and we did not want to miss either during our visits to these cities. 
 
-[![IMG_6406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a58d72d6970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a58d72d6970b-150x150.jpg)
+[![IMG_6406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a58d72d6970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a58d72d6970b-150x150.jpg)
 
   
   
-We took the train from [Vienna](http://soultravelers3new.local/2007/12/finally-vienna.html) and even though we had the large, new compartment for six all to ourselves, a seven hour train ride is still a long one, so we were tired when we arrived past ten in the evening. One big delay was sitting at [Auchtwitz](http://www.youtube.com/watch?v=M2yUCA1qqDk) where the station and area was left in much the same way it looked in 1944. We had decided not to visit there because we have a young child and I am very sensitive to energy. Not a pleasant place to be stuck, even today. Too sad.
+We took the train from [Vienna](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/12/finally-vienna.html) and even though we had the large, new compartment for six all to ourselves, a seven hour train ride is still a long one, so we were tired when we arrived past ten in the evening. One big delay was sitting at [Auchtwitz](http://www.youtube.com/watch?v=M2yUCA1qqDk) where the station and area was left in much the same way it looked in 1944. We had decided not to visit there because we have a young child and I am very sensitive to energy. Not a pleasant place to be stuck, even today. Too sad.
 
 ![IMG_6407](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a58d77bc970b.jpg)
 

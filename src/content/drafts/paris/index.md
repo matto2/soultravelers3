@@ -4,9 +4,9 @@ date: 2012-04-28
 draft: true
 ---
 
-[![IMG_2840](https://soultravelers3.typepad.com/.a/6a00e5502a950788330168ead88827970c-200wi "IMG_2840")](http://soultravelers3.typepad.com/.a/6a00e5502a950788330168ead88827970c-pi)
+[![IMG_2840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead88827970c.jpg "IMG_2840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ead88827970c.jpg-pi)
 
-<!--more--> [![IMG_2840](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016765d61daf970b-800wi "IMG_2840")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016765d61daf970b-pi)  
+<!--more--> [![IMG_2840](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d61daf970b.jpg "IMG_2840")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016765d61daf970b.jpg-pi)  
   
 _La Samaritaine_ is a department store in _Paris_, but it's not just any department store in _Paris_. It's an architectural masterpiece where _Art Deco_ meets Art Nouveau and **.**_La Samaritaine_ evokes the _Paris_ of the Second Empire, **...** become an architectural monument where Art Nouveau and _Art Deco_ meet to form  
   

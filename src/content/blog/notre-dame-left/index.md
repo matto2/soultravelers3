@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1755.png)[![Img_1755_3](http://soultravelers3new.local/images/2008/04/29/img_1755_3.png "Img_1755_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1755_3.png) Notre Dame & Left Bank  
+ [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1755.png)[![Img_1755_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1755_3.png "Img_1755_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1755_3.png) Notre Dame & Left Bank  
 September 28, 2006
 
 Another sunny, crisp, clear day greeted us  
@@ -15,7 +15,7 @@ time for us to take it in fully.
 
 <!--more-->
 
-[![Img_1755_2](http://soultravelers3new.local/images/2008/04/29/img_1755_2.png "Img_1755_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1755_2.png)
+[![Img_1755_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1755_2.png "Img_1755_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1755_2.png)
 
 Another sunny, crisp,clear day greeted us and we managed to get out at a decent time for us to take it in fully. I think we broke our record as we were on the bus before eleven. My plans are too ambitious with a child so every day we get less done than what is on our list to see,but we do manage to have fun and there is always a perfection to it all. Half the fun is in the exploring and just being together.  
   
@@ -34,36 +34,36 @@ We ended up having a delectable dinner at a cafe nearby and just enjoyed walking
   
 The alter and stained glass shots are from Sainte-Chapelle as we climbed the spiral staircase to the “Haute Chapelle”. On the way up the narrow staircase,Mozart said “I can’t believe I am climbing another tower!” rather loudly as kids her age can do. A lady ahead of laughed and quipped “and just imagine if you were my age, thinking the same thing.”
 
-[![Img_1709](http://soultravelers3new.local/images/2008/04/29/img_1709.png "Img_1709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1709.png)
+[![Img_1709](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1709.png "Img_1709")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1709.png)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1730.jpg)
 
-[![Img_1730_3](http://soultravelers3new.local/images/2008/04/29/img_1730_3.jpg "Img_1730_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1730_3.jpg)
+[![Img_1730_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1730_3.jpg "Img_1730_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1730_3.jpg)
 
-[![Img_1743](http://soultravelers3new.local/images/2008/04/29/img_1743.jpg "Img_1743")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1743.jpg)
+[![Img_1743](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1743.jpg "Img_1743")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1743.jpg)
 
-[![Img_1748](http://soultravelers3new.local/images/2008/04/29/img_1748.png "Img_1748")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1748.png)
+[![Img_1748](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1748.png "Img_1748")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1748.png)
 
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1760.jpg)
 
-[![Img_1760_2](http://soultravelers3new.local/images/2008/04/29/img_1760_2.jpg "Img_1760_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1760_2.jpg)
+[![Img_1760_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1760_2.jpg "Img_1760_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1760_2.jpg)
 
-[![Img_1766](http://soultravelers3new.local/images/2008/04/29/img_1766.png "Img_1766")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1766.png)
+[![Img_1766](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1766.png "Img_1766")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1766.png)
 
-[![Img_1759](http://soultravelers3new.local/images/2008/04/29/img_1759.jpg "Img_1759")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1759.jpg)
+[![Img_1759](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1759.jpg "Img_1759")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1759.jpg)
 
-[![Img_1813](http://soultravelers3new.local/images/2008/04/29/img_1813.jpg "Img_1813")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1813.jpg)
+[![Img_1813](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1813.jpg "Img_1813")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1813.jpg)
 
-[![Img_1815](http://soultravelers3new.local/images/2008/04/29/img_1815.jpg "Img_1815")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1815.jpg)
+[![Img_1815](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1815.jpg "Img_1815")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1815.jpg)
 
-[![Img_1804](http://soultravelers3new.local/images/2008/04/29/img_1804.png "Img_1804")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1804.png)
+[![Img_1804](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1804.png "Img_1804")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1804.png)
 
-[![Img_1797](http://soultravelers3new.local/images/2008/04/29/img_1797.png "Img_1797")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1797.png)
+[![Img_1797](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1797.png "Img_1797")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1797.png)
 
-[![Img_1798](http://soultravelers3new.local/images/2008/04/29/img_1798.jpg "Img_1798")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1798.jpg)
+[![Img_1798](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1798.jpg "Img_1798")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1798.jpg)
 
-[![Img_1832](http://soultravelers3new.local/images/2008/04/29/img_1832.png "Img_1832")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1832.png)
+[![Img_1832](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1832.png "Img_1832")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1832.png)
 
-[![Img_1836](http://soultravelers3new.local/images/2008/04/29/img_1836.jpg "Img_1836")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1836.jpg)
+[![Img_1836](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1836.jpg "Img_1836")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1836.jpg)
 
-[![Img_1839](http://soultravelers3new.local/images/2008/04/29/img_1839.jpg "Img_1839")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1839.jpg)
+[![Img_1839](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/29/img_1839.jpg "Img_1839")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/29/img_1839.jpg)

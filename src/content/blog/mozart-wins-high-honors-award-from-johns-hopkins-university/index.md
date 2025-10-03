@@ -35,7 +35,7 @@ Mozart recently won a High Honors Award from Johns Hopkins University Gifted Pro
   
 ![Mozart Wins High Honors Award from Johns Hopkins University! JHU- CTY  road trip ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb08720a67970d.png)  
   
-We couldn't miss that High Honors Award Ceremony so that led to another [cross country America road trip](http://soultravelers3new.local/2015/07/road-trip-across-america.html "road trip across America") and so many changes in our lives due to this and her [music](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html#more "teen Mozart sings Grammy weekend") and [acting](https://www.youtube.com/watch?v=uLdTaptOifE "Mozart acting in movie Rose")! She even played music on [YouNow](https://www.younow.com/MozartST3 "Mozartst3 on you now") for fans around the world as we traveled!   
+We couldn't miss that High Honors Award Ceremony so that led to another [cross country America road trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/07/road-trip-across-america.html "road trip across America") and so many changes in our lives due to this and her [music](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/teen-mozart-singing-red-carpet-grammys.html#more "teen Mozart sings Grammy weekend") and [acting](https://www.youtube.com/watch?v=uLdTaptOifE "Mozart acting in movie Rose")! She even played music on [YouNow](https://www.younow.com/MozartST3 "Mozartst3 on you now") for fans around the world as we traveled!   
   
 ![Mozart Wins High Honors Award from Johns Hopkins University! JHU- CTY  road trip ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d1579be9970c.png)  
   
@@ -46,8 +46,3 @@ Stay tuned! So much exciting news to tell soon!
   
 Related articles
 
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)

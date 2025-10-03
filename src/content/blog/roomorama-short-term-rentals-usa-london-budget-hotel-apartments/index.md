@@ -35,9 +35,9 @@ They were our sponsors for our trip to London and provided a smashing two bedroo
 
 Whether you are looking for a place to stay while traveling or if you have a spare room and looking for an easy way to earn some cash, Roomorama is a quality service that you can trust. I was very impressed with the 24/7 customer service and attention to detail that they provide.
 
-[![IMG_9600](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a616598e970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a616598e970c.jpg)  
+[![IMG_9600](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a616598e970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a616598e970c.jpg)  
    
-We gave them very late notice for a weeks stay in central London and it just so happened that they had only recently opened in London and Jia, one of the owners, was traveling on business. But despite these challenges (plus my temporary handicap state due to [my recent hospitalization in Austria](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html)), Jia did a terrific job of communicating and solving the various complications that came up.
+We gave them very late notice for a weeks stay in central London and it just so happened that they had only recently opened in London and Jia, one of the owners, was traveling on business. But despite these challenges (plus my temporary handicap state due to [my recent hospitalization in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html)), Jia did a terrific job of communicating and solving the various complications that came up.
 
 ![IMG_9778](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5bfb4e3970b.jpg)  
 
@@ -53,7 +53,7 @@ We liked quite a few apartments by Ewa and finally narrowed it down to one of he
 
 ![IMG_9841](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5c018fc970b.jpg) 
 
-[![IMG_9702](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5c05a95970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a5c05a95970b-300x225.jpg)  
+[![IMG_9702](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a5c05a95970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a5c05a95970b-300x225.jpg)  
   
   
 
@@ -65,4 +65,4 @@ We all really loved the place they found for us and we are really comfortable he
 
 ![IMG_9584](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a616b252970c.jpg) 
 
-[![IMG_9608](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a616b4a3970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a616b4a3970c-150x150.jpg)
+[![IMG_9608](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a616b4a3970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a616b4a3970c-150x150.jpg)

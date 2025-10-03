@@ -35,7 +35,7 @@ That's why I'm so excited by Seth Grodin's new book, [Linchpin,](http://www.amaz
 
 I love this video of Seth talking about education that I found on [Lee Stranahan's fantastic site](http://leestranahan.com/)! I found it via [Twitter t](http://twitter.com/soultravelers3)hat linked to another [fab video](http://www.huffingtonpost.com/lee-stranahan/watch-ilinchpini-author-s_b_436497.html) he did on [Huffington Post](http://www.huffingtonpost.com/) that explains that "We all live in Detroit now". As someone who was born in Michigan, not too far from Detroit, I have great empathy for the problems of the mid-west rust belt (as well as those in California, Spain and everywhere).
 
-Huge Macleod (that I know from [Dell's](http://www.digitalnomads.com/)  [Digital Nomads](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)) at the always interesting [Gapingvoid](http://gapingvoid.com/) also did a [fantastic interview](http://gapingvoid.com/2010/01/21/linchpin-ten-questions-for-seth-godin/) with Seth and I particularly loved and agree with this quote:
+Huge Macleod (that I know from [Dell's](http://www.digitalnomads.com/)  [Digital Nomads](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)) at the always interesting [Gapingvoid](http://gapingvoid.com/) also did a [fantastic interview](http://gapingvoid.com/2010/01/21/linchpin-ten-questions-for-seth-godin/) with Seth and I particularly loved and agree with this quote:
 
 _It’s urgent._ _I don’t think most people realize the precarious nature of our current situation, how close we are to the edge, and how little time we have to get our act together._
 

@@ -6,7 +6,7 @@ categories:
   - "netherlands"
 ---
 
- [![Img_0166](http://soultravelers3new.local/images/2008/05/06/img_0166.png "Img_0166")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0166.png) Becoming Bike Pros  
+ [![Img_0166](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0166.png "Img_0166")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0166.png) Becoming Bike Pros  
 September 1, 2006
 
 Well of course the title is an exaggeration  
@@ -15,7 +15,7 @@ of our new skill and the exploration we
 
 <!--more-->
 
-[![Img_0166_2](http://soultravelers3new.local/images/2008/05/06/img_0166_2.png "Img_0166_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0166_2.png)
+[![Img_0166_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0166_2.png "Img_0166_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0166_2.png)
 
 Well of course the title is an exaggeration and half joke,but we did feel quite proud of our new skill and the exploration we did this day. We got up early and got in late, so had a full day of exploring the area by bike. We went into Edam, then back towards the campground over a bike trail near the ocean towards the next town Volendam and even took a ferry over to Marken where there are homes set up in traditional way with hosts dressed up in traditional clothes.
 
@@ -29,14 +29,14 @@ The Netherlands seems full of beautiful boats, endless water and bridges, brick 
 
 We are enjoying decompressing from the intense prep for this trip and are starting to feel in the flow of our new life. Pleasant day runs into pleasant day, mixing adventures and sweet family time together going at a slow and easy pace. We do a little homeschool in the morning and more book reading and Story of the World at night before bed. It is easy to lose track of what day or time it is and we have enjoyed not looking at a paper or listening to news. We have a short wave radio and will probably like to tune in at some point, but for now it is nice to live in this timeless paradise.
 
-[![Img_0176](http://soultravelers3new.local/images/2008/05/06/img_0176.png "Img_0176")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0176.png)
+[![Img_0176](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0176.png "Img_0176")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0176.png)
 
-[![Img_0215](http://soultravelers3new.local/images/2008/05/06/img_0215.png "Img_0215")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0215.png)
+[![Img_0215](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0215.png "Img_0215")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0215.png)
 
-[![Img_0194](http://soultravelers3new.local/images/2008/05/06/img_0194.png "Img_0194")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0194.png)
+[![Img_0194](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0194.png "Img_0194")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0194.png)
 
-[![Img_0186](http://soultravelers3new.local/images/2008/05/06/img_0186.png "Img_0186")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0186.png)
+[![Img_0186](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0186.png "Img_0186")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0186.png)
 
-[![Img_0199](http://soultravelers3new.local/images/2008/05/06/img_0199.png "Img_0199")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0199.png)
+[![Img_0199](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0199.png "Img_0199")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0199.png)
 
-[![Img_0207](http://soultravelers3new.local/images/2008/05/06/img_0207.png "Img_0207")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0207.png)
+[![Img_0207](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/06/img_0207.png "Img_0207")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/06/img_0207.png)

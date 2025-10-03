@@ -46,7 +46,7 @@ our homestay in Beijing (living with
   
   
 ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee7ce1e66970d.jpg)  
-While [learning Mandarin in Beijing](http://soultravelers3new.local/2012/11/mandarin-immersion-in-china.html "learning Mandarin in Beijing, China")  on our recent month long [Chinese vacation](http://soultravelers3new.local/2012/12/china-family-vacation-beauty-love-joy-.html "China family vacation"), our [homestay](http://soultravelers3new.local/2013/01/best-homestay-living-with-a-family-in-china.html "homestay in Beijing, China") (living with locals) was the best way to immerse deeply in the [Chinese culture](http://soultravelers3new.local/2012/12/confusius-temple-in-beijing-and-tcm-tourism.html "Chinese traditional culture"), discover [life in China](http://soultravelers3new.local/2012/11/life-in-china.html "life in china") and make dear friends that will last a lifetime.  
+While [learning Mandarin in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/mandarin-immersion-in-china.html "learning Mandarin in Beijing, China")  on our recent month long [Chinese vacation](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/china-family-vacation-beauty-love-joy-.html "China family vacation"), our [homestay](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/best-homestay-living-with-a-family-in-china.html "homestay in Beijing, China") (living with locals) was the best way to immerse deeply in the [Chinese culture](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/confusius-temple-in-beijing-and-tcm-tourism.html "Chinese traditional culture"), discover [life in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/life-in-china.html "life in china") and make dear friends that will last a lifetime.  
   
 "A journey is best measured in friends, not in miles." Tim Cahill  
   
@@ -55,7 +55,7 @@ While [learning Mandarin in Beijing](http://soultravelers3new.local/2012/11/mand
   
 ![Our Beijing homestay family - at our first dinner together](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017c3633bf2f970b.jpg)  
   
-This is part two about our [homestay in China](http://soultravelers3new.local/2013/01/best-homestay-living-with-a-family-in-china.html "homestay in China"), that I started yesterday and focused on the amazing family we stayed with and how they took us in for a month on a moments notice and treated us like beloved family. Social connections are everything in China and we are totally grateful to Winser from [China Travel 2.0](http://www.chinatravel20.com/ "China travel ") who knows wonderful people there so helped make our trip so special and rewarding.  
+This is part two about our [homestay in China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/best-homestay-living-with-a-family-in-china.html "homestay in China"), that I started yesterday and focused on the amazing family we stayed with and how they took us in for a month on a moments notice and treated us like beloved family. Social connections are everything in China and we are totally grateful to Winser from [China Travel 2.0](http://www.chinatravel20.com/ "China travel ") who knows wonderful people there so helped make our trip so special and rewarding.  
   
 This post is more photos and details about what it was like to live like a local and with  local Chinese in a fairly typical middle class family in Beijing. As I had mentioned, it was a large 5 bedroom, 2 bathroom home on 3 floors with a roof top terrace, but also a 4 floor walk up to get to it, with very steep stairs.  
   
@@ -77,7 +77,7 @@ We shared a large bathroom with Emma and "Uncle" who had recently moved into the
   
 Here you see us with them on our first day learning how to get back into the house with our keys as we would be the first ones to return each day (as it was easiest to travel during the day and they all worked quite late). These two left for work around 8am catching the nearby subway and we usually joined them or went a bit later to spend the day at the traditional Chinese school in the center where our daughter was immersing in Mandarin.  
   
-At rush hour, the Beijing subway was the most crowded we have ever seen on our [around-the-world tour](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html#more "around the world family travel"), but that is a whole other story I will write about soon.  
+At rush hour, the Beijing subway was the most crowded we have ever seen on our [around-the-world tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html#more "around the world family travel"), but that is a whole other story I will write about soon.  
   
   
   
@@ -110,7 +110,7 @@ Even though we were there in November and December, (thus the roof top garden wa
   
 ![Beijing homestay garden on roof top terrace](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40629585970c.jpg)  
   
-This family is quite particular about food (and [organic eating](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic eating") as we are) and even brought in good animal meats brought in from their province grown on pure foods by one of the grandfathers. We also ate apples that they had gone to a farm in the country side that they picked themselves.  
+This family is quite particular about food (and [organic eating](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "organic eating") as we are) and even brought in good animal meats brought in from their province grown on pure foods by one of the grandfathers. We also ate apples that they had gone to a farm in the country side that they picked themselves.  
   
 ![cool wooden tub in Beijing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d40629821970c.jpg)  
   
@@ -127,27 +127,8 @@ This is the room that Mozart stayed in during the week at her school to help her
   
 I loved this and other family photos on the walls at the home we stayed in. I felt like I even know the grandparents through the photos and stories. They even sent videos by phone of the little brother baby to the 5 year old Andrew that made him giggle.  
   
-A family homestay with this charming and generous family was perfect for our [traveling family](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling family") and an experience we will remember forever and always be grateful for. Do you have any questions?  
+A family homestay with this charming and generous family was perfect for our [traveling family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling family") and an experience we will remember forever and always be grateful for. Do you have any questions?  
   
 
 Related articles
 
-[![](http://i.zemanta.com/133178306_80_80.jpg)](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)[Around-the-World Travel - Best Advice](http://soultravelers3new.local/2012/12/-around-the-world-travel-best-advice.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/135568483_80_80.jpg)](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)[Top Travel Bloggers of 2013? Soultravelers3 Wins!](http://soultravelers3new.local/2013/01/top-travel-bloggers-of-2013-soultravelers3-wins-.html)
-
-[![](http://i.zemanta.com/134800869_80_80.jpg)](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)[Around-the-World Family Travel](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html)
-
-[![](http://i.zemanta.com/130738046_80_80.jpg)](http://soultravelers3new.local/2012/12/the-ultimate-travel-photo.html)[The Ultimate Travel Photo](http://soultravelers3new.local/2012/12/the-ultimate-travel-photo.html)
-
-[![](http://i.zemanta.com/131801621_80_80.jpg)](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html)[The Great Wall of China](http://soultravelers3new.local/2012/12/the-great-wall-of-china.html)
-
-[![](http://i.zemanta.com/139881382_80_80.jpg)](http://soultravelers3new.local/2013/01/bare-butt-babies-in-china-diaper-free-split-pants.html)[Bare Butt Babies in China - Diaper Free - Split Pants](http://soultravelers3new.local/2013/01/bare-butt-babies-in-china-diaper-free-split-pants.html)
-
-[![](http://i.zemanta.com/132755696_80_80.jpg)](http://soultravelers3new.local/2012/12/tropical-winter-vacation-from-freezing-to-flipflops.html)[Tropical Winter Vacation - From Freezing to Flipflops](http://soultravelers3new.local/2012/12/tropical-winter-vacation-from-freezing-to-flipflops.html)
-
-[![](http://i.zemanta.com/135775485_80_80.jpg)](http://soultravelers3new.local/2013/01/best-white-sand-beach-.html)[Best White Sand Beach](http://soultravelers3new.local/2013/01/best-white-sand-beach-.html)
-
-[![](http://i.zemanta.com/129131608_80_80.jpg)](http://soultravelers3new.local/2012/11/shanghai-with-kids.html)[Shanghai with Kids](http://soultravelers3new.local/2012/11/shanghai-with-kids.html)

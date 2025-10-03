@@ -36,7 +36,7 @@ Education Conference, a week
   
 ![Mozart Dee, kid world citizen's inspiring speech on Global Education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02850573970c.png)  
   
-Mozart Dee was the youngest speaker at the 4th annual [Global Education Conference](http://www.globaleducationconference.com/ "Global Education Conference"), a week-long online event bringing together educators and innovators from [around the world](http://soultravelers3new.local/around-the-world-family-travel/ "around the world family travel") with over 13,000 participants, so she was extremely honored to be selected to present.  
+Mozart Dee was the youngest speaker at the 4th annual [Global Education Conference](http://www.globaleducationconference.com/ "Global Education Conference"), a week-long online event bringing together educators and innovators from [around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/around-the-world-family-travel/ "around the world family travel") with over 13,000 participants, so she was extremely honored to be selected to present.  
   
 Thanks to all who joined us on the "live" world wide conference on November 21st and here is a Youtube video of her inspiring speech ( a longer version with intro and Q&A can be found on the GEC site called,"13 year old Trilingual Pioneer in Global Education - World as Classroom- LITERALLY"):  
   
@@ -45,7 +45,7 @@ Thanks to all who joined us on the "live" world wide conference on November 21st
 
   
   
-As a [global citizen](http://soultravelers3new.local/2011/07/how-to-and-why-raise-a-global-kid.html "global citizen"), ["world schooler"](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "world school") and [travel pioneer](http://soultravelers3new.local/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html "travel pioneer") (having [spent the last 8 years ,](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "traveling 8 years")all of her primary school years, [traveling the world](http://soultravelers3new.local/2012/12/around-the-world-family-travel.html "traveling the world") and becoming [fluent in Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in Mandarin") and [Spanish)](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best tutor for Spanish"), she has a unique perspective and [passion to make a difference](http://soultravelers3new.local/2013/12/pencils-of-promise-help-us-build-a-school-in-.html "Help Mozart Dee build a school with POP").  
+As a [global citizen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/how-to-and-why-raise-a-global-kid.html "global citizen"), ["world schooler"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "world school") and [travel pioneer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/02/new-york-times-qa-with-soultravelers3-on-frugal-traveler-nomadic-family-traveler-jeanne-dee.html "travel pioneer") (having [spent the last 8 years ,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "traveling 8 years")all of her primary school years, [traveling the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/12/around-the-world-family-travel.html "traveling the world") and becoming [fluent in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/fluent-mandarin.html "fluent in Mandarin") and [Spanish)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best tutor for Spanish"), she has a unique perspective and [passion to make a difference](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/pencils-of-promise-help-us-build-a-school-in-.html "Help Mozart Dee build a school with POP").  
   
 **TRANSCRIPT OF MOZART DEE'S INSPIRING SPEECH**  
   
@@ -57,7 +57,7 @@ Hi my name is Mozart!  I am really thrilled and honored  to be here to talk ab
   
 **ALWAYS LEARNING**  
   
-One of the many perks of being a global kid is [celebrating cool birthdays abroad](http://soultravelers3new.local/2011/10/celebrating-kids-birthdays-while-traveling.html "celebrating birthdays while traveling") and I just had my 13th in Sydney with a paleo cake and learned to play and bought a didgeridoo. It was my 9th country and 4th continent for celebrating a birthday.  Lucky me!  
+One of the many perks of being a global kid is [celebrating cool birthdays abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/celebrating-kids-birthdays-while-traveling.html "celebrating birthdays while traveling") and I just had my 13th in Sydney with a paleo cake and learned to play and bought a didgeridoo. It was my 9th country and 4th continent for celebrating a birthday.  Lucky me!  
   
 John Holt said:  
  "There is no difference between living and learning… it is impossible and misleading and harmful to think of them as being separate.” .......  
@@ -90,7 +90,7 @@ I have always been on my own track so I walked and bilingually talked starting a
   
 ![Little Mozart reading Harry Potter in the UK at Cambridge U](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02856020970c.png)  
   
-BUT that wasn't quite right either, so my parents decided to [homeschool](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel"). Then they thought, if they were going to [homeschool they might as well do it around the world,](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "homeschool world school best education") so they decided to take the huge risk of  [retiring early](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html "retire early travel the world"), selling everything to educate me and have more time together. That was 2005, I was 5 and we have been traveling ever since.   
+BUT that wasn't quite right either, so my parents decided to [homeschool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool and travel"). Then they thought, if they were going to [homeschool they might as well do it around the world,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "homeschool world school best education") so they decided to take the huge risk of  [retiring early](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/retire-and-travel-the-world.html "retire early travel the world"), selling everything to educate me and have more time together. That was 2005, I was 5 and we have been traveling ever since.   
   
 ![Little Mozart's passport photo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0285e6e4970b.png)  
   
@@ -103,9 +103,9 @@ Some have called me the most well-traveled kid in the world because I have been 
   
 ![Mozart - most well traveled kid after climbing to the Tiger's Nest in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b02865444970b.png)  
   
-I think I am just now beginning to understand just how lucky I have been and I so appreciate all that I have seen, my beautful [friends around the world](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends around the world") and so much time with my family.  
+I think I am just now beginning to understand just how lucky I have been and I so appreciate all that I have seen, my beautful [friends around the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "friends around the world") and so much time with my family.  
   
-I am an only child and very social, so my parents have set up a [slow international travel method](http://soultravelers3new.local/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html "extended travel with kids") that has us returning to places often with many "homes" around the world, so I keep long term friendships in several languages.We travel and live well on a budget of just $23 a day per person.  
+I am an only child and very social, so my parents have set up a [slow international travel method](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/05/globe-trotting-location-independent-kids-friends-perpetual-travelers-tck-long-term-family-travel-.html "extended travel with kids") that has us returning to places often with many "homes" around the world, so I keep long term friendships in several languages.We travel and live well on a budget of just $23 a day per person.  
   
 ![Well traveled Mozart with Chinese friend in Xi'an, China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0286571a970b.png)  
   
@@ -162,7 +162,7 @@ There really is a better way .....and I am living it!
   
 More and more people are heading in this direction from Gen Y'ers to  families and baby boomers.  
   
-Teachers actually have it easier than most to do this  [slow travel](http://soultravelers3new.local/2011/11/slow-travel.html "slow travel") lifestyle due to:  
+Teachers actually have it easier than most to do this  [slow travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/11/slow-travel.html "slow travel") lifestyle due to:  
   
 \* summers off  
   
@@ -178,7 +178,7 @@ Teachers actually have it easier than most to do this  [slow travel](http://sou
   
 **STUDENT - TEACHER - ENTREPRENEUR**  
   
-I am not only a student,  I am also a teacher and entrepreneur  (since I was 12), so I am already doing this as we roam the world. [I teach students on 3 continents](http://soultravelers3new.local/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best teacher spanish, mandarin , english") in Mandarin, Spanish and English( from 4 to 30 years old,  including a geophysicist!) in person and online via Skype. I love it and make good money for a kid my age!  
+I am not only a student,  I am also a teacher and entrepreneur  (since I was 12), so I am already doing this as we roam the world. [I teach students on 3 continents](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/best-classes-or-tutor-for-spanish-english-or-mandarin-in-penang.html "best teacher spanish, mandarin , english") in Mandarin, Spanish and English( from 4 to 30 years old,  including a geophysicist!) in person and online via Skype. I love it and make good money for a kid my age!  
   
 ![6a00e5502a95078833017d414e57b9970c-800wi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833019b0282d434970b.jpg)  
   
@@ -193,22 +193,3 @@ Most people dream about traveling around the world, yet few realize how easy and
 
 Related articles
 
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/111536966_80_80.jpg)](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)[How to Homeschool Through Travel With a Gifted Child](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)
-
-[![](http://i.zemanta.com/222432159_80_80.jpg)](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html)[Global Citizen, Innovative Kid - Speaker at Global Education Conference!](http://soultravelers3new.local/2013/11/global-citizen-innovative-kid-speaker-at-global-education-conference.html)
-
-[![](http://i.zemanta.com/227172950_80_80.jpg)](http://soultravelers3new.local/2013/12/pencils-of-promise-help-us-build-a-school-in-.html)[Pencils of Promise - Help Us Build a School](http://soultravelers3new.local/2013/12/pencils-of-promise-help-us-build-a-school-in-.html)
-
-[![](http://i.zemanta.com/85809747_80_80.jpg)](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html)[The Benefits of Educational Travel for Kids](http://soultravelers3new.local/2012/04/the-benefits-of-educational-travel-for-kids.html)
-
-[![](http://i.zemanta.com/92363554_80_80.jpg)](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)[Bora Bora - Heaven on a Cheap Budget!](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)
-
-[![](http://i.zemanta.com/198782571_80_80.jpg)](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html)[Why Travel With Kids? Kid Traveling the World for 8 Years Tells!](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html)
-
-[![](http://i.zemanta.com/205355117_80_80.jpg)](http://soultravelers3new.local/2013/09/croatia-travel-with-kids.html)[Croatia Travel With Kids](http://soultravelers3new.local/2013/09/croatia-travel-with-kids.html)

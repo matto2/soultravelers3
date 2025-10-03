@@ -43,21 +43,21 @@ the pig, but we have two dragons
 
 <!--more--> ![Exploring China Town Los Angeles & Chinese New Year! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad398a584200c-scaled.jpg)  
   
-[Happy Chinese New Year](http://soultravelers3new.local/2013/07/china-travel-temples.html "Happy Chinese New Year in Asia ") or Lunar New Year and this is the year of the pig, but we have two dragons in our family ( and [visited China](http://soultravelers3new.local/2012/11/visiting-china-and-dragons.html "visiting china ") in a dragon year). Don't miss some of our other posts about Chinese New Year [living in Asia.](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html#more "living in Asia.")
+[Happy Chinese New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/china-travel-temples.html "Happy Chinese New Year in Asia ") or Lunar New Year and this is the year of the pig, but we have two dragons in our family ( and [visited China](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/11/visiting-china-and-dragons.html "visiting china ") in a dragon year). Don't miss some of our other posts about Chinese New Year [living in Asia.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html#more "living in Asia.")
 
-# [20 Stunning Photos: Chinese New Year UNESCO's Georgetown, Penang (檳城街頭文化廟會)](http://soultravelers3new.local/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "20 stunning photos of Chinese New Year")  
-[Chinese New Year in Asia 农历新年 春节](http://soultravelers3new.local/2015/02/chinese-new-year-in-asia-春节.html "Chinese New Year in Asia")  
-[Chinese New Year Celebrations](http://soultravelers3new.local/2013/02/chinese-new-year-celebrations.html "Chinese New Year Celebrations")   
-[Chinese New Year in Asia](http://soultravelers3new.local/2013/02/chinese-new-year-in-asia.html "Chinese New Year in Asia")   
-[Family Travel in Asia at Chinese New Year](http://soultravelers3new.local/2011/02/family-travel-year-of-the-rabbit-in-asia-photos-chinese-new-year-.html "Family Travel in Asia at Chinese New Year")  
-[Stunning Kek Lok Si Temple at Chinese New Year](http://soultravelers3new.local/2012/09/stunning-kek-lok-si-largest-buddhist-temple-in-se-asia.html "Stunning Kek Lok Si - Largest Buddhist Temple in SE Asi") 
+# [20 Stunning Photos: Chinese New Year UNESCO's Georgetown, Penang (檳城街頭文化廟會)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/20-stunning-photos-chinese-new-year-georgetown-penang.html "20 stunning photos of Chinese New Year")  
+[Chinese New Year in Asia 农历新年 春节](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/chinese-new-year-in-asia-春节.html "Chinese New Year in Asia")  
+[Chinese New Year Celebrations](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/chinese-new-year-celebrations.html "Chinese New Year Celebrations")   
+[Chinese New Year in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/02/chinese-new-year-in-asia.html "Chinese New Year in Asia")   
+[Family Travel in Asia at Chinese New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/family-travel-year-of-the-rabbit-in-asia-photos-chinese-new-year-.html "Family Travel in Asia at Chinese New Year")  
+[Stunning Kek Lok Si Temple at Chinese New Year](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/stunning-kek-lok-si-largest-buddhist-temple-in-se-asia.html "Stunning Kek Lok Si - Largest Buddhist Temple in SE Asi") 
 
 ![Exploring China Town Los Angeles & Chinese New Year! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3dedbe3200b-scaled.jpg)
 
-Los Angeles does not have a big China Town, but it is fun for us to experience the culture and architecture etc after having lived in Asia and traveled a lot in that area. Plus the fact that [Mozart](http://soultravelers3new.local/2018/10/-mozart-dee-smashes-the-patriarchy-in-girl-power-song-push-you-harder.html "Mozart teen pop star ") is [fluent in Mandarin](http://soultravelers3new.local/2013/06/fluent-mandarin.html "fluent in Mandarin"). Remember when [Mozart sang](https://www.youtube.com/watch?v=BFRayJ3gdGs "teen pop star Mozart sings in Mandarin") in the Dallas China town ( which is even smaller than the one in Los Angeles)?   
+Los Angeles does not have a big China Town, but it is fun for us to experience the culture and architecture etc after having lived in Asia and traveled a lot in that area. Plus the fact that [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2018/10/-mozart-dee-smashes-the-patriarchy-in-girl-power-song-push-you-harder.html "Mozart teen pop star ") is [fluent in Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/06/fluent-mandarin.html "fluent in Mandarin"). Remember when [Mozart sang](https://www.youtube.com/watch?v=BFRayJ3gdGs "teen pop star Mozart sings in Mandarin") in the Dallas China town ( which is even smaller than the one in Los Angeles)?   
   
 
-# [Blonde American Girl Singing Chinese! 甜蜜蜜](http://soultravelers3new.local/2014/10/blonde-american-girl-singing-chinese-甜蜜蜜-.html "Blonde American Girl Singing Chinese! 甜蜜蜜")
+# [Blonde American Girl Singing Chinese! 甜蜜蜜](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/10/blonde-american-girl-singing-chinese-甜蜜蜜-.html "Blonde American Girl Singing Chinese! 甜蜜蜜")
 
 ![Exploring China Town Los Angeles & Chinese New Year! ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833022ad3bf31de200d.jpg)
 

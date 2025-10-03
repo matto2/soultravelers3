@@ -14,9 +14,9 @@ travel websites, who are all leaders in
 
 <!--more-->
 
-[![Img_6766_3](http://soultravelers3new.local/images/2008/12/02/img_6766_3.jpg "Img_6766_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/02/img_6766_3.jpg)
+[![Img_6766_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/02/img_6766_3.jpg "Img_6766_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/12/02/img_6766_3.jpg)
 
-I am stunned! Out of a small, select list of tip top, corporate and multi-authored travel websites, who are all leaders in the travel industry from the [New York Times](http://www.nytimes.com/pages/travel/) to [National Geographic](http://blogs.nationalgeographic.com/blogs/intelligenttravel/)....there we were: [Soultravelers3!](http://soultravelers3new.local/) 
+I am stunned! Out of a small, select list of tip top, corporate and multi-authored travel websites, who are all leaders in the travel industry from the [New York Times](http://www.nytimes.com/pages/travel/) to [National Geographic](http://blogs.nationalgeographic.com/blogs/intelligenttravel/)....there we were: [Soultravelers3!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/) 
 
 And "what category were you nominated for" you ask?  [BEST TRAVEL BLOG!!](http://www.travel-rants.com/)  
   

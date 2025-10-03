@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_7301](http://soultravelers3new.local/images/2008/04/18/img_7301.png "Img_7301")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7301.png) Spanish Crayons & Writing  
+ [![Img_7301](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7301.png "Img_7301")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7301.png) Spanish Crayons & Writing  
 February 17, 2007
 
 The crayons are different in Spain like  
@@ -15,7 +15,7 @@ one of the things Mozart enjoys in school
 
 <!--more-->
 
-[![Img_7301_2](http://soultravelers3new.local/images/2008/04/18/img_7301_2.png "Img_7301_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7301_2.png)
+[![Img_7301_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7301_2.png "Img_7301_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7301_2.png)
 
 The crayons are different in Spain like many things in the school.“Dictado” is one of the things Mozart enjoys in school and she likes these crayons that come without paper around them. She is always making presents for her teacher and friends and has endless invitations for play dates, so seems happy there. She teases me about my horrible Spanish pronunciation and has perfected her British accent from her UK friends. Yet she is also ready to get on the road and back to home schooling full time.
 
@@ -29,20 +29,20 @@ Her Spanish is so rich now and its intriguing to watch how the immersion seeps i
 
 She also got into a big project of making pictures of all the kids and people she knows  and labeling them. She has her little vest over her PJ’s as it was a little cold that night even for her as she is rarely cold here. We had about a week or two of colder winter weather, especially at night and I am glad it is gone.
 
-[![Img_7294](http://soultravelers3new.local/images/2008/04/18/img_7294.png "Img_7294")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7294.png)
+[![Img_7294](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7294.png "Img_7294")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7294.png)
 
-[![Img_7296](http://soultravelers3new.local/images/2008/04/18/img_7296.png "Img_7296")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7296.png)
+[![Img_7296](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7296.png "Img_7296")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7296.png)
 
-[![Img_7199](http://soultravelers3new.local/images/2008/04/18/img_7199.png "Img_7199")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7199.png)
+[![Img_7199](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7199.png "Img_7199")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7199.png)
 
-[![Img_7195](http://soultravelers3new.local/images/2008/04/18/img_7195.png "Img_7195")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7195.png)
+[![Img_7195](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7195.png "Img_7195")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7195.png)
 
-[![Img_7191](http://soultravelers3new.local/images/2008/04/18/img_7191.png "Img_7191")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7191.png)
+[![Img_7191](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7191.png "Img_7191")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7191.png)
 
-[![Img_7202](http://soultravelers3new.local/images/2008/04/18/img_7202.png "Img_7202")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7202.png)
+[![Img_7202](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7202.png "Img_7202")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7202.png)
 
-[![Img_7203](http://soultravelers3new.local/images/2008/04/18/img_7203.png "Img_7203")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7203.png)
+[![Img_7203](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7203.png "Img_7203")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7203.png)
 
-[![Img_7212](http://soultravelers3new.local/images/2008/04/18/img_7212.png "Img_7212")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7212.png)
+[![Img_7212](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7212.png "Img_7212")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7212.png)
 
-[![Img_4937](http://soultravelers3new.local/images/2008/04/18/img_4937.png "Img_4937")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4937.png)
+[![Img_4937](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_4937.png "Img_4937")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4937.png)

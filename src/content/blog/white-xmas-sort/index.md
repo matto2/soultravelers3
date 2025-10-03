@@ -6,14 +6,14 @@ categories:
   - "spain"
 ---
 
- [![Img_6189](http://soultravelers3new.local/images/2008/04/20/img_6189.png "Img_6189")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6189.png) White Xmas... sort of  
+ [![Img_6189](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6189.png "Img_6189")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6189.png) White Xmas... sort of  
 January 28, 2007
 
 Okay, it was warm and sunny T-shirt weather, but snow WAS on the peaks near our village. Doesn’t that count a little?
 
 <!--more-->
 
-[![Img_6189_2](http://soultravelers3new.local/images/2008/04/20/img_6189_2.png "Img_6189_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6189_2.png)
+[![Img_6189_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6189_2.png "Img_6189_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6189_2.png)
 
 Okay, it was warm and sunny T-shirt weather, but snow WAS on the peaks near our village. Doesn’t that count a little? We have only had about three days of rain here since we arrived (and one of those was at night) and clear brilliant blue skies seems to be the normal pattern (occasionally with a rare cottony puff  
 of a cloud for a little decoration), but it did rain a little one morning as we set off to do our food shopping for Christmas on Saturday the 23rd, before it turned back to sun that afternoon. That dusted the top peaks quite nicely and even tho it has been warm and sunny since then, we managed to keep a little. Ah yes,  
@@ -35,24 +35,24 @@ as allowing Uncle Steve in Northern California to hook up with his fast growing 
 
 It was fun talking to and seeing family and being part of each others Christmas thru the webcam. It does not always work perfectly, but makes being away from family much more bearable. Mozart sang her carols in Spanish at least 3 times. We were all tuckered out after that since we got up so early and had gone to bed late, so we just headed to bed  fully satisfied by our first Christmas Day in Spain.
 
-[![Img_6243](http://soultravelers3new.local/images/2008/04/20/img_6243.png "Img_6243")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6243.png)
+[![Img_6243](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6243.png "Img_6243")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6243.png)
 
-[![Img_6166](http://soultravelers3new.local/images/2008/04/20/img_6166.png "Img_6166")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6166.png)
+[![Img_6166](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6166.png "Img_6166")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6166.png)
 
-[![Img_6185](http://soultravelers3new.local/images/2008/04/20/img_6185.png "Img_6185")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6185.png)
+[![Img_6185](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6185.png "Img_6185")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6185.png)
 
-[![Img_6187](http://soultravelers3new.local/images/2008/04/20/img_6187.png "Img_6187")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6187.png)
+[![Img_6187](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6187.png "Img_6187")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6187.png)
 
-[![Img_6171](http://soultravelers3new.local/images/2008/04/20/img_6171.png "Img_6171")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6171.png)
+[![Img_6171](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6171.png "Img_6171")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6171.png)
 
-[![Img_6208](http://soultravelers3new.local/images/2008/04/20/img_6208.png "Img_6208")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6208.png)
+[![Img_6208](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6208.png "Img_6208")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6208.png)
 
-[![Img_6233](http://soultravelers3new.local/images/2008/04/20/img_6233.png "Img_6233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6233.png)
+[![Img_6233](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6233.png "Img_6233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6233.png)
 
-[![Img_6246](http://soultravelers3new.local/images/2008/04/20/img_6246.png "Img_6246")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6246.png)
+[![Img_6246](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6246.png "Img_6246")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6246.png)
 
-[![Img_6179](http://soultravelers3new.local/images/2008/04/20/img_6179.png "Img_6179")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6179.png)
+[![Img_6179](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6179.png "Img_6179")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6179.png)
 
-[![Img_6267](http://soultravelers3new.local/images/2008/04/20/img_6267.png "Img_6267")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6267.png)
+[![Img_6267](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6267.png "Img_6267")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6267.png)
 
-[![Img_6251](http://soultravelers3new.local/images/2008/04/20/img_6251.png "Img_6251")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6251.png)
+[![Img_6251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6251.png "Img_6251")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6251.png)

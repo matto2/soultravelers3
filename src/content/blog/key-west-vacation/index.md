@@ -23,7 +23,7 @@ most city in the continental
 <!--more--> ![Key West Vacation](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016761db06d4970b.jpg)  
   
   
-Historic Key West Florida is the southern most city in the continental United States and an exciting destinations for [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel"). The drive alone can be a thrill as we took the [famous Overseas Highway](http://soultravelers3new.local/2011/10/florida-road-trip-sun-fun-family-vacation.html "florida road trip") which links all the towns and islands of the Florida Keys with the mainland.  
+Historic Key West Florida is the southern most city in the continental United States and an exciting destinations for [family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "family travel"). The drive alone can be a thrill as we took the [famous Overseas Highway](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/10/florida-road-trip-sun-fun-family-vacation.html "florida road trip") which links all the towns and islands of the Florida Keys with the mainland.  
   
 I haven't been in the Key West in over 30 years and in some ways it remains the same, despite all the changes.When we first drove in, I didn't recognize it with all the new construction, but the old town looked the same. It's still a wonderful place to wander around, perhaps even more so as a family.  
   

@@ -28,7 +28,7 @@ There is not a better place in the world to learn to surf than the warm clear wa
 
 ![ Family Travel Hawaii: Learning to Surf in Kauai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e20de398970b.jpg)
 
-If you love aloha spirt of old Hawaii, then Kauai is for you and it is filled with charm, beauty and friendly people. Our California born daughter has always [dreamed of a family vacation in Hawaii , and Kauai](http://soultravelers3new.local/2010/10/family-travel-kauai-hawaii-photo-luau-hawaiin-culture-napali-coast-sail-best-for-kids.html "dream of a family vacation in Hawaii and Kauai") made all those dreams come true, including learning to surf and becoming a true surfer girl!
+If you love aloha spirt of old Hawaii, then Kauai is for you and it is filled with charm, beauty and friendly people. Our California born daughter has always [dreamed of a family vacation in Hawaii , and Kauai](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/10/family-travel-kauai-hawaii-photo-luau-hawaiin-culture-napali-coast-sail-best-for-kids.html "dream of a family vacation in Hawaii and Kauai") made all those dreams come true, including learning to surf and becoming a true surfer girl!
 
 <iframe class="youtube-player" frameborder="0" height="390" src="http://www.youtube.com/embed/UFvebMenG2I" title="YouTube video player" type="text/html" width="480"></iframe>
 
@@ -64,13 +64,13 @@ We hit the beach and Mozart took to surfing like a duck to water. She made it lo
 ![little surfer girl first hitting the waves](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e20f23da970b.jpg)
 
   
-Even Mom and Dad enjoyed the surfing in this idyllic spot! Interestingly DaVinci had learned to surf in Hawaii when he was 15 and his sister lived there. He has also done a lot of surfing in Santa Cruz over the years, but wanted Mozart to learn in the warm waters of Hawaii, so passed up the chance when we were in [Santa Cruz recently with a private surfing beach](http://soultravelers3new.local/2011/01/homeaway-santa-cruz-beach-house-vacation-rental-review-best-family-friendly-lodging.html "santa cruz vacation rental with private beach") at our disposal.
+Even Mom and Dad enjoyed the surfing in this idyllic spot! Interestingly DaVinci had learned to surf in Hawaii when he was 15 and his sister lived there. He has also done a lot of surfing in Santa Cruz over the years, but wanted Mozart to learn in the warm waters of Hawaii, so passed up the chance when we were in [Santa Cruz recently with a private surfing beach](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/homeaway-santa-cruz-beach-house-vacation-rental-review-best-family-friendly-lodging.html "santa cruz vacation rental with private beach") at our disposal.
 
 ![senior surfer in Hawaii](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c81840cc970c.jpg)
 
 ![IMG_8609_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e20f34e2970b.jpg)
 
-Due to my mobility challenges and my funky arm due to my [bike riding accident and surgery in Austria](http://soultravelers3new.local/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html "bike riding accident and surgery in Austria"), I couldn't stand and surf, but I DID enjoy riding the waves prone style, a LOT.
+Due to my mobility challenges and my funky arm due to my [bike riding accident and surgery in Austria](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/09/-a-travelers-tragic-tale-handling-travel-disasters-medical-emergency-.html "bike riding accident and surgery in Austria"), I couldn't stand and surf, but I DID enjoy riding the waves prone style, a LOT.
 
 ![Surf boards and native Hawaiian beautiful girl ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e20f4ab1970b.jpg)
 

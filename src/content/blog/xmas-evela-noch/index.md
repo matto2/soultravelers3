@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_5649](http://soultravelers3new.local/images/2008/04/20/img_5649.png "Img_5649")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5649.png) Xmas Eve/La Nochebuena  
+ [![Img_5649](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5649.png "Img_5649")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5649.png) Xmas Eve/La Nochebuena  
 December 26, 2006
 
 Peace, Joy and Light...those were the  
@@ -15,7 +15,7 @@ We enjoy drawing them daily from a bowl
 
 <!--more-->
 
-[![Img_5649_2](http://soultravelers3new.local/images/2008/04/20/img_5649_2.png "Img_5649_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5649_2.png)
+[![Img_5649_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5649_2.png "Img_5649_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5649_2.png)
 
 Peace, Joy and Light...those were the angel cards we got on Christmas Eve! We enjoy drawing them daily from a bowl held high as a way to bring positive focus into our lives and to remind us of individual angelic qualities that are always present with us. They are enjoyed even more during the holiday season.
 
@@ -33,24 +33,24 @@ We are very blessed that our church has broadcasts on the internet for webclasse
 
 Often we have gone to a midnight mass after watching it with friends or sometimes we all have a meal together with friends and in recent years Mozart has also gotten to light Hanukkah candles and sing Hebrew songs with friends of ours who hosted with their children who celebrate both Christmas and Hanukkah. It starts at three in the afternoon in California, but since we are in Spain which is nine hours later, it started at Midnight here. So we skipped midnight mass with our village neighbors and had our own little celebration with friends from our church via the internet. It was thrilling to still be part of it, this far away. We even saw Mozart’s Godfather and some of her friends and the hosts’ son Max was born just months before she was and they played as babies together. There is a community in Madrid (as well as London, Paris, Sweden, Brazil, Mexico, Nigeria, Canada, Russia and Australia etc), but as far as we know, we were the only ones watching in Andalusia!
 
-[![Img_6007](http://soultravelers3new.local/images/2008/04/20/img_6007.png "Img_6007")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6007.png)
+[![Img_6007](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6007.png "Img_6007")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6007.png)
 
-[![Img_6074](http://soultravelers3new.local/images/2008/04/20/img_6074.png "Img_6074")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6074.png)
+[![Img_6074](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6074.png "Img_6074")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6074.png)
 
-[![Img_5645](http://soultravelers3new.local/images/2008/04/20/img_5645.png "Img_5645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5645.png)
+[![Img_5645](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5645.png "Img_5645")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5645.png)
 
-[![Img_5627](http://soultravelers3new.local/images/2008/04/20/img_5627.png "Img_5627")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5627.png)
+[![Img_5627](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5627.png "Img_5627")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5627.png)
 
-[![Img_5610](http://soultravelers3new.local/images/2008/04/20/img_5610.png "Img_5610")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5610.png)
+[![Img_5610](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5610.png "Img_5610")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5610.png)
 
-[![Img_5726](http://soultravelers3new.local/images/2008/04/20/img_5726.png "Img_5726")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5726.png)
+[![Img_5726](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5726.png "Img_5726")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5726.png)
 
-[![Img_5662](http://soultravelers3new.local/images/2008/04/20/img_5662.png "Img_5662")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5662.png)
+[![Img_5662](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5662.png "Img_5662")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5662.png)
 
-[![Img_5750](http://soultravelers3new.local/images/2008/04/20/img_5750.png "Img_5750")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5750.png)
+[![Img_5750](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5750.png "Img_5750")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5750.png)
 
-[![Img_5893](http://soultravelers3new.local/images/2008/04/20/img_5893.png "Img_5893")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5893.png)
+[![Img_5893](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5893.png "Img_5893")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5893.png)
 
-[![Img_6316](http://soultravelers3new.local/images/2008/04/20/img_6316.png "Img_6316")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6316.png)
+[![Img_6316](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6316.png "Img_6316")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6316.png)
 
-[![Img_5682](http://soultravelers3new.local/images/2008/04/20/img_5682.png "Img_5682")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5682.png)
+[![Img_5682](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_5682.png "Img_5682")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_5682.png)

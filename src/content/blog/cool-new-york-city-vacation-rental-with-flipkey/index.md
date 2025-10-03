@@ -37,7 +37,7 @@ This three bedroom sanctuary with a state of the art kitchen in an historic home
   
 ![NYC from the air lit up at night](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d06ea13b970c.png)  
   
-When we were suddenly, (out of the blue),  heading to [New York City for Fashion Week](http://soultravelers3new.local/2014/09/mozarts-adventures-during-new-york-fashion-week.html#more "Mozart's Adventures in New York City for Fashion Week") so Mozart could be the [youngest reporter](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html#more "Mozart is Youngest Reporter at New York Fashion Week!"), we soon discovered what a difficult time that was to book something in Manhattan. [Flipkey](https://twitter.com/flipkey "flipkey on twitter") is a long time friend from [Twitter](https://twitter.com/soultravelers3 "soultravelers3 on twitter"), so they came to the rescue and it was an easy orderly process from start to finish.  
+When we were suddenly, (out of the blue),  heading to [New York City for Fashion Week](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/09/mozarts-adventures-during-new-york-fashion-week.html#more "Mozart's Adventures in New York City for Fashion Week") so Mozart could be the [youngest reporter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html#more "Mozart is Youngest Reporter at New York Fashion Week!"), we soon discovered what a difficult time that was to book something in Manhattan. [Flipkey](https://twitter.com/flipkey "flipkey on twitter") is a long time friend from [Twitter](https://twitter.com/soultravelers3 "soultravelers3 on twitter"), so they came to the rescue and it was an easy orderly process from start to finish.  
   
 ![Pretty model and singer  Mozart in NYC at Mercedes- Benz Fashion Week](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d06ea17c970c.png)  
   
@@ -60,11 +60,11 @@ It's wonderful to be in a magnificent city like New York and get great value in 
   
 ![Singer Mozart at starbucks in NYC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb0789b654970d.png)  
   
-As a family who has [strict dietary needs](http://soultravelers3new.local/2014/06/how-to-stay-healthy-while-traveling-paleo-road-trip.html#more "How to stay healthy while traveling and eating strict diet like paleo"), and [traveling with health concerns](http://soultravelers3new.local/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "traveling when sick or health challenges"), we really appreciate the convenience of a kitchen when we travel, and this one was sublime.  
+As a family who has [strict dietary needs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/06/how-to-stay-healthy-while-traveling-paleo-road-trip.html#more "How to stay healthy while traveling and eating strict diet like paleo"), and [traveling with health concerns](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/10/traveling-while-sick-or-with-health-medical-challenges.html "traveling when sick or health challenges"), we really appreciate the convenience of a kitchen when we travel, and this one was sublime.  
   
 ![Cool New York City Vacation Rental with FlipKey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6e4af41970b.png)  
   
-One of the first things we did is hit the Whole Foods store and get some [organic groceries](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy organic food and travel") to cook up some of our favorite foods. We ate breakfast and dinner here and had yummy lunches around Manhattan while exploring.This keeps us healthy and our budget low, while still enjoying the restaurants in NYC.  
+One of the first things we did is hit the Whole Foods store and get some [organic groceries](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "healthy organic food and travel") to cook up some of our favorite foods. We ate breakfast and dinner here and had yummy lunches around Manhattan while exploring.This keeps us healthy and our budget low, while still enjoying the restaurants in NYC.  
   
 ![travel teen and singer Mozart in NYC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6e4af80970b.png)  
   
@@ -89,7 +89,7 @@ Mozart loved her room with antique bed...
   
 ![Travel teen and singer Mozart stopping traffic in New York City](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d06ea200970c.png)  
   
-It's a lot of fun to run around [New York](http://soultravelers3new.local/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "New York City family travel") and explore all of it's delights...  
+It's a lot of fun to run around [New York](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/09/family-travel-photo-nyc-usa-metropolitan-museum-of-art-egyptian.html "New York City family travel") and explore all of it's delights...  
   
 ![Travel teen and singer Mozart enjoying an ice cream in NYC](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6e4afbc970b.png)  
   
@@ -118,7 +118,7 @@ There was this amazing super moon when we arrived, so I got this great photo fro
   
 ![Cool New York City Vacation Rental with FlipKey](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6e4b010970b.png)  
   
-If you [travel light](http://soultravelers3new.local/2013/03/top-travel-tip-for-long-term-travel.html "best tips for packing light ") like we do, the large capacity Electrolux washer/dryer will come in handy as it did for us.  
+If you [travel light](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/03/top-travel-tip-for-long-term-travel.html "best tips for packing light ") like we do, the large capacity Electrolux washer/dryer will come in handy as it did for us.  
   
 The owners of this vacation rental operate their own interior design business, so that was evident in so many ways from functionality to the ambiance of a country retreat infused with modern sensibility.  
   
@@ -140,22 +140,3 @@ New York City is one of our favorite places ( I lived their in the late 70's and
 
 Related articles
 
-[![](http://i.zemanta.com/296115506_80_80.jpg)](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html)[Mozart is Youngest Reporter at New York Fashion Week!](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html)
-
-[![](http://i.zemanta.com/297853337_80_80.jpg)](http://soultravelers3new.local/2014/09/mozarts-adventures-during-new-york-fashion-week.html)[Mozart's Adventures During New York Fashion Week](http://soultravelers3new.local/2014/09/mozarts-adventures-during-new-york-fashion-week.html)
-
-[![](http://i.zemanta.com/264138071_80_80.jpg)](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)[Bora Bora Dream Vacation on a Low Budget](http://soultravelers3new.local/2014/04/bora-bora-dream-vacation-on-a-low-budget.html)
-
-[![](http://i.zemanta.com/110602553_80_80.jpg)](http://soultravelers3new.local/2012/09/south-beach-miami-vacation-photo.html)[South Beach Miami Vacation Photo](http://soultravelers3new.local/2012/09/south-beach-miami-vacation-photo.html)
-
-[![](http://i.zemanta.com/157055767_80_80.jpg)](http://soultravelers3new.local/2013/04/ireland-travel-with-kids.html)[Ireland Travel With Kids](http://soultravelers3new.local/2013/04/ireland-travel-with-kids.html)
-
-[![](http://i.zemanta.com/130189927_80_80.jpg)](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)[Soultravelers3 in China Emperors Style](http://soultravelers3new.local/2012/12/soultravelers3-in-china-emperors-style.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/102070393_80_80.jpg)](http://soultravelers3new.local/2012/07/krakow-holiday-vacation.html)[Krakow Holiday Vacation](http://soultravelers3new.local/2012/07/krakow-holiday-vacation.html)
-
-[![](http://i.zemanta.com/239455677_80_80.jpg)](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)[Mozart Meeting Soultravelers3 Blog Readers Around the World](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)

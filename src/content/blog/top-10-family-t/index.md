@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_0144](http://soultravelers3new.local/images/2008/05/27/img_0144.jpg "Img_0144")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/27/img_0144.jpg) Top 10 Family Travel Tips  
+ [![Img_0144](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/27/img_0144.jpg "Img_0144")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/27/img_0144.jpg) Top 10 Family Travel Tips  
 May 27, 2008
 
 People are always asking about our top tips  
@@ -15,7 +15,7 @@ list together about the top ten things that we
 
 <!--more-->
 
-[![Img_0144_4](http://soultravelers3new.local/images/2008/05/27/img_0144_4.jpg "Img_0144_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/27/img_0144_4.jpg)
+[![Img_0144_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/27/img_0144_4.jpg "Img_0144_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/27/img_0144_4.jpg)
 
 People are always asking about our top tips for family travel, so I thought I would put this list together about the top ten things that we are most glad that we have done or brought along with us.
 
@@ -51,4 +51,4 @@ Jump in, the water is wonderful! Make your own plan for extended family travel.Â
 
   
 
-[![Img_0118_3](http://soultravelers3new.local/images/2008/05/27/img_0118_3.jpg "Img_0118_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/27/img_0118_3.jpg)
+[![Img_0118_3](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/05/27/img_0118_3.jpg "Img_0118_3")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/05/27/img_0118_3.jpg)

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_6400](http://soultravelers3new.local/images/2008/04/20/img_6400.png "Img_6400")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6400.png) Happy New Year!  
+ [![Img_6400](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6400.png "Img_6400")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6400.png) Happy New Year!  
 February 5, 2007
 
 Our first New Years Eve in Spain started  
@@ -15,7 +15,7 @@ they have been popping away for days.
 
 <!--more-->
 
-[![Img_6400_2](http://soultravelers3new.local/images/2008/04/20/img_6400_2.png "Img_6400_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6400_2.png)
+[![Img_6400_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6400_2.png "Img_6400_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6400_2.png)
 
 Our first New Years Eve in Spain started with a bang...actually lots of them as they have been popping  
 away for days. We just joined the small, happy crowd as they headed past our door towards the main  
@@ -73,24 +73,24 @@ is so familiar it is taken for granted”
 
 Bill Bryson
 
-[![200394400001](http://soultravelers3new.local/images/2008/04/20/200394400001.png "200394400001")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/200394400001-150x150-1.png)
+[![200394400001](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/200394400001.png "200394400001")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/200394400001-150x150-1.png)
 
-[![Img_6422](http://soultravelers3new.local/images/2008/04/20/img_6422.png "Img_6422")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6422.png)
+[![Img_6422](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6422.png "Img_6422")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6422.png)
 
-[![Img_6401](http://soultravelers3new.local/images/2008/04/20/img_6401.png "Img_6401")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6401.png)
+[![Img_6401](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6401.png "Img_6401")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6401.png)
 
-[![Img_6411](http://soultravelers3new.local/images/2008/04/20/img_6411.png "Img_6411")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6411.png)
+[![Img_6411](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6411.png "Img_6411")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6411.png)
 
-[![Img_6396](http://soultravelers3new.local/images/2008/04/20/img_6396.png "Img_6396")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6396.png)
+[![Img_6396](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6396.png "Img_6396")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6396.png)
 
-[![Img_6408](http://soultravelers3new.local/images/2008/04/20/img_6408.png "Img_6408")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6408.png)
+[![Img_6408](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6408.png "Img_6408")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6408.png)
 
-[![Img_6409](http://soultravelers3new.local/images/2008/04/20/img_6409.png "Img_6409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6409.png)
+[![Img_6409](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6409.png "Img_6409")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6409.png)
 
-[![Img_6417](http://soultravelers3new.local/images/2008/04/20/img_6417.png "Img_6417")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6417.png)
+[![Img_6417](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6417.png "Img_6417")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6417.png)
 
-[![Img_6421](http://soultravelers3new.local/images/2008/04/20/img_6421.png "Img_6421")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6421.png)
+[![Img_6421](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6421.png "Img_6421")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6421.png)
 
-[![Img_6451](http://soultravelers3new.local/images/2008/04/20/img_6451.png "Img_6451")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6451.png)
+[![Img_6451](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6451.png "Img_6451")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6451.png)
 
-[![Img_6455](http://soultravelers3new.local/images/2008/04/20/img_6455.png "Img_6455")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6455.png)
+[![Img_6455](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6455.png "Img_6455")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6455.png)

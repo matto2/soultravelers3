@@ -36,7 +36,7 @@ packed and with over 50, 000 shows from
 
 <!--more--> ![Visit Edinburgh at Fringe Festival or Not ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d2a7d500970c.png)  
   
-The [Edinburgh Festival Fringe](http://soultravelers3new.local/2011/05/family-travel-scotland-edinburgh-festival-photo.html "Family travel Edinburgh Fringe Festival ") is one of the biggest celebrations on our planet. It's wild, packed and with over 50, 000 shows from big names to unknowns. It has been going on every August for seventy years. Yet on [Mozart's 10 city European solo concert tour](http://soultravelers3new.local/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html "#MozartIgniteTour Mozart Dee Europe tour") in [Europe this summer](http://soultravelers3new.local/2017/05/best-of-europe-summer-trip-.html#more "Europe travel in summer tips"), we purposely missed it, but not [Edinburgh](http://soultravelers3new.local/2010/06/family-travel-scotland-edinburgh-funny-sign-souvenir-shop-edinburgh-festival-camping.html "Visit Edinburgh with kids").   
+The [Edinburgh Festival Fringe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/05/family-travel-scotland-edinburgh-festival-photo.html "Family travel Edinburgh Fringe Festival ") is one of the biggest celebrations on our planet. It's wild, packed and with over 50, 000 shows from big names to unknowns. It has been going on every August for seventy years. Yet on [Mozart's 10 city European solo concert tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/06/mozartignitetour-in-europe-mozart-dees-keynote-speech.html "#MozartIgniteTour Mozart Dee Europe tour") in [Europe this summer](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2017/05/best-of-europe-summer-trip-.html#more "Europe travel in summer tips"), we purposely missed it, but not [Edinburgh](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/06/family-travel-scotland-edinburgh-funny-sign-souvenir-shop-edinburgh-festival-camping.html "Visit Edinburgh with kids").   
   
 ![Visit Edinburgh at Fringe Festival or Not ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d2a7d602970c.png)  
   
@@ -110,8 +110,3 @@ The only person who can really decide whether to visit Edinburgh during the Frin
 
 Related articles
 
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)

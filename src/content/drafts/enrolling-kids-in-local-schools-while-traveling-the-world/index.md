@@ -8,7 +8,7 @@ categories:
 draft: true
 ---
 
-[![6a00e5502a95078833016765c59ed0970b-pi](https://soultravelers3.typepad.com/.a/6a00e5502a950788330176173c9f04970c-200wi "6a00e5502a95078833016765c59ed0970b-pi")](http://soultravelers3.typepad.com/.a/6a00e5502a950788330176173c9f04970c-pi)Enrolling Kids in Local Schools  
+[![6a00e5502a95078833016765c59ed0970b-pi](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176173c9f04970c.jpg "6a00e5502a95078833016765c59ed0970b-pi")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330176173c9f04970c.jpg-pi)Enrolling Kids in Local Schools  
 While Traveling the World  
   
 Looking for an easy way  
@@ -19,13 +19,13 @@ new lagnuage and  local culture
 
 <!--more-->
 
-[![American traveling kid in Chinese school in Asia](http://soultravelers3.typepad.com/.a/6a00e5502a9507883301676947fd61970b-500wi "American traveling kid in Chinese school in Asia")](http://soultravelers3.typepad.com/.a/6a00e5502a9507883301676947fd61970b-pi)  
+[![American traveling kid in Chinese school in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676947fd61970b.jpg "American traveling kid in Chinese school in Asia")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301676947fd61970b.jpg-pi)  
   
 
-Looking for an easy way to [immerse your kids in a a new lagnuage](http://soultravelers3new.local/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "immerse kids in new language and culture") and local culture while traveling around the world? What's the [best way for traveling families to bond with friends](http://soultravelers3new.local/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "best way for traveling families to bond with friends") that are locals?  
+Looking for an easy way to [immerse your kids in a a new lagnuage](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/06/how-to-raise-a-bilingual-or-multi-lingual-child.html "immerse kids in new language and culture") and local culture while traveling around the world? What's the [best way for traveling families to bond with friends](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/02/kids-friends-travel-on-the-ultimate-family-adventure.html "best way for traveling families to bond with friends") that are locals?  
   
-On our [family world trip](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "family world trip around-the-world") these last 7 years, despite being [homeschoolers](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "homeschooling and travel") with a school age child, we have purposely dipped regularly into local schools and find it the best way to learn langauges, know a culture deeply and make great life long friendships.  
+On our [family world trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "family world trip around-the-world") these last 7 years, despite being [homeschoolers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "homeschooling and travel") with a school age child, we have purposely dipped regularly into local schools and find it the best way to learn langauges, know a culture deeply and make great life long friendships.  
   
 We love the benefits of homeschooling while we travel the world, but also have gotten incredible benefits by enrolling in local schools and returning to bases over several years. For us, world school means combining the best of homeschool and  unschool methods while traveling and spending time in local schools.
 
-[![Img_4293_2-1_2](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016769050ec8970b-800wi "Img_4293_2-1_2")](http://soultravelers3.typepad.com/.a/6a00e5502a95078833016769050ec8970b-pi)
+[![Img_4293_2-1_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016769050ec8970b.jpg "Img_4293_2-1_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016769050ec8970b.jpg-pi)

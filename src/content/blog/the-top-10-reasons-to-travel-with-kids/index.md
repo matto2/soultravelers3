@@ -38,7 +38,7 @@ No better education for our global 
   
 **1) KIDS MAKE IT MORE FUN!**  
   
-What could be more fun than [seeing the world](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "homeschool through travel") through your child's eyes? I loved [traveling the world](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling the world digital nomad") as a single, as a couple and with groups, but nothing beats [traveling the world as a family](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "trilingual Mozart speaks at GEC about family travel education").   
+What could be more fun than [seeing the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html "homeschool through travel") through your child's eyes? I loved [traveling the world](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html "traveling the world digital nomad") as a single, as a couple and with groups, but nothing beats [traveling the world as a family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "trilingual Mozart speaks at GEC about family travel education").   
   
   
 ![The Top 10 Reasons to Travel with Kids](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d14774cd970c.png)  
@@ -47,7 +47,7 @@ What could be more fun than [seeing the world](http://soultravelers3new.local/20
   
 **2) TRAVELING IS MORE EDUCATIONAL THAN A TEXT BOOK**  
   
-The world is getting smaller and there is no [better education](http://soultravelers3new.local/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "Family Travel, Homeschool, Education & Global Student") for our global citizens of the 21st century than world travel. Mozart has had little formal schooling yet she got better than most seniors on her SAT test at 13 and graduated high school at 14 and now about to start college at just 14.   
+The world is getting smaller and there is no [better education](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/04/family-travel-homeschool-education-global-students-lifestyle-design-location-independent-4hww-around.html "Family Travel, Homeschool, Education & Global Student") for our global citizens of the 21st century than world travel. Mozart has had little formal schooling yet she got better than most seniors on her SAT test at 13 and graduated high school at 14 and now about to start college at just 14.   
   
 ![The Top 10 Reasons to Travel with Kids - Mozart in Bhutan](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7bda163970b.png)  
   
@@ -109,6 +109,3 @@ What other reasons can you think of?** 
 
 Related articles
 
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)

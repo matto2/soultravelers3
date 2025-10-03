@@ -33,9 +33,9 @@ but half an inch of snow closed down
   
 ![Snow and Ice Closes Dallas Down!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07f6c36e970d.png)  
   
-Not like the snow storms on the East Coast or Snowmageddon 2015, but half an inch of snow closed down [Dallas](http://soultravelers3new.local/2014/02/omg-snow-in-dallas.html "snow dallas") and![Snow and Ice Closes Dallas Down! Pool and snow](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c752fd63970b.png)
+Not like the snow storms on the East Coast or Snowmageddon 2015, but half an inch of snow closed down [Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/omg-snow-in-dallas.html "snow dallas") and![Snow and Ice Closes Dallas Down! Pool and snow](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c752fd63970b.png)
 
-brought a little bit excitement to all. [Mozart](http://soultravelers3new.local/2015/02/teen-mozart-singing-red-carpet-grammys.html "teen mozart singing grammy red carpet") had to rush out 
+brought a little bit excitement to all. [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2015/02/teen-mozart-singing-red-carpet-grammys.html "teen mozart singing grammy red carpet") had to rush out 
 
 ![Snow and Ice Closes Dallas Down! Mozart makes a snowball](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07f6c3d6970d.png)
 
@@ -63,8 +63,3 @@ So a little bit of snow, topped with sleet and cold temps brings everything to a
 
 Related articles
 
-[![](http://i.zemanta.com/324827302_80_80.jpg)](http://soultravelers3new.local/2015/01/the-secret-to-travel-with-kids.html)[The Secret to Travel with Kids!](http://soultravelers3new.local/2015/01/the-secret-to-travel-with-kids.html)
-
-[![](http://i.zemanta.com/328610945_80_80.jpg)](http://soultravelers3new.local/2015/02/chinese-new-year-in-asia-%E6%98%A5%E8%8A%82.html)[Chinese New Year in Asia 农历新年 春节](http://soultravelers3new.local/2015/02/chinese-new-year-in-asia-%E6%98%A5%E8%8A%82.html)
-
-[![](http://i.zemanta.com/325798753_80_80.jpg)](http://soultravelers3new.local/2015/02/do-you-have-the-courage-to-travel-deep-into-the-sahara-.html)[Do You Have the Courage to Travel Deep Into the Sahara?](http://soultravelers3new.local/2015/02/do-you-have-the-courage-to-travel-deep-into-the-sahara-.html)

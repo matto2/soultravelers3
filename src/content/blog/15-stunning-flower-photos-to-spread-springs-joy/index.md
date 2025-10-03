@@ -31,13 +31,13 @@ Who doesn't love spring or flowers?
 ![stunning flower photos for spring](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a3fcdcdb3f970b.png)  
   
   
-"Be like the [flower](http://soultravelers3new.local/2011/07/beautiful-butterfly-flowers-and-family-travel.html "butterfly and flowers and travel"), turn your face to the sun." Kahlil Gibran.  
+"Be like the [flower](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/07/beautiful-butterfly-flowers-and-family-travel.html "butterfly and flowers and travel"), turn your face to the sun." Kahlil Gibran.  
   
-Who doesn't love [spring or flowers](http://soultravelers3new.local/2012/03/spring-fever-flowers-in-bloom.html "spring")? Has [spring fever](http://soultravelers3new.local/2013/04/spring-fever-tropical-flowers-in-asia.html "spring fever flowers") arrived yet in your area?
+Who doesn't love [spring or flowers](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/spring-fever-flowers-in-bloom.html "spring")? Has [spring fever](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/04/spring-fever-tropical-flowers-in-asia.html "spring fever flowers") arrived yet in your area?
 
-One of the fabulous things about [lodging in Dallas](http://soultravelers3new.local/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "lodging in dallas best hotel") this spring, is a chance to explore a half a million tulips in bloom at the amazing [Dallas Arboretum](http://www.dallasarboretum.org/ "dallas arboretum") Bloom festival!  
+One of the fabulous things about [lodging in Dallas](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/best-extended-stay-hotel-in-dallas-hawthorn-suites-addison-galleria.html "lodging in dallas best hotel") this spring, is a chance to explore a half a million tulips in bloom at the amazing [Dallas Arboretum](http://www.dallasarboretum.org/ "dallas arboretum") Bloom festival!  
   
-[Family travel](http://soultravelers3new.local/around-the-world-family-travel/ "family travel tips") at it's best that combined [homeschoo](http://soultravelers3new.local/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool")l/[unschool](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "unschool and travel") [science](http://soultravelers3new.local/2014/02/home-school-science-unschool-and-world-school-tips.html "unschool science"), time in [nature](http://soultravelers3new.local/2013/08/grounding-earthing-nature-better-health.html "nature"), photography and beauty. I'll be writing more about it, but wanted to get some of these stunning photos up quickly to share with you.  
+[Family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/around-the-world-family-travel/ "family travel tips") at it's best that combined [homeschoo](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/03/long-term-family-travel-homeschool-roadschool-world-school-digitalnomad-lifestyle-design-virtual-.html "homeschool")l/[unschool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "unschool and travel") [science](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/02/home-school-science-unschool-and-world-school-tips.html "unschool science"), time in [nature](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/08/grounding-earthing-nature-better-health.html "nature"), photography and beauty. I'll be writing more about it, but wanted to get some of these stunning photos up quickly to share with you.  
   
 ![Tulips in bloom](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a5118c8331970c.png)  
   
@@ -110,22 +110,3 @@ Are you ready to celebrate spring?
 
 Related articles
 
-[![](http://i.zemanta.com/80951626_80_80.jpg)](http://soultravelers3new.local/2012/03/spring-fever-flowers-in-bloom.html)[Spring Fever = Flowers in Bloom](http://soultravelers3new.local/2012/03/spring-fever-flowers-in-bloom.html)
-
-[![](http://i.zemanta.com/182334280_80_80.jpg)](http://soultravelers3new.local/2013/07/best-freedom-quotes.html)[Best Freedom Quotes](http://soultravelers3new.local/2013/07/best-freedom-quotes.html)
-
-[![](http://i.zemanta.com/92363554_80_80.jpg)](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)[Bora Bora - Heaven on a Cheap Budget!](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)
-
-[![](http://i.zemanta.com/noimg_108_80_80.jpg)](http://soultravelers3new.local/2012/01/florida-sun-winter-getaway.html)[Florida Sun Winter Getaway](http://soultravelers3new.local/2012/01/florida-sun-winter-getaway.html)
-
-[![](http://i.zemanta.com/197008054_80_80.jpg)](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)[Secrets for a Permanent Vacation](http://soultravelers3new.local/2013/08/secrets-for-a-permanent-vacation-travel-tips.html)
-
-[![](http://i.zemanta.com/noimg_49_80_80.jpg)](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html)[5 Best European Family Vacations](http://soultravelers3new.local/2012/02/5-best-european-family-vacations.html)
-
-[![](http://i.zemanta.com/91218951_80_80.jpg)](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)[Advice to College Grads From a World Traveler](http://soultravelers3new.local/2012/05/advice-to-college-grads-from-a-world-traveler.html)
-
-[![](http://i.zemanta.com/239455677_80_80.jpg)](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)[Mozart Meeting Soultravelers3 Blog Readers Around the World](http://soultravelers3new.local/2014/01/mozart-meeting-soultravelers3-blog-readers-around-the-world.html)
-
-[![](http://i.zemanta.com/230838918_80_80.jpg)](http://soultravelers3new.local/2013/12/change-the-world-cambiar-el-mundo-%E6%94%B9%E5%8F%98%E4%B8%96%E7%95%8C-adorable-video-by-trilingual-mozart-.html)[Change the world! Cambiar el Mundo! 改变世界! Adorable Video by Trilingual Mozart!](http://soultravelers3new.local/2013/12/change-the-world-cambiar-el-mundo-%E6%94%B9%E5%8F%98%E4%B8%96%E7%95%8C-adorable-video-by-trilingual-mozart-.html)
-
-[![](http://i.zemanta.com/154024597_80_80.jpg)](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)[Curing Gum Disease and Cavities Naturally](http://soultravelers3new.local/2013/03/curing-gum-disease-and-cavities-naturally.html)

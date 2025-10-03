@@ -17,7 +17,7 @@ count the ways! We are here now and
 
 ![IMG_4454](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330115712deb3a970c.jpg)
 
-Why should families travel to Cinque Terra, Italy and vacation there? Let me count the ways! We are here now and I could give you a hundred reasons, but we want to go out and play some more in [this gorgeous environment,](http://en.wikipedia.org/wiki/Cinque_Terre) so I will just confine myself to a brief post with just 7 top reasons. I will be writing more about our time here soon with lots of detail information and tons of [fantastic photos](http://soultravelers3new.local/photos.html), but wanted to give you a taste of all the fun and beauty!
+Why should families travel to Cinque Terra, Italy and vacation there? Let me count the ways! We are here now and I could give you a hundred reasons, but we want to go out and play some more in [this gorgeous environment,](http://en.wikipedia.org/wiki/Cinque_Terre) so I will just confine myself to a brief post with just 7 top reasons. I will be writing more about our time here soon with lots of detail information and tons of [fantastic photos](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos.html), but wanted to give you a taste of all the fun and beauty!
 
 **It is a Unesco [World Heritage Site!](http://whc.unesco.org/en/list/826)**
 
@@ -29,7 +29,7 @@ Why should families travel to Cinque Terra, Italy and vacation there? Let me cou
 
 **The Food!  
   
-[![IMG_4319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011572226dd1970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a95078833011572226dd1970b-300x225.jpg)  
+[![IMG_4319](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833011572226dd1970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a95078833011572226dd1970b-300x225.jpg)  
   
 It is Beautiful!  
   

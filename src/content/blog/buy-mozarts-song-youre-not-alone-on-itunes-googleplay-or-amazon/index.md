@@ -33,14 +33,14 @@ now on itunes, Google Play &
 
 ![B7QowokCYAA22WJ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0bf7c01970c.jpg)
 
-You can buy [Mozart's](http://soultravelers3new.local/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html "Mozart's song \"You're Not Alone\" in a movie") beautiful heart-touching original [song, "You're Not Alone"](http://soultravelers3new.local/2014/12/mozarts-recording-her-beautiful-song-youre-not-alone.html "beautiful song by Mozart, \"You're Not Alone\"") now on [itunes](https://itunes.apple.com/us/album/youre-not-alone-single/id956381389?ign-mpt=uo%3D4 "teen singer Mozart's \"You're Not Alone\" on itunes"), [Google Play](https://play.google.com/store/music/album/Mozart_You_re_Not_Alone?id=B664dvuahv4qf4hus67tudaqeye&hl=en "Teen singer Mozart's song \"You're Not Alone\" on google play"), or [Amazon](http://www.amazon.com/Youre-Alone-Wolfgang-Amadeus-Mozart/dp/B00RZMMQE4/ref=sr_1_1?s=dmusic&ie=UTF8&qid=1421218554&sr=1-1&keywords=you%27re+not+alone+by+Mozart "Teen singer Mozart's song \"You're Not Alone\" on Amazon")! Just click on the links to the source that works the best for you and download it for just 99 cents and we'd so appreciate it if you'd write a postive review too!  
+You can buy [Mozart's](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html "Mozart's song \"You're Not Alone\" in a movie") beautiful heart-touching original [song, "You're Not Alone"](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/12/mozarts-recording-her-beautiful-song-youre-not-alone.html "beautiful song by Mozart, \"You're Not Alone\"") now on [itunes](https://itunes.apple.com/us/album/youre-not-alone-single/id956381389?ign-mpt=uo%3D4 "teen singer Mozart's \"You're Not Alone\" on itunes"), [Google Play](https://play.google.com/store/music/album/Mozart_You_re_Not_Alone?id=B664dvuahv4qf4hus67tudaqeye&hl=en "Teen singer Mozart's song \"You're Not Alone\" on google play"), or [Amazon](http://www.amazon.com/Youre-Alone-Wolfgang-Amadeus-Mozart/dp/B00RZMMQE4/ref=sr_1_1?s=dmusic&ie=UTF8&qid=1421218554&sr=1-1&keywords=you%27re+not+alone+by+Mozart "Teen singer Mozart's song \"You're Not Alone\" on Amazon")! Just click on the links to the source that works the best for you and download it for just 99 cents and we'd so appreciate it if you'd write a postive review too!  
   
 
 <iframe allowfullscreen src="//www.youtube.com/embed/AUd-6FmGFVU" frameborder="0" height="360" width="640"></iframe>
 
   
   
-Quite the moment in history for [14 year old Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "trilingual travel expert teen Mozart speaker & singer") to have her first song up on itunes in 8th grade! She wrote it about Human Trafficking to help the cause, but it's wise words speak to us all in an uplifting way.  
+Quite the moment in history for [14 year old Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "trilingual travel expert teen Mozart speaker & singer") to have her first song up on itunes in 8th grade! She wrote it about Human Trafficking to help the cause, but it's wise words speak to us all in an uplifting way.  
   
 By chance, she sang this new song at an audition for Tim Brynes ( of One Direction, Fifth Hamony, Little Mix etc fame) and Dallas Lovato. They said that she was amazing and Dallas so loved the song that she wants to use it in a movie trilogy she is doing about this topic. There were so many very  talented singers there that day, so it was thriling to hear that this song was the only one that gave them chills!  
   
@@ -57,8 +57,3 @@ We are so proud of her hard work and talent & grateful she is using her music to
 
 Related articles
 
-[![](http://i.zemanta.com/321612472_80_80.jpg)](http://soultravelers3new.local/2015/01/-q-a-mozarts-take-on-travel-music-homeschool.html)[Q & A: Mozart's Take on Travel, Music, Homeschool](http://soultravelers3new.local/2015/01/-q-a-mozarts-take-on-travel-music-homeschool.html)
-
-[![](http://i.zemanta.com/317983075_80_80.jpg)](http://soultravelers3new.local/2014/12/polar-express-grand-canyon-adventure.html)[Polar Express Grand Canyon Adventure!](http://soultravelers3new.local/2014/12/polar-express-grand-canyon-adventure.html)
-
-[![](http://i.zemanta.com/320223768_80_80.jpg)](http://soultravelers3new.local/2015/01/7-best-places-to-travel-in-2015.html)[7 Best Places to Travel in 2015](http://soultravelers3new.local/2015/01/7-best-places-to-travel-in-2015.html)

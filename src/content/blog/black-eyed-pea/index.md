@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_9800](http://soultravelers3new.local/images/2008/04/14/img_9800.png "Img_9800")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9800.png) Black Eyed Pea  
+ [![Img_9800](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9800.png "Img_9800")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9800.png) Black Eyed Pea  
 March 12, 2007
 
 Oops, poor baby, a little drama added  
@@ -15,7 +15,7 @@ jacuzzi wall while swimming with dad and
 
 <!--more-->
 
-[![Img_9800_2](http://soultravelers3new.local/images/2008/04/14/img_9800_2.png "Img_9800_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9800_2.png)
+[![Img_9800_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9800_2.png "Img_9800_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9800_2.png)
 
 Oops, poor baby, a little drama added to the mix! Mozart bumped her eye on the jacuzzi wall while swimming with dad and it instantly popped up about the size of a golf ball which was pretty scary. I am writing this twelve days later and it is still dark blue and much darker than any of the pictures show. They tend to have the water here right up to the edge so it was hard to see the wall and it happened fast.
 
@@ -29,22 +29,22 @@ He gave us a prescription for some cream to help with the swelling and color tha
 
 The good news is that it never bothered her much and it gets better everyday. It is even placed in such a way that it is not always obvious in her photos. It was funny that one person even wondered why she had on purple eye shadow on one eye!
 
-[![Img_9782](http://soultravelers3new.local/images/2008/04/14/img_9782.png "Img_9782")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9782.png)
+[![Img_9782](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9782.png "Img_9782")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9782.png)
 
-[![Img_9797](http://soultravelers3new.local/images/2008/04/14/img_9797.png "Img_9797")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9797.png)
+[![Img_9797](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9797.png "Img_9797")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9797.png)
 
-[![Img_9776](http://soultravelers3new.local/images/2008/04/14/img_9776.png "Img_9776")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9776.png)
+[![Img_9776](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9776.png "Img_9776")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9776.png)
 
-[![Img_1379](http://soultravelers3new.local/images/2008/04/14/img_1379.png "Img_1379")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1379.png)
+[![Img_1379](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_1379.png "Img_1379")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_1379.png)
 
-[![Img_9816](http://soultravelers3new.local/images/2008/04/14/img_9816.png "Img_9816")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9816.png)
+[![Img_9816](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9816.png "Img_9816")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9816.png)
 
-[![Img_9818](http://soultravelers3new.local/images/2008/04/14/img_9818.png "Img_9818")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9818.png)
+[![Img_9818](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9818.png "Img_9818")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9818.png)
 
-[![Img_9820](http://soultravelers3new.local/images/2008/04/14/img_9820.png "Img_9820")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9820.png)
+[![Img_9820](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9820.png "Img_9820")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9820.png)
 
-[![Img_0509](http://soultravelers3new.local/images/2008/04/14/img_0509.png "Img_0509")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0509.png)
+[![Img_0509](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0509.png "Img_0509")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0509.png)
 
-[![Img_9801](http://soultravelers3new.local/images/2008/04/14/img_9801.png "Img_9801")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9801.png)
+[![Img_9801](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9801.png "Img_9801")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9801.png)
 
-[![Img_0513](http://soultravelers3new.local/images/2008/04/14/img_0513.png "Img_0513")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0513.png)
+[![Img_0513](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_0513.png "Img_0513")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_0513.png)

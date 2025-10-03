@@ -18,7 +18,7 @@ tags:
   - "travel"
 ---
 
- [![Img_9608_4](http://soultravelers3new.local/images/2008/04/20/img_9608_4.jpg "Img_9608_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_9608_4.jpg) Spring in Spain!  
+ [![Img_9608_4](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_9608_4.jpg "Img_9608_4")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_9608_4.jpg) Spring in Spain!  
 April 20, 2008
 
 This is the view that I see out my kitchen  
@@ -27,7 +27,7 @@ to make me smile.
 
 <!--more-->
 
-[![Spain, Med sea, Meditteranean, cyprus trees, olive trees, ](http://soultravelers3new.local/images/2008/04/20/img_9608_3.jpg "Spain, Med sea, Meditteranean, cyprus trees, olive trees, ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_9608_3.jpg)
+[![Spain, Med sea, Meditteranean, cyprus trees, olive trees, ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_9608_3.jpg "Spain, Med sea, Meditteranean, cyprus trees, olive trees, ")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_9608_3.jpg)
 
   
 
@@ -50,4 +50,4 @@ I will end with Mozart on the balcony looking out into the campo from our little
 
 "For everything that lives is holy, life delights in life."  William Blake
 
-[![Img_9406](http://soultravelers3new.local/images/2008/04/20/img_9406.jpg "Img_9406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_9406.jpg)
+[![Img_9406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_9406.jpg "Img_9406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_9406.jpg)

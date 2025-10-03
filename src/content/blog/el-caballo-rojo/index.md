@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_9244](http://soultravelers3new.local/images/2008/04/14/img_9244.png "Img_9244")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9244.png) El Caballo Rojo Lunch  
+ [![Img_9244](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9244.png "Img_9244")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9244.png) El Caballo Rojo Lunch  
 March 8, 2007
 
 El Caballo Rojo (the red horse) is a long  
@@ -15,7 +15,7 @@ is known for its creative regional dishes
 
 <!--more-->
 
-[![Img_9244_2](http://soultravelers3new.local/images/2008/04/14/img_9244_2.png "Img_9244_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9244_2.png)
+[![Img_9244_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9244_2.png "Img_9244_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9244_2.png)
 
 El Caballo Rojo (the red horse) is a long standing fine restaurant in Cordoba that is known for its creative regional dishes based on centuries old Sephardic and Moorish recipes. Cordoba, itself is known as the culinary capital of Andalusia, thus we thought this would be a good place to be more adventurous with our cuisine choices.
 
@@ -27,20 +27,20 @@ DaVinci’s sister BJ decided on the Octopus (which seemed brave to me until I t
 
 We were having a hard time deciding which desserts to choose when the maitre d\` came up with the good idea of having a small piece of everything! Mmmmm, a perfectly luscious way to end a succulent feast.
 
-[![Img_9212](http://soultravelers3new.local/images/2008/04/14/img_9212.png "Img_9212")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9212.png)
+[![Img_9212](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9212.png "Img_9212")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9212.png)
 
-[![Img_9221](http://soultravelers3new.local/images/2008/04/14/img_9221.png "Img_9221")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9221.png)
+[![Img_9221](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9221.png "Img_9221")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9221.png)
 
-[![Img_9236](http://soultravelers3new.local/images/2008/04/14/img_9236.png "Img_9236")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9236.png)
+[![Img_9236](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9236.png "Img_9236")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9236.png)
 
-[![Img_9228](http://soultravelers3new.local/images/2008/04/14/img_9228.png "Img_9228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9228.png)
+[![Img_9228](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9228.png "Img_9228")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9228.png)
 
-[![Img_9245](http://soultravelers3new.local/images/2008/04/14/img_9245.png "Img_9245")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9245.png)
+[![Img_9245](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9245.png "Img_9245")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9245.png)
 
-[![Img_9251](http://soultravelers3new.local/images/2008/04/14/img_9251.png "Img_9251")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9251.png)
+[![Img_9251](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9251.png "Img_9251")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9251.png)
 
-[![Img_9249](http://soultravelers3new.local/images/2008/04/14/img_9249.png "Img_9249")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9249.png)
+[![Img_9249](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9249.png "Img_9249")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9249.png)
 
-[![Img_9253](http://soultravelers3new.local/images/2008/04/14/img_9253.png "Img_9253")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9253.png)
+[![Img_9253](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9253.png "Img_9253")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9253.png)
 
-[![Img_9260](http://soultravelers3new.local/images/2008/04/14/img_9260.png "Img_9260")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9260.png)
+[![Img_9260](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/14/img_9260.png "Img_9260")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/14/img_9260.png)

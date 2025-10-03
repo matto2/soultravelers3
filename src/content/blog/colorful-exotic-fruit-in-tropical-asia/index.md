@@ -28,7 +28,7 @@ explore them as there are so
 
 <!--more--> ![colorful exotic tropical fruit in Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301761636725c970c.jpg)  
   
-Do you enjoy exotic fruits? [Tropical Asia](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical Asia") is the place to explore them as there are so many strange fruits that I have never even seen before. One way to combine [healthy food and travel](http://soultravelers3new.local/2012/06/healthy-food-and-travel.html "healthy food and travel") is to eat like the locals and find ways to eat [organic raw food](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "organic raw food"). This is where we [buy organic food in Penang](http://soultravelers3new.local/2012/08/where-to-buy-organic-food-in-penang.html "where to buy organic food in Penang").  
+Do you enjoy exotic fruits? [Tropical Asia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "tropical Asia") is the place to explore them as there are so many strange fruits that I have never even seen before. One way to combine [healthy food and travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/healthy-food-and-travel.html "healthy food and travel") is to eat like the locals and find ways to eat [organic raw food](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "organic raw food"). This is where we [buy organic food in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/where-to-buy-organic-food-in-penang.html "where to buy organic food in Penang").  
   
 ![papaya](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c7a4168970c.jpg)  
   
@@ -42,7 +42,7 @@ I have forgotten what the name of these odd, harry ones are, but they are quite 
   
 ![lovely, tasty but weird rambutan ..a fruit native to Malaysia](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3ef8e78970d.jpg)  
   
-My daughter is crazy about the passion fruit and regularly makes her own [healthy soda pop](http://soultravelers3new.local/2012/09/how-to-make-healthy-soda-pop-even-a-kid-can-do-it-.html "healthy soda pop") using them. We do lots of things with the cheap coconut here, including [making healthy, cheap deodorant](http://soultravelers3new.local/2012/09/how-to-make-diy-homemade-deodorant-easy-cheap-healthy.html "making healthy, cheap deodorant").  
+My daughter is crazy about the passion fruit and regularly makes her own [healthy soda pop](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-healthy-soda-pop-even-a-kid-can-do-it-.html "healthy soda pop") using them. We do lots of things with the cheap coconut here, including [making healthy, cheap deodorant](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/09/how-to-make-diy-homemade-deodorant-easy-cheap-healthy.html "making healthy, cheap deodorant").  
   
 ![tropical fruit bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017ee3ef8fa2970d.jpg)  
   
@@ -50,7 +50,7 @@ Sometimes I think I enjoy these fruits as much for their looks as the taste, as 
   
 ![tropical leaf snack](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c7a3418970c.jpg)  
   
-This is some kind of coconut concoction, and we haven't tried it yet, but it looks intriquing dressed in those leaves which I am guessing are banana tree leaves all nestled on a [Mandarin](http://soultravelers3new.local/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Mandarin ") paper.  
+This is some kind of coconut concoction, and we haven't tried it yet, but it looks intriquing dressed in those leaves which I am guessing are banana tree leaves all nestled on a [Mandarin](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/06/why-learn-mandarin-in-tropical-asia-penang.html "Mandarin ") paper.  
   
 ![mangos, bananas and lemons in a bowl](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833017d3c7a3769970c.jpg)  
   

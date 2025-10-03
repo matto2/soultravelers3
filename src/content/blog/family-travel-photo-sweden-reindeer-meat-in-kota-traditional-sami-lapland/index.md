@@ -45,6 +45,6 @@ I will try to get at least one blog post up a week, usually uploaded on Tuesday 
 
 I am hoping more time in nature and our beloved slow travel that calls to our souls, will give us time to dream and brainstorm on how we can enjoy our popularity, plus connect and collaborate with others, without adding more challenges to us, nor taking away from our primary focus of freedom, bonding and education. There are only so many hours in a day and life is short, so must be lived to the fullest.
 
-We're so excited to be on the road again! [Portugal (returning to swim with the dolphins](http://soultravelers3new.local/2008/06/celebrating-in.html) now that Mozart is 8), Barcelona area, Minorca, Sardinia, Corsica, Italy, Switzerland, Poland, Hungry, Romania, possibly Bulgaria and [Paris](http://soultravelers3new.local/2006/09/paris-bois-de-b.html) are all on our list this year, along with Egypt, Jordan & Jerusalem in the fall. We will play it by ear and see how many get seen.
+We're so excited to be on the road again! [Portugal (returning to swim with the dolphins](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/06/celebrating-in.html) now that Mozart is 8), Barcelona area, Minorca, Sardinia, Corsica, Italy, Switzerland, Poland, Hungry, Romania, possibly Bulgaria and [Paris](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/09/paris-bois-de-b.html) are all on our list this year, along with Egypt, Jordan & Jerusalem in the fall. We will play it by ear and see how many get seen.
 
 We'd love to hear any feedback or ideas that you have!

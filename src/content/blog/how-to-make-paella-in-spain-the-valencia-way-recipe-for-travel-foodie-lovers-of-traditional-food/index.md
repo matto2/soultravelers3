@@ -33,7 +33,7 @@ We made a video about it last summer, as he cooked it at the beach,  but are ju
 
 <iframe class="youtube-player" frameborder="0" height="390" src="http://www.youtube.com/embed/99t-NPNCipE" title="YouTube video player" type="text/html" width="480"></iframe>
 
-We have a [favorite beach resort campground where we hang out a lot while in Barcelona](http://soultravelers3new.local/2007/05/barcelona-beach.html "barcelona beach resort campground") and our friends live nearby. They love to travel and camp in their caravan, so they made us this awesome dinner at the campsite on a hot June day. We loved it so much that we did it again when we returned in September to Barcelona so Mozart could celebrate her birthday there with our friends and she requested the scrumptious paella.
+We have a [favorite beach resort campground where we hang out a lot while in Barcelona](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/05/barcelona-beach.html "barcelona beach resort campground") and our friends live nearby. They love to travel and camp in their caravan, so they made us this awesome dinner at the campsite on a hot June day. We loved it so much that we did it again when we returned in September to Barcelona so Mozart could celebrate her birthday there with our friends and she requested the scrumptious paella.
 
 ![IMG_4499_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e1cff089970b.jpg)  
   
@@ -44,7 +44,7 @@ We have a [favorite beach resort campground where we hang out a lot while in Bar
 
 ![bomba rice is best for paella Valencia style](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e1cff3ed970b.jpg)
 
-At the [beach in Andalusia they often make Paella with seafood](http://soultravelers3new.local/2007/02/marbella.html "beach in andalusia make paella with seafood"), but this is a more traditional way using chicken and rabbit for the meat. It is also traditioinal to make it outside. The special beans they use taste more like potatoes than beans and might be my favorite ingredient.
+At the [beach in Andalusia they often make Paella with seafood](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/marbella.html "beach in andalusia make paella with seafood"), but this is a more traditional way using chicken and rabbit for the meat. It is also traditioinal to make it outside. The special beans they use taste more like potatoes than beans and might be my favorite ingredient.
 
 ![YUMMY beans that taste like potatoes](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330148c7d909aa970c.jpg)
 

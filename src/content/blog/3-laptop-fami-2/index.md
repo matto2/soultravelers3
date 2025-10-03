@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_9003](http://soultravelers3new.local/images/2008/04/16/img_9003.jpg "Img_9003")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9003.jpg) Getting Geeky, Alltop & Changes  
+ [![Img_9003](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/16/img_9003.jpg "Img_9003")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/16/img_9003.jpg) Getting Geeky, Alltop & Changes  
 April 14, 2008
 
 Can you believe [Guy Kawasaki](http://www.guykawasaki.com/) at [Alltop](http://alltop.com/)  
@@ -15,7 +15,7 @@ top travel sites in cyberspace?
 
 <!--more-->
 
-[![2286756653_588b28e81e_2](http://soultravelers3new.local/images/2008/04/13/2286756653_588b28e81e_2.jpg "2286756653_588b28e81e_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2286756653_588b28e81e_2-150x150-1.jpg)
+[![2286756653_588b28e81e_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/13/2286756653_588b28e81e_2.jpg "2286756653_588b28e81e_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2286756653_588b28e81e_2-150x150-1.jpg)
 
   
 

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_7456](http://soultravelers3new.local/images/2008/04/18/img_7456.png "Img_7456")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7456.png) Book Bonanza!  
+ [![Img_7456](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7456.png "Img_7456")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7456.png) Book Bonanza!  
 February 19, 2007
 
 Packing up, moving out, transition time is  
@@ -15,7 +15,7 @@ dvd’s for homeschool and pleasure,
 
 <!--more-->
 
-[![Img_7456_2](http://soultravelers3new.local/images/2008/04/18/img_7456_2.png "Img_7456_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7456_2.png)
+[![Img_7456_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7456_2.png "Img_7456_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7456_2.png)
 
 Packing up, moving out, transition time is here! We got a whole load of new books & dvd’s for homeschool and pleasure, so it is feeling like a second Christmas. Mozart is beside herself with joy as books are like candy to her. She has already zipped thru a few. I get a lot of classics and know that she  will enjoy rereading them.
 
@@ -63,16 +63,16 @@ She got to skip school the other day and got a new bike for the road. We have no
 
 It seems we have moved to a new phase here: not quite here, but not quite gone.The weather has been even more sublime than usual, so spring fever is making us hungry for the road and ready to get this prep and packing behind us!
 
-[![Img_7350](http://soultravelers3new.local/images/2008/04/18/img_7350.png "Img_7350")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7350.png)
+[![Img_7350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7350.png "Img_7350")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7350.png)
 
-[![Img_4484](http://soultravelers3new.local/images/2008/04/18/img_4484.png "Img_4484")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4484.png)
+[![Img_4484](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_4484.png "Img_4484")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_4484.png)
 
-[![Img_7372](http://soultravelers3new.local/images/2008/04/18/img_7372.png "Img_7372")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7372.png)
+[![Img_7372](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7372.png "Img_7372")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7372.png)
 
-[![Img_7464](http://soultravelers3new.local/images/2008/04/18/img_7464.png "Img_7464")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7464.png)
+[![Img_7464](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7464.png "Img_7464")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7464.png)
 
-[![Img_7233](http://soultravelers3new.local/images/2008/04/18/img_7233.png "Img_7233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7233.png)
+[![Img_7233](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7233.png "Img_7233")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7233.png)
 
-[![Img_7406](http://soultravelers3new.local/images/2008/04/18/img_7406.png "Img_7406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7406.png)
+[![Img_7406](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7406.png "Img_7406")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7406.png)
 
-[![Img_7483](http://soultravelers3new.local/images/2008/04/18/img_7483.png "Img_7483")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7483.png)
+[![Img_7483](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_7483.png "Img_7483")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_7483.png)

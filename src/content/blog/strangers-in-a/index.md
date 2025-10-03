@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_4258](http://soultravelers3new.local/images/2008/04/23/img_4258.png "Img_4258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4258.png) Strangers in a Strange Land  
+ [![Img_4258](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4258.png "Img_4258")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4258.png) Strangers in a Strange Land  
 November 8, 2006
 
 There have been moments where it has  
@@ -15,7 +15,7 @@ It is hard to explain, but there is something
 
 <!--more-->
 
-[![Img_4258_2](http://soultravelers3new.local/images/2008/04/23/img_4258_2.png "Img_4258_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4258_2.png)
+[![Img_4258_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4258_2.png "Img_4258_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4258_2.png)
 
 There have been moments where it has seemed like I am on another planet here. It is hard to explain, but there is something other worldly about this place and it has taken us a little while to get our bearings. I remember my friend Carrie talking about the energy in a white village she stayed in years ago after serving in Africa in the Peace Corps. She thought it was paradise on earth and specifically said something about the energy of the land having a very special vibration or something to that effect. I am not sure exactly what that means, but now that I have experienced it here, I understand more about what she was talking about.
 
@@ -73,26 +73,26 @@ The strangeness is just part of the adventure and exactly the experience we were
 The camping life and camper almost seem like a dream now, funny how quickly one adapts. Perhaps it seems less so to DaVinci and Mozart as they walk by it everyday going to school and he usually starts it up every other day to keep the battery fresh. It might be weeks before we drive any where. We want to get  
 a good handle on our life here before we go off on short exploring expeditions to see what else southern Spain has for us. It is an exciting, mysterious, stimulating, thought-provoking experience here thus far.
 
-[![Img_4105](http://soultravelers3new.local/images/2008/04/23/img_4105.png "Img_4105")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4105.png)
+[![Img_4105](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4105.png "Img_4105")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4105.png)
 
   
 
-[![Img_4202](http://soultravelers3new.local/images/2008/04/23/img_4202.png "Img_4202")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4202.png)
+[![Img_4202](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4202.png "Img_4202")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4202.png)
 
-[![Img_4480](http://soultravelers3new.local/images/2008/04/23/img_4480.png "Img_4480")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4480.png)
+[![Img_4480](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4480.png "Img_4480")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4480.png)
 
-[![Img_4079](http://soultravelers3new.local/images/2008/04/23/img_4079.png "Img_4079")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4079.png)
+[![Img_4079](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4079.png "Img_4079")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4079.png)
 
-[![Img_4080](http://soultravelers3new.local/images/2008/04/23/img_4080.png "Img_4080")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4080.png)
+[![Img_4080](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4080.png "Img_4080")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4080.png)
 
-[![Img_4558](http://soultravelers3new.local/images/2008/04/23/img_4558.png "Img_4558")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4558.png)
+[![Img_4558](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4558.png "Img_4558")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4558.png)
 
-[![Img_4476](http://soultravelers3new.local/images/2008/04/23/img_4476.png "Img_4476")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4476.png)
+[![Img_4476](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4476.png "Img_4476")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4476.png)
 
-[![Img_4474](http://soultravelers3new.local/images/2008/04/23/img_4474.png "Img_4474")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4474.png)
+[![Img_4474](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4474.png "Img_4474")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4474.png)
 
-[![Img_4124](http://soultravelers3new.local/images/2008/04/23/img_4124.png "Img_4124")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4124.png)
+[![Img_4124](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4124.png "Img_4124")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4124.png)
 
-[![Img_4467](http://soultravelers3new.local/images/2008/04/23/img_4467.png "Img_4467")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4467.png)
+[![Img_4467](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4467.png "Img_4467")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4467.png)
 
-[![Img_4165](http://soultravelers3new.local/images/2008/04/23/img_4165.png "Img_4165")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4165.png)
+[![Img_4165](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/23/img_4165.png "Img_4165")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/23/img_4165.png)

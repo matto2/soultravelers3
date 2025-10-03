@@ -33,14 +33,14 @@ I don't usually talk about my birthdays much online, but this was a big one. In 
   
   
 "A man's age is something impressive, it sums up his life: maturity reached slowly and against many obstacles, illnesses cured, griefs and despairs overcome, and unconcious risks taken; maturity formed through so many desires, hopes, regrets, forgotten things, loves. A man's age represents a fine cargo of experiences and memories." Antoine de Saint-Exupery  
-[](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health ")  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health ")  
   
 How did this happen? Sixty? Really? I still naturally don't have any gray hair, I am not on any medication  and I feel as young as ever.  I am thinking that age is just a number and doesn't really matter.  
   
 ![kiss in the pool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833016764d5a713970b.jpg)  
   
   
-It probably didn't help that I had been dealing with [travel health](http://soultravelers3new.local/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") issues for some time as this birthday approached, but luckily [healthy eating](http://soultravelers3new.local/2012/04/health-organic-raw-foods-and-travel.html "healthy eating travel") and a few other things was turning that around. So by the time it arrived I was ready to accept it and rejoice in gratitude that I have had sixty wonderful years on this planet, have an amazing child that I get to spend tons of time with, a great husband, two living sweet parents, a dear sister and awesome friends around the world.  
+It probably didn't help that I had been dealing with [travel health](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/09/travel-health-secrets-for-long-term-digital-nomads.html "travel health") issues for some time as this birthday approached, but luckily [healthy eating](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/04/health-organic-raw-foods-and-travel.html "healthy eating travel") and a few other things was turning that around. So by the time it arrived I was ready to accept it and rejoice in gratitude that I have had sixty wonderful years on this planet, have an amazing child that I get to spend tons of time with, a great husband, two living sweet parents, a dear sister and awesome friends around the world.  
   
   
 "Age is a question of mind over matter. If you don't mind, it doesn't matter. "Satchel" Page  

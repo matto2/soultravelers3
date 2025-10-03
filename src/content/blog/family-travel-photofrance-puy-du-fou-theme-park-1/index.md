@@ -7,7 +7,7 @@ categories:
   - "france"
 ---
 
- [![IMG_6989](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ff9fa22970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301156ff9fa22970c.jpg) Family Travel Photo-France  
+ [![IMG_6989](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301156ff9fa22970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301156ff9fa22970c.jpg) Family Travel Photo-France  
 June 10, 2008
 
 The spectacular Puy du Fou theme park  
@@ -28,4 +28,4 @@ The chariot race in this photo took place in a coliseum and they were going fast
 
 We will be writing more about this terrific place soon, but wanted to get a taste of it up, in case any one is planning a trip to France soon.
 
-I also have been working on a Question and Answer post for the last several days which I planned to post today. It was loaded with great links which perhaps was too much for my very tempermental wifi here at our [Barcelona campground](http://soultravelers3new.local/2007/05/barcelona-beach.html) because I lost it all a few hours ago when I tried to upload it. Ugh. Thus, I decided to put this post up to at least have something up this week. I'll get back to that after I cool down over the loss.
+I also have been working on a Question and Answer post for the last several days which I planned to post today. It was loaded with great links which perhaps was too much for my very tempermental wifi here at our [Barcelona campground](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/05/barcelona-beach.html) because I lost it all a few hours ago when I tried to upload it. Ugh. Thus, I decided to put this post up to at least have something up this week. I'll get back to that after I cool down over the loss.

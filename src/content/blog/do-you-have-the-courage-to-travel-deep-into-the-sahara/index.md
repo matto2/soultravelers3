@@ -35,18 +35,18 @@ old Mozart on a camel trek overnight
 <!--more-->  
 ![Do you have the courage to travel deep into the Sahara?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0ccd350970c.png)  
   
-Do you have the courage to [travel deep into the Sahara](http://soultravelers3new.local/2007/04/les-nomades-sah.html#more "best travel experience in the Sahara")? When we took 6 year old [Mozart](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Mozart travel expert teen") on a [camel trek overnight trip](http://soultravelers3new.local/2007/04/sahara-rainbow.html#more "camel trek into the sahara") deep into [the Sahara](http://soultravelers3new.local/2007/04/sahara-violin-c.html#more "mozart plays violin deep in the Sahara service project") ( by land - ie bus, ferry, train, car [from Europe](http://soultravelers3new.local/2007/03/long-day-into-a.html#more "Europe to Morocco  - long day journey")) we felt very adventurous as it's not something done by most American travelers.  
+Do you have the courage to [travel deep into the Sahara](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/les-nomades-sah.html#more "best travel experience in the Sahara")? When we took 6 year old [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Mozart travel expert teen") on a [camel trek overnight trip](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/sahara-rainbow.html#more "camel trek into the sahara") deep into [the Sahara](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/sahara-violin-c.html#more "mozart plays violin deep in the Sahara service project") ( by land - ie bus, ferry, train, car [from Europe](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/03/long-day-into-a.html#more "Europe to Morocco  - long day journey")) we felt very adventurous as it's not something done by most American travelers.  
   
 ![Mozart visits the Sahara Desert in Morocco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e73f04970d.png)  
   
-We [did have fear](http://soultravelers3new.local/2012/08/can-you-travel-with-fear-of-flying-vertigo-claustrophobia-and-agoraphobia.html "fear and travel "), especially doing it [with a young child](http://soultravelers3new.local/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "why travel with kids"), but focused on our courage.  
+We [did have fear](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/08/can-you-travel-with-fear-of-flying-vertigo-claustrophobia-and-agoraphobia.html "fear and travel "), especially doing it [with a young child](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/why-travel-with-kids-kid-traveling-the-world-for-8-years-tells.html "why travel with kids"), but focused on our courage.  
   
 
 <iframe allowfullscreen src="https://www.youtube.com/embed/IrrAFDt9W_U" frameborder="0" height="480" width="640"></iframe>
 
   
   
-It turned out to one of our best choices on [our world tour](http://soultravelers3new.local/2012/01/amazing-family-world-tour.html "amazing family world tour"), that we all still remember well and cherish, even [Mozart](http://soultravelers3new.local/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html "Mozart singer/songwriter teen"), because it was such a totally exotic and unique experience.  
+It turned out to one of our best choices on [our world tour](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/01/amazing-family-world-tour.html "amazing family world tour"), that we all still remember well and cherish, even [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/12/mozart-sings-youre-not-alone-on-the-radio-possibly-a-movie.html "Mozart singer/songwriter teen"), because it was such a totally exotic and unique experience.  
   
 ![Mozart deep in the Sahara in Morocco at sunrise waking up after camel trek over night](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d0cd57cd970c.png)  
   
@@ -59,7 +59,7 @@ So I write this to encourage you to face your fears when it comes to travel and 
   
 ![Do You Have the Courage to Travel Deep Into the Sahara? Berber baking bread](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7438978970b.png)  
   
-[Morocco](http://soultravelers3new.local/morocco/page/3/ "travel tips for Morocco") and [the Sahara Desert](http://soultravelers3new.local/2007/04/wilderness-lodg.html#more "best lodging in Merzouga in the Sahara") are like no where else on the planet, so it is worth going just for that reason.  
+[Morocco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/morocco/page/3/ "travel tips for Morocco") and [the Sahara Desert](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/wilderness-lodg.html#more "best lodging in Merzouga in the Sahara") are like no where else on the planet, so it is worth going just for that reason.  
   
 ![Do You Have the Courage to Travel to Morocco?](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c7438983970b.png)  
   
@@ -76,8 +76,8 @@ We like to get off the beaten path and get to know the locals, as we feel to rea
   
 ![Mozart with friends in Morocco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb07e73e6f970d.png)  
   
-Through a travel friend & [Morocco](http://soultravelers3new.local/morocco/page/2/ "morocco travel tips") expert I met on the internet, [Joao Leitao](http://www.joaoleitao.com/ "Joao Leitao"), we met the amazing Hmad and [Alessandra](http://soultravelers3new.local/2007/04/alessandra.html#more "Alessandra from Morocco Sahara tour company") at [Les Nomades](http://nomadsaharabivouacmerzouga.com/bivo
-uac-morocco.html "excursion in Morocco in the Sahara") that helped us get a very authentic, heartfelt ( & safe) experience of the [Sahara and it's people](http://soultravelers3new.local/2007/04/children-of-the.html#more "the Sahara and it's people and children").  
+Through a travel friend & [Morocco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/morocco/page/2/ "morocco travel tips") expert I met on the internet, [Joao Leitao](http://www.joaoleitao.com/ "Joao Leitao"), we met the amazing Hmad and [Alessandra](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/alessandra.html#more "Alessandra from Morocco Sahara tour company") at [Les Nomades](http://nomadsaharabivouacmerzouga.com/bivo
+uac-morocco.html "excursion in Morocco in the Sahara") that helped us get a very authentic, heartfelt ( & safe) experience of the [Sahara and it's people](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/children-of-the.html#more "the Sahara and it's people and children").  
   
 ![Travel kid Mozart in the Sahara sliding down a dune laughing](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c74389b9970b.png)  
   
@@ -86,8 +86,3 @@ Do gather your courage, do your research and head for this country and the Sahar
 
 Related articles
 
-[![](http://i.zemanta.com/noimg_12_80_80.jpg)](http://soultravelers3new.local/2015/01/-q-a-mozarts-take-on-travel-music-homeschool.html)[Q & A: Mozart's Take on Travel, Music, Homeschool](http://soultravelers3new.local/2015/01/-q-a-mozarts-take-on-travel-music-homeschool.html)
-
-[![](http://i.zemanta.com/noimg_72_80_80.jpg)](http://soultravelers3new.local/2015/01/the-secret-to-travel-with-kids.html)[The Secret to Travel with Kids!](http://soultravelers3new.local/2015/01/the-secret-to-travel-with-kids.html)
-
-[![](http://i.zemanta.com/noimg_63_80_80.jpg)](http://soultravelers3new.local/2015/01/buy-mozarts-song-youre-not-alone-on-itunes-googleplay-or-amazon-.html)[Buy Mozart's Song "You're Not Alone" on Itunes, GooglePlay or Amazon!](http://soultravelers3new.local/2015/01/buy-mozarts-song-youre-not-alone-on-itunes-googleplay-or-amazon-.html)

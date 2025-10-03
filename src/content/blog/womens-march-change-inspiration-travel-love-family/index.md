@@ -37,7 +37,7 @@ The Women's March changed our lives, likely all of our lives. I'm not a Democrat
   
 ![Women's March - inspiring signs](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c8dade03970b.png)  
   
-I was very proud to be marching with my sweet teen daughter [Mozart](http://soultravelers3new.local/2016/04/mozart-wins-best-actress-award-.html "teen singer & actress  Mozart Dee ") and my husband of 26 years with 750,000 others in Los Angeles. No one expected so many people to participate. LA predicted 70, 000 and thought that would be a huge crowd and bigger than most protests. There were people of all types, both Republicans and Democrats, every race, many families and children, seniors, disabled, LGBT etc etc. The signs were almost all home made and beautiful with heart opening messages of hope and love.   
+I was very proud to be marching with my sweet teen daughter [Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2016/04/mozart-wins-best-actress-award-.html "teen singer & actress  Mozart Dee ") and my husband of 26 years with 750,000 others in Los Angeles. No one expected so many people to participate. LA predicted 70, 000 and thought that would be a huge crowd and bigger than most protests. There were people of all types, both Republicans and Democrats, every race, many families and children, seniors, disabled, LGBT etc etc. The signs were almost all home made and beautiful with heart opening messages of hope and love.   
   
 ![Women's March - Mother and Daughter! Going as a family  ](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301bb097df79b970d.png)  
   
@@ -109,8 +109,3 @@ To me the Women's March was one big prayer for hope and goodness and it was for 
 
 Related articles
 
-[![](http://i.zemanta.com/341931598_80_80.jpg)](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)[Teen Singer Mozart's Speech at NAACE Conference to UK Educators!](http://soultravelers3new.local/2015/05/teen-singer-mozarts-speech-at-naace-conference-to-uk-educators.html)
-
-[![](http://i.zemanta.com/354543600_80_80.jpg)](http://soultravelers3new.local/2015/07/road-trip-across-america.html)[Road Trip Across America](http://soultravelers3new.local/2015/07/road-trip-across-america.html)
-
-[![](http://i.zemanta.com/355703992_80_80.jpg)](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)[Travel to LA Without a Car?](http://soultravelers3new.local/2015/08/travel-to-la-without-a-car-.html)

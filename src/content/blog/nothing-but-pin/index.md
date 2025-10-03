@@ -6,7 +6,7 @@ categories:
   - "france"
 ---
 
- [![Img_2273](http://soultravelers3new.local/images/2008/04/27/img_2273.png "Img_2273")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2273.png) "Nothing but Pinot Noir"  
+ [![Img_2273](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2273.png "Img_2273")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2273.png) "Nothing but Pinot Noir"  
 October 7, 2006
 
 “...This is Burgundy” the waitress said as  
@@ -15,7 +15,7 @@ wine which brought a smile to our lips.
 
 <!--more-->
 
-[![Img_2273_2](http://soultravelers3new.local/images/2008/04/27/img_2273_2.png "Img_2273_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2273_2.png)
+[![Img_2273_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2273_2.png "Img_2273_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2273_2.png)
 
 “...This is Burgundy” the waitress said as she poured the very palatable local red wine which brought a smile to our lips. Ahhh,indeed. The only red grape grown in all of Burgundy is the Pinot Noir (which we have become very fond of sinse planting and nurturing our own). The highlight of our first day in Burgundy was a spectacular and resplendent restaurant called La Dame d’Aquitaine . We were looking for another one, but the beauty and uniqueness of this restaurant caught our eye and we decided to take a chance on trying some Burgundy specialties there. It was located in a thirteen century crypt in the heart of Dijon opposite Eglise St. Jean with an  excellent selection of famous and not so famous burgundies. It was one of those memorable traveling moments just meant to be.
 
@@ -29,14 +29,14 @@ or less on dinner for all of us, so we feel fine about our splurges, especially 
 
 What glorious fortuity to come upon this gem, especially after our semi hard day. It started out fine as we enjoyed our long walk along the river and watching some kids practice kayaking and the RV camp location is superb right next to a river and lake within walking distance to the center of town, but dealing with the internet connection was daunting at best. But then that is a whole other story.
 
-[![Img_2286](http://soultravelers3new.local/images/2008/04/27/img_2286.png "Img_2286")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2286.png)
+[![Img_2286](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2286.png "Img_2286")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2286.png)
 
-[![Img_2291](http://soultravelers3new.local/images/2008/04/27/img_2291.png "Img_2291")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2291.png)
+[![Img_2291](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2291.png "Img_2291")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2291.png)
 
-[![Img_2282](http://soultravelers3new.local/images/2008/04/27/img_2282.png "Img_2282")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2282.png)
+[![Img_2282](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2282.png "Img_2282")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2282.png)
 
-[![Img_2292](http://soultravelers3new.local/images/2008/04/27/img_2292.png "Img_2292")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2292.png)
+[![Img_2292](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2292.png "Img_2292")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2292.png)
 
-[![Img_2274](http://soultravelers3new.local/images/2008/04/27/img_2274.png "Img_2274")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2274.png)
+[![Img_2274](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2274.png "Img_2274")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2274.png)
 
-[![Img_2298](http://soultravelers3new.local/images/2008/04/27/img_2298.png "Img_2298")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2298.png)
+[![Img_2298](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/27/img_2298.png "Img_2298")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/27/img_2298.png)

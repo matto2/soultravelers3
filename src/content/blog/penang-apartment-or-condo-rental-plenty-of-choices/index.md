@@ -38,16 +38,16 @@ Planning a vacation, holiday or long stay in Georgetown, Penang area? Looking fo
   
 **WHERE TO START**  
   
-We are not property managers, home owners or agents, just folks who have [rented long term in Penang](http://soultravelers3new.local/2011/04/saying-goodbye-to-tropical-asia-penang.html "rented apartment long term in Penang") for two  winters now, so can tell you what we have learned to make your search for an apartment easier. This is a series, so make sure you read the other posts in this series:  
+We are not property managers, home owners or agents, just folks who have [rented long term in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/04/saying-goodbye-to-tropical-asia-penang.html "rented apartment long term in Penang") for two  winters now, so can tell you what we have learned to make your search for an apartment easier. This is a series, so make sure you read the other posts in this series:  
   
 [How to Rent a Tropical Winter Home in Penang, Malaysia  
-](http://soultravelers3new.local/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "how to rent a tropical winter home in penang, malaysia")[](How to Find a Rental Apartment in Penang - Part I "how to find a rental apartment in penang")
+](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2011/01/tropical-winter-home-in-penang-malaysia-location-indenpendent-digital-nomad-long-term-travel-tips-.html "how to rent a tropical winter home in penang, malaysia")[](How to Find a Rental Apartment in Penang - Part I "how to find a rental apartment in penang")
 
 [How to Find a Rental Apartment in Penang - Part I](How to Find a Rental Apartment in Penang - Part I "how to find a rental apartment in penang")  
   
-[Finding a Vacation Rental Apartment in Penang](http://soultravelers3new.local/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "finding a vacation  rental apartment in Penang")  
+[Finding a Vacation Rental Apartment in Penang](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2012/03/finding-a-vacation-rental-apartment-in-penang-2.html "finding a vacation  rental apartment in Penang")  
   
-[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea8096dd970c-150x150-1.jpg)[![finding an apartment in Penang- looking at rental in Brezza](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330167657ea845970b-300x225.jpg "finding an apartment in Penang- looking at rental in Brezza")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167657ea845970b-300x225.jpg)  
+[](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330168ea8096dd970c-150x150-1.jpg)[![finding an apartment in Penang- looking at rental in Brezza](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330167657ea845970b-300x225.jpg "finding an apartment in Penang- looking at rental in Brezza")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330167657ea845970b-300x225.jpg)  
   
 **TONS OF FURNISHED RENTAL APARTMENT CHOICES**  
   

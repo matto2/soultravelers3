@@ -15,7 +15,7 @@ tags:
   - "soultravelers3"
 ---
 
- [![IMG_1418](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecfe7649970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330133ecfe7649970b.jpg) Highest Sand Dune in Europe - Dune du Pyla!  
+ [![IMG_1418](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecfe7649970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330133ecfe7649970b.jpg) Highest Sand Dune in Europe - Dune du Pyla!  
 April 29, 2010
 
 Kids, camping, biking, hiking, sand  
@@ -26,13 +26,13 @@ for family travel!  Add in a novelty
 
 ![IMG_1418](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecfe722a970b.jpg)  
 
-[Kids, camping](http://soultravelers3new.local/2009/06/questions-answers-about-soultravelers3-family-travel.html), [biking](http://soultravelers3new.local/2009/05/biking-st-emilion-bordeaux-vineyards-in-france-wine-country.html), hiking, sand and water are a perfect combination for [family travel](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)! Add in a novelty like the highest sand dune in Europe and we could not miss this stop as we left [Spain's northern coast](http://soultravelers3new.local/2009/07/seaside-resort-san-sebastian-spain-donostia.html) and headed into France. This French region along the Atlantic coast is called the "Landes" and is mostly very flat and covered with pines. It's a popular area for tourists from Bordeaux with lots of beaches. 
+[Kids, camping](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/06/questions-answers-about-soultravelers3-family-travel.html), [biking](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/05/biking-st-emilion-bordeaux-vineyards-in-france-wine-country.html), hiking, sand and water are a perfect combination for [family travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html)! Add in a novelty like the highest sand dune in Europe and we could not miss this stop as we left [Spain's northern coast](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/07/seaside-resort-san-sebastian-spain-donostia.html) and headed into France. This French region along the Atlantic coast is called the "Landes" and is mostly very flat and covered with pines. It's a popular area for tourists from Bordeaux with lots of beaches. 
 
 ![IMG_4497](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecfeed9a970b.jpg) 
 
 ![IMG_1420](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecfeee54970b.jpg)  
   
-You won't see many American tourists, but we rarely do in our travels into off-the-beaten- track locations. One of the joys and advantages of having so much time to explore Europe has been how it has allowed us to experience so many [hidden gems](http://soultravelers3new.local/2008/09/gorgeous-galici.html). By driving, biking, walking and using mass transit mostly, and having the luxury of time to slow travel, we get a real on-the-ground perspective of places that most will never see. I'll never be able to express my gratitude for this gift we have given ourselves and the more we do, the more I want to do it. Luckily we can share them with you too! So many stories yet to tell.
+You won't see many American tourists, but we rarely do in our travels into off-the-beaten- track locations. One of the joys and advantages of having so much time to explore Europe has been how it has allowed us to experience so many [hidden gems](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/09/gorgeous-galici.html). By driving, biking, walking and using mass transit mostly, and having the luxury of time to slow travel, we get a real on-the-ground perspective of places that most will never see. I'll never be able to express my gratitude for this gift we have given ourselves and the more we do, the more I want to do it. Luckily we can share them with you too! So many stories yet to tell.
 
    ![IMG_4532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330133ecfef3df970b.jpg)
 
@@ -56,7 +56,7 @@ It is quite pretty in June with the unique combination of pines, wild flowers, l
   
   
 
-We stayed at a campsite called [Camping La Foret](http://www.brittany-ferries.co.uk/holiday-search/France/aquitaine/Arcachon/chalet-camping/YYA004) because it had a ladder up the east side of the dune. It was not as big as the [giant dunes in Merzouga](http://www.youtube.com/watch?v=IrrAFDt9W_U) in the [Sahara that Mozart climbed](http://soultravelers3new.local/2007/04/sahara-rainbow.html), but  lots of fun, none the less. Can kids ever get enough of climbing or sand? I even enjoyed it, although could not make it up there with my mobility challenges ( bum knee). It looked tempting and I enjoyed watching ( and photographing) Mozart and Davinci way up on top.
+We stayed at a campsite called [Camping La Foret](http://www.brittany-ferries.co.uk/holiday-search/France/aquitaine/Arcachon/chalet-camping/YYA004) because it had a ladder up the east side of the dune. It was not as big as the [giant dunes in Merzouga](http://www.youtube.com/watch?v=IrrAFDt9W_U) in the [Sahara that Mozart climbed](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/04/sahara-rainbow.html), but  lots of fun, none the less. Can kids ever get enough of climbing or sand? I even enjoyed it, although could not make it up there with my mobility challenges ( bum knee). It looked tempting and I enjoyed watching ( and photographing) Mozart and Davinci way up on top.
 
 ![IMG_4573](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330134802ea83e970c.jpg)  
 

@@ -35,7 +35,7 @@ June is a perfect time to be there before the crowds arrive. The [campsite, Doma
   
 We met a lovely family from Scotland on holiday there and Mozart had great fun with her new friend and catching baby ducks! It is a perfect place to do lots of bike rides amongst the vineyards, relax, swim, do wine tasting and enjoy great food in a beautiful environment.  
   
-This is the second in our series of videos of [vineyards around the world](http://www.youtube.com/watch?v=6jYiqGE2VjQ). You can see our first one that we released this past January about [Alsace at harvest time, here](http://soultravelers3new.local/2009/01/route-des-vins-dalsace-france-at-grape-harvest.html#more). We also have the unique vineyards from [Santorini in this video.](http://soultravelers3new.local/2009/03/heavenly-month-in-santorini-greece.html#more)  
+This is the second in our series of videos of [vineyards around the world](http://www.youtube.com/watch?v=6jYiqGE2VjQ). You can see our first one that we released this past January about [Alsace at harvest time, here](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/01/route-des-vins-dalsace-france-at-grape-harvest.html#more). We also have the unique vineyards from [Santorini in this video.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/03/heavenly-month-in-santorini-greece.html#more)  
   
   
   

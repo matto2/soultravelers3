@@ -43,9 +43,9 @@ This is particularly true for families. One of the smartest things we did before
 
 Didn't you love family nights as a kid watching "home movies"? I did and Mozart does too plus it has added value when you're doing extended travel as it helps a child stay connected to his/her home culture, past and relatives in addition to rituals at a distance.
 
-This is a gift to our family, friends and readers who want a peek into our life before travel. This video was taken the last Christmas in our home when our daughter had just turned 4. Some of the pictures are from earlier xmas holiday seasons. We knew it would be our last Christmas there and wanted her to remember the special times and traditions that we had in [that beloved home](http://soultravelers3new.local/2006/08/leap-of-faith.html) where she lived from birth.
+This is a gift to our family, friends and readers who want a peek into our life before travel. This video was taken the last Christmas in our home when our daughter had just turned 4. Some of the pictures are from earlier xmas holiday seasons. We knew it would be our last Christmas there and wanted her to remember the special times and traditions that we had in [that beloved home](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/08/leap-of-faith.html) where she lived from birth.
 
-This is partly how we bring [our home with us](http://soultravelers3new.local/2006/08/home-and-hous-1.html) as we travel the world and help our child remember her roots. We have film of holiday dinners with family, newborn. family reunions , weddings, her first birthday party, friends and every day moments. We even have video of DaVinci's mother's last birthday which was just a few short months before her death and my younger brother who died at forty, so they live on for her even though they passed away before she was born.
+This is partly how we bring [our home with us](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/08/home-and-hous-1.html) as we travel the world and help our child remember her roots. We have film of holiday dinners with family, newborn. family reunions , weddings, her first birthday party, friends and every day moments. We even have video of DaVinci's mother's last birthday which was just a few short months before her death and my younger brother who died at forty, so they live on for her even though they passed away before she was born.
 
 When we watched them all again a few days ago, I wanted to find a way to share it with you. Not an easy task, but after many trials and a call to the company at home that helped us make our personal dvd, we found a way. It's a bit like inviting you over to cuddle on the couch with us! Grin.
 
@@ -61,15 +61,15 @@ Sorry about the quality ( it was taken with our old video camera and then transf
 
 ![IMG_1087](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287676cd1d970c.jpg)  
 
-Chocolate  advent calendar? Yum! Not something we had at home, but definitely a European tradition that Mozart adapted to immediately. Part of the joy of extended travel and deep immersion is to experience another culture in a profound way, so learning [new traditions](http://soultravelers3new.local/2007/02/most-magical-mu.html) and [participating in festivals](http://soultravelers3new.local/2008/03/three-kings-in.html#more) is part of the charm.
+Chocolate  advent calendar? Yum! Not something we had at home, but definitely a European tradition that Mozart adapted to immediately. Part of the joy of extended travel and deep immersion is to experience another culture in a profound way, so learning [new traditions](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/most-magical-mu.html) and [participating in festivals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/03/three-kings-in.html#more) is part of the charm.
 
 ![IMG_1206](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a77567e2970b.jpg)
 
-Yesterday Mozart sang a little solo at her local school in the annual Christmas concert that they put on every year on the last day of school before Xmas break. Remember our videos from the first winter in 2006 where she [sang in her tradition outfit](http://soultravelers3new.local/2008/04/spanish-kids-si.html#more) and did [flamenco](http://soultravelers3new.local/2008/04/flamenco.html)? Time flies when you are having fun. She was 6 and in [first grade that first year,](http://soultravelers3new.local/2006/12/flamenco-christ.html#more) now she is in fourth grade and turned 9 this fall!
+Yesterday Mozart sang a little solo at her local school in the annual Christmas concert that they put on every year on the last day of school before Xmas break. Remember our videos from the first winter in 2006 where she [sang in her tradition outfit](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/spanish-kids-si.html#more) and did [flamenco](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/flamenco.html)? Time flies when you are having fun. She was 6 and in [first grade that first year,](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/12/flamenco-christ.html#more) now she is in fourth grade and turned 9 this fall!
 
-[![IMG_1191](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775750e970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a775750e970b.jpg)
+[![IMG_1191](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775750e970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a775750e970b.jpg)
 
-They partied all day at the school and did a "secret Santa". Not so different than at home except totally in Spanish and with a Spanish flair. By coming back to this village every year we have a "home away from home" that helps us connect to the holiday customs [that are similar](http://soultravelers3new.local/2006/12/xmas-evela-noch.html#more) and [not so similar.](http://soultravelers3new.local/2007/02/happy-new-year.html) We keep or [modify ours](http://soultravelers3new.local/2007/01/santa-come-or-p.html) and add theirs. I wholeheartedly agree with my friend [Maya Frost](http://www.mayafrost.com/blog/) who recently wrote about the importance of [flexibility in lifestyle design](http://www.mayafrost.com/blog/2009/12/17/frugality-flexibility-expat/). 
+They partied all day at the school and did a "secret Santa". Not so different than at home except totally in Spanish and with a Spanish flair. By coming back to this village every year we have a "home away from home" that helps us connect to the holiday customs [that are similar](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/12/xmas-evela-noch.html#more) and [not so similar.](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/happy-new-year.html) We keep or [modify ours](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/01/santa-come-or-p.html) and add theirs. I wholeheartedly agree with my friend [Maya Frost](http://www.mayafrost.com/blog/) who recently wrote about the importance of [flexibility in lifestyle design](http://www.mayafrost.com/blog/2009/12/17/frugality-flexibility-expat/). 
 
 ![IMG_1050](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876789376970c.jpg)  
 
@@ -79,7 +79,7 @@ On that note, let us demo the art of a Christmas tree in Spain, which you can se
 
 First you buy the tree that comes with dry root ball, pot and potting soil.
 
-[![IMG_1064](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287678ac95970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301287678ac95970c-300x225.jpg) 
+[![IMG_1064](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287678ac95970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301287678ac95970c-300x225.jpg) 
 
 Unwrap tree and add a little soil to the bottom of the pot.  
 
@@ -91,17 +91,17 @@ Put the tree in and squish down the root ball and potting mix.
 
 This year we used a hammer to move things around before watering, but usually not needed.
 
-[![IMG_1126](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287678af17970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a9507883301287678af17970c.jpg) 
+[![IMG_1126](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301287678af17970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a9507883301287678af17970c.jpg) 
 
 Then you decorate! We have very minimal decorations that we store here with a few things like extra books in a couple boxes while we travel. We have bought a few from our travels and brought one Christmas stocking from home.Little things like the same stocking every year of her life, no matter where we are, help maintain roots and consistency to a kid on the go .
 
-Yes, those are organic seed packages that arrived with our Christmas gifts from home, that we added to the tree. When we take our tree down after the [big 3 Kings celebrations](http://soultravelers3new.local/2007/02/most-magical-mu.html) here on January 6th, we will plant our winter garden using this pot & others on our balcony. Even travelers can be gardeners!
+Yes, those are organic seed packages that arrived with our Christmas gifts from home, that we added to the tree. When we take our tree down after the [big 3 Kings celebrations](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/02/most-magical-mu.html) here on January 6th, we will plant our winter garden using this pot & others on our balcony. Even travelers can be gardeners!
 
 ![Christmas presents, gifts under tree](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a775a325970b.jpg) 
 
 **3) USE WEBCAM CALLS & INTERNET TO CONNECT WITH FAMILY & FRIENDS**
 
-There is really nothing better than free webcam calls to help [stay connected to family](http://soultravelers3new.local/2007/01/white-xmas-sort.html#more) and friends. The internet and [technology today](http://www.thrillingheroics.com/49-tools-for-living-the-location-independent-lifestyle) is what makes living and schooling anywhere as a [digital nomad](http://soultravelers3new.local/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) possible.
+There is really nothing better than free webcam calls to help [stay connected to family](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/01/white-xmas-sort.html#more) and friends. The internet and [technology today](http://www.thrillingheroics.com/49-tools-for-living-the-location-independent-lifestyle) is what makes living and schooling anywhere as a [digital nomad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/04/how-to-travel-the-world-as-a-digital-nomad-family.html) possible.
 
 Even this post lets our family, friends and readers connect to our lives. I probably call my mom more now than when I was at home and she has said that she knows more details about our lives than when we were at home due to our blog, [Twitter,](http://twitter.com/soultravelers3)  and [Facebook](http://www.facebook.com/pages/Soultravelers3com-Around-the-World-Family-Travel-Education-Adventure/185105005187?ref=ts) etc. 
 
@@ -111,7 +111,7 @@ It is hard for me to understand how anyone can get lonely today while traveling.
 
 **4) IMPROVISE, POSITIVE FOCUS & PLAYFULNESS**
 
-We always had a beautiful angel on top of our Christmas tree,  but we didn't want to bring it or buy another one here. No problem! Mozart made one last year and we used it again this year. The first year we fashioned [one out of a plastic water bottle](http://soultravelers3new.local/2006/12/xmas-evela-noch.html#more) and aluminum foil and this one is out of a paper towel roll and construction paper.
+We always had a beautiful angel on top of our Christmas tree,  but we didn't want to bring it or buy another one here. No problem! Mozart made one last year and we used it again this year. The first year we fashioned [one out of a plastic water bottle](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/12/xmas-evela-noch.html#more) and aluminum foil and this one is out of a paper towel roll and construction paper.
 
 I think it illustrates well the principles of improvisation, positive focus and playfulness that will not only keep you from feeling depressed and lonely while doing extended travel during the holidays, but will support your life in many ways.
 

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_6732](http://soultravelers3new.local/images/2008/04/20/img_6732.png "Img_6732")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6732.png) Most Magical Musical March  
+ [![Img_6732](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6732.png "Img_6732")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6732.png) Most Magical Musical March  
 February 8, 2007
 
 Wow! We loooved it and have never  
@@ -18,7 +18,7 @@ Spain’s celebrations continues while
 
 <!--more-->
 
-[![Img_6732_2](http://soultravelers3new.local/images/2008/04/20/img_6732_2.png "Img_6732_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6732_2.png)
+[![Img_6732_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6732_2.png "Img_6732_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6732_2.png)
 
 Wow! We loooved it and have never experienced anything like this before! Spain’s celebrations continues while most of the world packs away the xmas stuff. January 5th each year sees the celebration of Los Reyes Magos or the Three Kings which is the traditional gift giving Christmas night in Spain and a major event for every Spanish child. Instead of Santa Claus being the present provider, it is the three kings, Melchor, Gasper and Balthazar who give the gifts. It is estimated that 7000 kilos of sweets are given out in the Madrid Procession alone. During the 6th of January, the three Kings are seen continuing their good works as they distribute gifts to children in hospitals all over Spain and it is a holiday for all. We were thrilled and honored to be part of this ritual in our little village.
 
@@ -52,28 +52,28 @@ hand with a certain shop keeper in secret. Mozart was wondering how the three Ki
 
 Thus we got some exercise walking all over town, Mozart had a very full bag of candy plus a toy and we all had a priceless cultural experience of village life in Spain. Now that full night had set in we walked back to our old part of the village for dinner at one of our favorite places. The tradition is to have a special round cake with “jewels”on it and a surprise inside, but we had something else on our minds. We were in a well satisfied glow as we savored our salmon, pasta and pizza. They have one of our favorite desserts EVER there called “sticky toffee pudding” (which is not a pudding at all, but a melt in your mouth soft cake, vanilla ice cream and luscious carmel sauce combo) so we had one more indulgence before this long holiday season comes to a close. Now I can’t wait to see the celebrations of Lent and Easter in Spain!
 
-[![Img_6714](http://soultravelers3new.local/images/2008/04/20/img_6714.png "Img_6714")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6714.png)
+[![Img_6714](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6714.png "Img_6714")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6714.png)
 
-[![Img_6692](http://soultravelers3new.local/images/2008/04/20/img_6692.png "Img_6692")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6692.png)
+[![Img_6692](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6692.png "Img_6692")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6692.png)
 
-[![Img_6730](http://soultravelers3new.local/images/2008/04/20/img_6730.png "Img_6730")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6730.png)
+[![Img_6730](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6730.png "Img_6730")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6730.png)
 
-[![Img_6668](http://soultravelers3new.local/images/2008/04/20/img_6668.png "Img_6668")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6668.png)
+[![Img_6668](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6668.png "Img_6668")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6668.png)
 
-[![Img_6716](http://soultravelers3new.local/images/2008/04/20/img_6716.png "Img_6716")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6716.png)
+[![Img_6716](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6716.png "Img_6716")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6716.png)
 
-[![Img_6726](http://soultravelers3new.local/images/2008/04/20/img_6726.png "Img_6726")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6726.png)
+[![Img_6726](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6726.png "Img_6726")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6726.png)
 
-[![Img_6731](http://soultravelers3new.local/images/2008/04/20/img_6731.png "Img_6731")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6731.png)
+[![Img_6731](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6731.png "Img_6731")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6731.png)
 
-[![Img_6685](http://soultravelers3new.local/images/2008/04/20/img_6685.png "Img_6685")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6685.png)
+[![Img_6685](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6685.png "Img_6685")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6685.png)
 
-[![Img_6670](http://soultravelers3new.local/images/2008/04/20/img_6670.png "Img_6670")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6670.png)
+[![Img_6670](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6670.png "Img_6670")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6670.png)
 
-[![Img_6696](http://soultravelers3new.local/images/2008/04/20/img_6696.png "Img_6696")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6696.png)
+[![Img_6696](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6696.png "Img_6696")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6696.png)
 
-[![Img_6735](http://soultravelers3new.local/images/2008/04/20/img_6735.png "Img_6735")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6735.png)
+[![Img_6735](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6735.png "Img_6735")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6735.png)
 
-[![Img_6724](http://soultravelers3new.local/images/2008/04/20/img_6724.png "Img_6724")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6724.png)
+[![Img_6724](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6724.png "Img_6724")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6724.png)
 
-[![Img_6677](http://soultravelers3new.local/images/2008/04/20/img_6677.png "Img_6677")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6677.png)
+[![Img_6677](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6677.png "Img_6677")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6677.png)

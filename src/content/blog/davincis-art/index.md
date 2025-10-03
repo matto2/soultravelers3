@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Streamers_post_card](http://soultravelers3new.local/images/2008/04/18/streamers_post_card.png "Streamers_post_card")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/streamers_post_card.png) DaVinci's Art  
+ [![Streamers_post_card](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/streamers_post_card.png "Streamers_post_card")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/streamers_post_card.png) DaVinci's Art  
 February 12, 2007
 
 Looking at Mozart’s work and then seeing  
@@ -15,7 +15,7 @@ find some similarities. I find it interesting
 
 <!--more-->
 
-[![Streamers_post_card_2](http://soultravelers3new.local/images/2008/04/18/streamers_post_card_2.png "Streamers_post_card_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/streamers_post_card_2.png)
+[![Streamers_post_card_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/streamers_post_card_2.png "Streamers_post_card_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/streamers_post_card_2.png)
 
 Looking at Mozart’s work and then seeing DaVinci’s art, I think you can see why I find some similarities. I find it interesting that they choose similar palettes of color. These painting were in our home and even as a tiny baby, Mozart was drawn to them. Perhaps it is just a coincidence, but it is interesting. Is in the genes, environment, subconscious or none of these?
 
@@ -27,8 +27,8 @@ I found a picture of DaVinci at one of his shows and also two of the photos that
 
 The vibrant color and fluidity and variation of the linear treatment combine in a way that allows me to express an explosive visceral, acoustical and visual energy.  My use of the picture plane provides a necessary stillness that adds significance to the rhythmic movement. The emotional notes that I experience most in the work is a passion for life and freedom, exuberant joy, and wisdom through a spirited whimsey. This represents the best of life for me and what I most want to share. I hope to engage the viewers imagination as well as their minds, enabling them to make their own surprising discoveries within this unique world.”
 
-[![Gar_chaminade_show](http://soultravelers3new.local/images/2008/04/18/gar_chaminade_show.png "Gar_chaminade_show")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/gar_chaminade_show.png)
+[![Gar_chaminade_show](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/gar_chaminade_show.png "Gar_chaminade_show")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/gar_chaminade_show.png)
 
-[![Img_6858](http://soultravelers3new.local/images/2008/04/18/img_6858.png "Img_6858")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6858.png)
+[![Img_6858](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6858.png "Img_6858")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6858.png)
 
-[![Img_6860](http://soultravelers3new.local/images/2008/04/18/img_6860.png "Img_6860")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6860.png)
+[![Img_6860](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/18/img_6860.png "Img_6860")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/18/img_6860.png)

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_6521](http://soultravelers3new.local/images/2008/04/20/img_6521.png "Img_6521")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6521.png) Slumber party in Spain  
+ [![Img_6521](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6521.png "Img_6521")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6521.png) Slumber party in Spain  
 February 7, 2007
 
 From the time she saw the four twin beds  
@@ -15,7 +15,7 @@ planning a PJ party.
 
 <!--more-->
 
-[![Img_6521_2](http://soultravelers3new.local/images/2008/04/20/img_6521_2.png "Img_6521_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6521_2.png)
+[![Img_6521_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6521_2.png "Img_6521_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6521_2.png)
 
 From the time she saw the four twin beds here when we arrived, Mozart has been planning a PJ party. There is nothing quite as exciting to a young girl than a sleep over and I must admit that this house did call for one. Our small RV would never do as a location, so we thought we might as well take advantage of all this extra space and beds while we had it.
 
@@ -36,26 +36,26 @@ In the morning we allowed them to have a little princess breakfast on the terrac
 
 The other great thing is we got our dvd player working again. Wahoo! We bought it for her last Christmas just for this trip and it has not worked well due to something getting burned out right away. We have tried a bunch of things to fix it, but to no avail until now. We almost bought another one or computer for xmas. So we are very, very happy to have that working again!
 
-[![Img_6564](http://soultravelers3new.local/images/2008/04/20/img_6564.png "Img_6564")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6564.png)
+[![Img_6564](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6564.png "Img_6564")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6564.png)
 
-[![Img_6556](http://soultravelers3new.local/images/2008/04/20/img_6556.png "Img_6556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6556.png)
+[![Img_6556](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6556.png "Img_6556")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6556.png)
 
-[![Img_6532](http://soultravelers3new.local/images/2008/04/20/img_6532.png "Img_6532")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6532.png)
+[![Img_6532](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6532.png "Img_6532")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6532.png)
 
-[![Img_6568](http://soultravelers3new.local/images/2008/04/20/img_6568.png "Img_6568")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6568.png)
+[![Img_6568](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6568.png "Img_6568")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6568.png)
 
-[![Img_6546](http://soultravelers3new.local/images/2008/04/20/img_6546.png "Img_6546")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6546.png)
+[![Img_6546](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6546.png "Img_6546")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6546.png)
 
-[![Img_6581](http://soultravelers3new.local/images/2008/04/20/img_6581.png "Img_6581")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6581.png)
+[![Img_6581](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6581.png "Img_6581")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6581.png)
 
-[![Img_6600](http://soultravelers3new.local/images/2008/04/20/img_6600.png "Img_6600")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6600.png)
+[![Img_6600](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6600.png "Img_6600")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6600.png)
 
-[![Img_6604](http://soultravelers3new.local/images/2008/04/20/img_6604.png "Img_6604")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6604.png)
+[![Img_6604](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6604.png "Img_6604")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6604.png)
 
-[![Img_6612](http://soultravelers3new.local/images/2008/04/20/img_6612.png "Img_6612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6612.png)
+[![Img_6612](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6612.png "Img_6612")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6612.png)
 
   
 
-[![Img_6625](http://soultravelers3new.local/images/2008/04/20/img_6625.png "Img_6625")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6625.png)
+[![Img_6625](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6625.png "Img_6625")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6625.png)
 
-[![Img_6526](http://soultravelers3new.local/images/2008/04/20/img_6526.png "Img_6526")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6526.png)
+[![Img_6526](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/20/img_6526.png "Img_6526")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/20/img_6526.png)

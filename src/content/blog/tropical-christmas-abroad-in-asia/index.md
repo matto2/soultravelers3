@@ -43,22 +43,22 @@ I spent the last week writing a very long and detailed post all about wintering 
 
 ![Families can enjoy Christmas abroad](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ed1186970b.jpg)
 
-Since we are into our [5th year of non-stop  travel](http://soultravelers3new.local/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "5th year of non-stop travel"), we've written quite a bit about Christmas abroad and wanted to share a few of those with you as well, in case you missed them. 
+Since we are into our [5th year of non-stop  travel](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/09/8-reasons-for-a-family-world-trip-international-vacations-holidays-abroad-longterm-travel-rtw.html "5th year of non-stop travel"), we've written quite a bit about Christmas abroad and wanted to share a few of those with you as well, in case you missed them. 
 
-\* [**How to Enjoy Family Travel Abroad at Christmas!**](http://soultravelers3new.local/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "how to enjoy family travel abroad at Christmas")
+\* [**How to Enjoy Family Travel Abroad at Christmas!**](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/12/how-to-enjoy-family-travel-abroad-at-christmas-digital-nomad-4hww-extended-travel-holidays.html "how to enjoy family travel abroad at Christmas")
 
-**\* [Christmas in Europe - a Photo Fantasy!](http://soultravelers3new.local/2009/12/christmas-in-europe-a-photo-fantasy-germany-xmas-markets-uk-scandinavia-nordic-holiday.html "Christmas in europe a photo fantasy")**
+**\* [Christmas in Europe - a Photo Fantasy!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/12/christmas-in-europe-a-photo-fantasy-germany-xmas-markets-uk-scandinavia-nordic-holiday.html "Christmas in europe a photo fantasy")**
 
-**\* [Best Travel Gifts and Deals](http://soultravelers3new.local/2010/11/cyber-monday-best-travel-gifts-and-deals-black-friday-christmas-sales-discounts-bargains.html "best travel gifts and deals")  
+**\* [Best Travel Gifts and Deals](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/11/cyber-monday-best-travel-gifts-and-deals-black-friday-christmas-sales-discounts-bargains.html "best travel gifts and deals")  
 **
 
-\* **[Flamenco & Christmas Recital](http://soultravelers3new.local/2006/12/flamenco-christ.html "flamenco & christmas recital")**
+\* **[Flamenco & Christmas Recital](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/12/flamenco-christ.html "flamenco & christmas recital")**
 
-\* **[White Xmas ...Sort of](http://soultravelers3new.local/2007/01/white-xmas-sort.html "white xmas sort of")**
+\* **[White Xmas ...Sort of](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2007/01/white-xmas-sort.html "white xmas sort of")**
 
-\* **[Xmas Eve/ La Nochebuena](http://soultravelers3new.local/2006/12/xmas-evela-noch.html "xmas eve la nochebuena")**
+\* **[Xmas Eve/ La Nochebuena](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2006/12/xmas-evela-noch.html "xmas eve la nochebuena")**
 
-\* **[3 Kings in Spain - Los Reyes Magos](http://soultravelers3new.local/2010/01/3-kings-in-spain-andalusia-festival-tradition-white-village-christmas-epiphany-12th-night.html "3 kings in spain los reyes magos")**
+\* **[3 Kings in Spain - Los Reyes Magos](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2010/01/3-kings-in-spain-andalusia-festival-tradition-white-village-christmas-epiphany-12th-night.html "3 kings in spain los reyes magos")**
 
 ![tropical Christmas in Asia with sea views](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330147e0ed1c43970b.jpg)
 

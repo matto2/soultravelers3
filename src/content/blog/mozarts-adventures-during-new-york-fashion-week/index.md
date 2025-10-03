@@ -37,7 +37,7 @@ to attend New York Fashion Week
   
 ![Travel Teen Mozart is youngest reporter at New York Fashion Week for Youtube and NYMBrand](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b7c6e0bf77970b.png)  
   
-[13 year old trilingual travel teen](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Mozart 13 year old trilingual travel teen") and [Youtuber Mozart](http://soultravelers3new.local/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html "Youtuber Mozart ") was asked to attend New York Fashion Week as it's [youngest reporter](http://soultravelers3new.local/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html "Teen Mozart youngest reporter for New York Fashion Week") by [Not Your Mother's Brand](http://www.nymbrands.com/ "not your mother's brand hair care") and had an awesome [worldschool](http://soultravelers3new.local/2013/01/world-school-education-at-its-best-.html "World school education via traveling the world") and [travel adventure](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled child in the world") that we will share with you!  
+[13 year old trilingual travel teen](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html "Mozart 13 year old trilingual travel teen") and [Youtuber Mozart](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/08/mozarts-1st-vlog-teen-beauty-guru-fashion-bargaining-in-china-in-mandarin.html "Youtuber Mozart ") was asked to attend New York Fashion Week as it's [youngest reporter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2014/09/mozart-is-youngest-reporter-at-new-york-fashion-week.html "Teen Mozart youngest reporter for New York Fashion Week") by [Not Your Mother's Brand](http://www.nymbrands.com/ "not your mother's brand hair care") and had an awesome [worldschool](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/01/world-school-education-at-its-best-.html "World school education via traveling the world") and [travel adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/09/the-most-well-traveled-child-in-the-whole-world.html "most well traveled child in the world") that we will share with you!  
   
 ![trilingual singer Mozart on the red carpet at New York Fashion Week](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301b8d06abc69970c.png)  
   
@@ -53,7 +53,7 @@ It began with [this video on Youtube](http://www.youtube.com/watch?v=un95ND8Uasc
 
   
   
-Plus an offer by [FlipKey](http://www.flipkey.com/ "flipKey apartment vacation rentals") to sponsor us with a beautiful 3 bedroom apartment, so how could we refuse this awesome big city fashion and [homeschool travel adventure](http://soultravelers3new.local/2013/07/homeschool-high-school-and-world-travel.html "Homeschool high school and world travel")?  
+Plus an offer by [FlipKey](http://www.flipkey.com/ "flipKey apartment vacation rentals") to sponsor us with a beautiful 3 bedroom apartment, so how could we refuse this awesome big city fashion and [homeschool travel adventure](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2013/07/homeschool-high-school-and-world-travel.html "Homeschool high school and world travel")?  
   
   
 ![trilingual teen youtuber Mozart's adventures during New York Fashion Week! Fashion rocks!](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a9507883301a73e16b535970d.png)  
@@ -163,22 +163,3 @@ Any questions or something specific you want to see? Let us know in the comments
 
 Related articles
 
-[![](http://i.zemanta.com/294728299_80_80.jpg)](http://soultravelers3new.local/2014/08/tmi-tag--1.html)[TMI Tag!](http://soultravelers3new.local/2014/08/tmi-tag--1.html)
-
-[![](http://i.zemanta.com/255447587_80_80.jpg)](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)[Mozart - Beautiful Teen Singer, Songwriter, Musician](http://soultravelers3new.local/2014/03/mozart-beautiful-teen-singer-songwriter-musician.html)
-
-[![](http://i.zemanta.com/92363554_80_80.jpg)](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)[Bora Bora - Heaven on a Cheap Budget!](http://soultravelers3new.local/2012/06/bora-bora-heaven-on-a-cheap-budget.html)
-
-[![](http://i.zemanta.com/185282080_80_80.jpg)](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html)[Retire and Travel the World](http://soultravelers3new.local/2013/07/retire-and-travel-the-world.html)
-
-[![](http://i.zemanta.com/207027430_80_80.jpg)](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)[The Most Well-Traveled Child in the Whole World](http://soultravelers3new.local/2013/09/the-most-well-traveled-child-in-the-whole-world.html)
-
-[![](http://i.zemanta.com/111536966_80_80.jpg)](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)[How to Homeschool Through Travel With a Gifted Child](http://soultravelers3new.local/2012/09/how-to-homeschool-through-travel-with-a-gifted-child-.html)
-
-[![](http://i.zemanta.com/261912623_80_80.jpg)](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)[World as my Middle School - The Atlantic & Soultravelers3](http://soultravelers3new.local/2014/04/world-as-my-middle-school-the-atlantic-soultravelers3.html)
-
-[![](http://i.zemanta.com/232906364_80_80.jpg)](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html)[Trilingual Mozart, Travel Kid Expert, Speaks at GEC about World Education](http://soultravelers3new.local/2013/12/trilingual-mozart-travel-kid-expert-speaks-at-gec-about-world-education.html)
-
-[![](http://i.zemanta.com/276672350_80_80.jpg)](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html)[Wings! Mozart Rocks Little Mix and Looks/Sings Like a Pop Star!](http://soultravelers3new.local/2014/06/wings-mozart-rocks-little-mix-and-lookssings-like-a-pop-star.html)
-
-[![](http://i.zemanta.com/253943088_80_80.jpg)](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)[Homeschool Family European Tour](http://soultravelers3new.local/2014/03/homeschool-family-european-tour.html)

@@ -6,7 +6,7 @@ categories:
   - "spain"
 ---
 
- [![Img_3957](http://soultravelers3new.local/images/2008/04/24/img_3957.png "Img_3957")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3957.png) Happy Halloween!  
+ [![Img_3957](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3957.png "Img_3957")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3957.png) Happy Halloween!  
 October 31, 2006
 
 This year we had a very unique Halloween,  
@@ -15,7 +15,7 @@ are suppose to  move into our winter home
 
 <!--more-->
 
-[![Img_3957_2](http://soultravelers3new.local/images/2008/04/24/img_3957_2.png "Img_3957_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3957_2.png)
+[![Img_3957_2](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_3957_2.png "Img_3957_2")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_3957_2.png)
 
 This year we had a very unique Halloween, partly because it fell on the day before we are suppose to  move into our winter home in Spain and we are on the road going at a fast pace. We saw a cute picture of Daisy dressed in her witch costume at a Halloween party she went to just before we got there and we liked this cute pumpkin and goblins display we saw outside their campsite, so there are always opportunities to celebrate even on the road. We picked up a little pumpkin at the hypermarket too.
 
@@ -37,16 +37,16 @@ After dinner we broke out the Halloween candy we had bought at the hypermarket a
 
 In the morning before breakfast we had the indoor pool and hot tub to ourselves and really enjoyed that escapade. It was a great way to start the morning and something Mozart had been wanting for a while. We knew we did not have too much further to go, so took our time and did not head out until a little past noon.
 
-[![Img_4040](http://soultravelers3new.local/images/2008/04/24/img_4040.png "Img_4040")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4040.png)
+[![Img_4040](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4040.png "Img_4040")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4040.png)
 
-[![Img_4020](http://soultravelers3new.local/images/2008/04/24/img_4020.png "Img_4020")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4020.png)
+[![Img_4020](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4020.png "Img_4020")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4020.png)
 
-[![Img_4024](http://soultravelers3new.local/images/2008/04/24/img_4024.png "Img_4024")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4024.png)
+[![Img_4024](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4024.png "Img_4024")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4024.png)
 
-[![Img_4031](http://soultravelers3new.local/images/2008/04/24/img_4031.png "Img_4031")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4031.png)
+[![Img_4031](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4031.png "Img_4031")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4031.png)
 
-[![Img_4039](http://soultravelers3new.local/images/2008/04/24/img_4039.png "Img_4039")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4039.png)
+[![Img_4039](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4039.png "Img_4039")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4039.png)
 
-[![Img_4043](http://soultravelers3new.local/images/2008/04/24/img_4043.png "Img_4043")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4043.png)
+[![Img_4043](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4043.png "Img_4043")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4043.png)
 
-[![Img_4045](http://soultravelers3new.local/images/2008/04/24/img_4045.png "Img_4045")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4045.png)
+[![Img_4045](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/04/24/img_4045.png "Img_4045")](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/photos/uncategorized/2008/04/24/img_4045.png)

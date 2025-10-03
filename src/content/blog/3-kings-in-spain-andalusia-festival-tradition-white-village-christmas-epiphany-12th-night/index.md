@@ -28,9 +28,9 @@ globe, but I am still amazed by the
 
 Our family travels have led us to colorful celebrations around the globe, but I am still amazed by the festivals in Spain and the 3 Kings or "Los Reyes Magos" is one not to be missed. In Andalusia they know how to celebrate life!
 
-We found it [absolutely magical our first winter](http://soultravelers3new.local/2008/12/sahara-dream.html) here, but every year it is a little different and every year it touches our hearts. These are some pictures that I took [from the 2009 celebrations](http://soultravelers3new.local/2009/01/my-entry.html#more) and I guess I didn't post anything about the one in 2008 even though we took pictures and video. It's hard to always keep up with everything, but this year had a fun twist with kid's from Mozart's school participating in costumes,  so I thought I'd do a blog post with mostly photos. 
+We found it [absolutely magical our first winter](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2008/12/sahara-dream.html) here, but every year it is a little different and every year it touches our hearts. These are some pictures that I took [from the 2009 celebrations](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2009/01/my-entry.html#more) and I guess I didn't post anything about the one in 2008 even though we took pictures and video. It's hard to always keep up with everything, but this year had a fun twist with kid's from Mozart's school participating in costumes,  so I thought I'd do a blog post with mostly photos. 
 
-[![IMG_1350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7c54118970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a7c54118970b-300x225.jpg) 
+[![IMG_1350](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7c54118970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a7c54118970b-300x225.jpg) 
 
 All processions always start at the church square!
 
@@ -56,10 +56,10 @@ There is wild excitement, kind of a blend between Halloween and Christmas with t
 [](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7c56884970b.jpg)![IMG_1372](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876c78685970c.jpg)  
   Gathering the candy as they go excites the children.
 
-[![IMG_1377](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876c78405970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a95078833012876c78405970c.jpg)  
+[![IMG_1377](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876c78405970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a95078833012876c78405970c.jpg)  
 The kid's and adults alike love this ritual.
 
-[![IMG_1369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7c55642970b.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a950788330120a7c55642970b-300x225.jpg)  
+[![IMG_1369](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7c55642970b.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a950788330120a7c55642970b-300x225.jpg)  
 Mozart had slept over this friends house the night before, Do they look a little tired?
 
 ![IMG_1387](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876c78b90970c.jpg) 
@@ -85,7 +85,7 @@ The joy in the children can't help but make you smile.
 
 At the community hall, each child's name is called by the 3 Kings.
 
-[![2kings 10](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876c7987b970c.jpg)](http://soultravelers3new.local/wp-content/uploads/wp-content/uploads/2025/09/6a00e5502a95078833012876c7987b970c.jpg)  
+[![2kings 10](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a95078833012876c7987b970c.jpg)](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/2025/09/6a00e5502a95078833012876c7987b970c.jpg)  
 They each get a gift and their moment in the sun. Mozart loves the gift part too!
 
 ![IMG_1424](https://pub-ac94b3f306b24c0dba4238943c97f2e1.r2.dev/6a00e5502a950788330120a7c56884970b.jpg)  
